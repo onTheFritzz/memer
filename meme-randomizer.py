@@ -1,5 +1,6 @@
 import random, json, time, os
 from random import choice
+from datetime import datetime as dt
 
 def jLoad(fileName):
 	with open(fileName, 'r') as r:
@@ -32,7 +33,8 @@ def getRandomMemes(number):
 		gototop = '<a href="#link0">GO TO TOP</a>'
 		previous = f'<a href="#link{x}">GO TO PREVIOUS</a>'
 
-		articleBlock = f'## <a href="#link{x+1}" id="link{x}">{header}</a>\n'
+		articleBlock = f'# All Ur Meemz R Belog to Uz\nLast Updated {dt.now().strftime("%m.%d.%Y-%H:%M:%S")}\n\n'
+		articleBlock += f'## <a href="#link{x+1}" id="link{x}">{header}</a>\n'
 
 		for ti in titlesImages:
 			title, image = ti[0], ti[1]
@@ -46,7 +48,7 @@ def getRandomMemes(number):
 memerConfig = 'memer-config.json'
 walkDir = './all-files' #f'{os.environ["USERPROFILE"]}\\Desktop\\files' # Location of article jsons
 
-with open('RANDOMIZER.MD', 'w') as w: # Generate file if doesn't exist or clear file from previous run
+with open('README.md', 'w') as w: # Generate file if doesn't exist or clear file from previous run
 	w.write('')
 
 j = jLoad(memerConfig)
