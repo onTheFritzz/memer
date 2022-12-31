@@ -15,6 +15,7 @@ def getValue(jFile, key):
 
 def getRandomMemes(number):
 	articleBlock = f'# All Ur Meemz R Belog to Uz\nLast Updated {dt.now().strftime("%m.%d.%Y-%H:%M:%S")}\n\n'
+	print('yolo yolo')
 	for x in range(number + 1):
 		# Generate random number provided it has not been used before
 		articleNo = choice([i for i in range(1, len(memeFiles) + 1) if i not in j['memes-used']])
@@ -43,7 +44,8 @@ def getRandomMemes(number):
 		print(f'Writing article {x}')
 		articleBlock += f'\n{gototop}\n\n{previous}\n\n'
 		with open('README.MD', 'a', encoding='utf-8') as a:
-			a.write(articleBlock) 
+			a.write(articleBlock)
+		articleBlock = ''
 
 memerConfig = 'memer-config.json'
 walkDir = './all-files' #f'{os.environ["USERPROFILE"]}\\Desktop\\files' # Location of article jsons
