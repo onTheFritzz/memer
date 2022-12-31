@@ -14,6 +14,7 @@ def getValue(jFile, key):
 		raise ValueError(f'"{key}" is prolly not a valid key')
 
 def getRandomMemes(number):
+	articleBlock = f'# All Ur Meemz R Belog to Uz\nLast Updated {dt.now().strftime("%m.%d.%Y-%H:%M:%S")}\n\n'
 	for x in range(number + 1):
 		# Generate random number provided it has not been used before
 		articleNo = choice([i for i in range(1, len(memeFiles) + 1) if i not in j['memes-used']])
@@ -33,7 +34,6 @@ def getRandomMemes(number):
 		gototop = '<a href="#link0">GO TO TOP</a>'
 		previous = f'<a href="#link{x}">GO TO PREVIOUS</a>'
 
-		articleBlock = f'# All Ur Meemz R Belog to Uz\nLast Updated {dt.now().strftime("%m.%d.%Y-%H:%M:%S")}\n\n'
 		articleBlock += f'## <a href="#link{x+1}" id="link{x}">{header}</a>\n'
 
 		for ti in titlesImages:

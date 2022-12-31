@@ -108,7 +108,7 @@ class baumerSpider(scrapy.Spider):
 		self.sleeper(self.sleepBetweenArticles)
 
 if __name__ == "__main__":
-	process = CrawlerProcess()
-	process.crawl(baumerSpider)
-	process.start()
+	#process = CrawlerProcess()
+	#process.crawl(baumerSpider)
+	#process.start()
 	fusRoDah()
