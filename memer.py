@@ -11,6 +11,7 @@ def fusRoDah():
 		repo.index.commit(now) # Roh ## Commit
 		origin = repo.remote(name='origin')
 		origin.push() # Dah ## Push
+		print('Fus ro duh')
 	except:
 		print('Error') # Fus Roh Duh.
 		pass
