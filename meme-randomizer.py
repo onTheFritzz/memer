@@ -42,7 +42,7 @@ def getRandomMemes(number):
 			articleBlock += f'{title}\n<img src="{image}">\n\n'
 		
 		print(f'Writing article {x}')
-		articleBlock += f'\n{sourceLink}\n{gototop}\n\n{previous}\n\n'
+		articleBlock += f'\n{sourceLink}\n\n{gototop}\n\n{previous}\n\n'
 		with open('README.MD', 'a', encoding='utf-8') as a:
 			a.write(articleBlock)
 		articleBlock = ''
