@@ -14,7 +14,7 @@ def getValue(jFile, key):
 		raise ValueError(f'"{key}" is prolly not a valid key')
 
 def getRandomMemes(number):
-	articleBlock = f'# All Ur Meemz R Belog to Uz\nLast Updated {dt.now().strftime("%m.%d.%Y-%H:%M:%S")}<br><br>All credits to ebaumsworld.com\n\n'
+	articleBlock = f'# All Ur Meemz R Belog to Uz\nLast Updated {dt.now().strftime("%m.%d.%Y-%H:%M:%S")}<br>All credits to ebaumsworld.com\n\n'
 	print('yolo yolo')
 	for x in range(number + 1):
 		# Generate random number provided it has not been used before

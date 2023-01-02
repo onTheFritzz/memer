@@ -20,7 +20,7 @@ class baumerSpider(scrapy.Spider):
 	def __init__(self):
 		self.start_urls = ['https://www.ebaumsworld.com']
 		logging.getLogger('scrapy').propagate = False
-		self.header = f'# All ur Memes R belog to Uz<br>\nLast updated: {now}\n<br>\n'
+		self.header = f'# All ur Memes R belog to Uz<br>\nLast updated: {now}\n<br>\nAll credits to ebaumsworld.com'
 		self.urlPageStart = 1
 		self.urlPageEnd = 6 # Get memes from page 1 through this number
 		self.articleCounter = 0 # Counter designation for each article/meme dump
