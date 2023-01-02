@@ -1,908 +1,901 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 01.01.2023-16:45:18
+Last Updated 01.01.2023-19:45:18
 
-## <a href="#link1" id="link0">30 Amazing Scientific Discoveries Confirmed In 2016</a>
-1. There are two liquid states of water.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226092.jpg">
+## <a href="#link1" id="link0">38 Funny Pics Reeking With Unbearable Cringe</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437867.png">
 
-2. Sloths almost die every time they poop (which is only once a week), and it looks terrifying.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226093.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437868.png">
 
-3. Scientists have found evidence of a whole bunch of supernovae – when stars explode at the end of their life – that happened in our cosmic neighborhood around 2 million years ago.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226094.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437871.jpg">
 
-4. Ducklings can recognize the concepts of “same” and “different.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226095.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2017/08/18/085535/85441379/6.jpg">
 
-5. It turns out there are actually four species of giraffe, not just one.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226096.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/2017/08/18/085546/85441380/5.jpg">
 
-6. Earth lost enough sea ice this year to cover the entire land mass of India.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226097.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/2017/08/18/085558/85441381/4.jpg">
 
-7. Crows actually have enormous and terrifying ears.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226098.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/2017/08/18/085610/85441382/3.jpg">
 
-8. The first written record demonstrating the laws of friction has been hiding inside Leonardo da Vinci’s “irrelevant scribbles” for the past 500 years.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226099.png">
+8.
+<img src="https://cdn.ebaumsworld.com/2017/08/18/085624/85441383/2.jpg">
 
-9. Cloned animals can age healthily – four clones of the original cloned sheep, Dolly, have lived to old age with no obvious long-term health issues.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226100.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/2017/08/18/085637/85441384/1.jpg">
 
-10. It’s possible to turn carbon dioxide into stone – if you pump it into underground volcanic rocks in Iceland.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226101.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437869.jpg">
 
-11. Artificial Intelligence can beat humans at Go.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226102.jpeg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437870.jpg">
 
-12. Gravitational waves are real. More than 100 years after Einstein first predicted them, researchers finally detected the elusive ripples in space time this year. We’ve now seen three gravitational wave events in total.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226103.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437872.png">
 
-13. There’s a giant, 1.5-billion-cubic-metre (54-billion-cubic-foot) field of precious helium gas in Tanzania.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226104.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437873.jpg">
 
-14. Human penises might have lost their baculum, aka penis bone, when our species became monogamous.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226105.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437874.png">
 
-15. Earth has a second mini-moon orbiting it, known as a ‘quasi-satellite’. It’s called 2016 HO3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226106.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437875.jpg">
 
-16. There are strange, metallic sounds coming from the Mariana Trench, the deepest point on Earth’s surface. Scientists currently think the noise is a new kind of baleen whale call.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226107.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437876.png">
 
-17. It was probably soot that killed the dinosaurs.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226108.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437877.png">
 
-18. One third of the planet can no longer see the Milky Way from where they live.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226109.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437878.jpg">
 
-19. There might be a ninth planet in our Solar System (no, Pluto doesn’t count).
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226110.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437879.png">
 
-20. The North Pole is slowly moving towards London, due to the planet’s shifting water content.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226111.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437881.jpg">
 
-21. A revolutionary new type of nuclear fusion machine being trialled in Germany really works, and could be the key to clean, unlimited energy.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226112.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437882.png">
 
-22. Pear-shaped atomic nuclei exist, and they make time travel seem pretty damn impossible.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226113.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437884.png">
 
-23. Pluto’s atmosphere is more compact and cold than we previously thought.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226114.jpg">
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437885.jpg">
 
-24. The largest known prime number is 274,207,281– 1, which is a ridiculous 22 million digits in length. It’s 5 million digits longer than the second largest prime.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226115.jpg">
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437886.jpg">
 
-25. There’s an Earth-like planet just 4.2 light-years away in the Alpha Centauri star system – and scientists are already planning a mission to visit it.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226116.jpg">
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437887.jpg">
 
-26. Some of the biggest and clearest diamonds probably formed in liquid metal hundred of miles below the surface of Earth.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226117.jpg">
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437888.jpg">
 
-27. Some red squirrels in Britain carry a strain of leprosy seen in humans in the Middle Ages.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226118.jpg">
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437889.png">
 
-28. Cod might have regional accents.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226119.jpg">
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437890.jpg">
 
-29. The Antarctic ozone hole is finally showing signs of healing, nearly 30 years after the Montreal Protocol came into effect.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226120.jpg">
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437891.png">
 
-30. Tardigrades are so indestructible because they have a built-in toolkit to protect their DNA from damage. These tiny creatures can survive being frozen for decades, can bounce back from total desiccation, and can even handle the harsh radiation of space.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226121.jpg">
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437892.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437893.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437894.png">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437895.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437896.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437898.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437900.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437901.png">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437902.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">Not Another Batch of Tweets Sh*tting on Celebs</a>
-1. Do you think doing BLUE CHECKS makes you cool??
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035233/87303011/check.jpg">
+## <a href="#link2" id="link1">15 Car Roasts That Burn To The Core</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280619.jpg">
 
-2. The jokes write themselves at this point. There's no stopping him.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035234/87303012/cannon.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280614.jpg">
 
-3. Imagine not know this photo existed.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035242/87303014/durag.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280621.jpg">
 
-4. Never heard of 'em.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035245/87303015/acdc.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280616.jpg">
 
-5. You know it's a dire situation when Chili's tweets about it.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035238/87303013/chilis.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280617.jpg">
 
-6. This is fine. This is totally fine.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035253/87303016/elon.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280618.jpg">
 
-7. Whoever designed these jerseys knew exactly what they were doing.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035257/87303017/hornet.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280620.jpg">
 
-8. Fetterman is an absolute unit.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035304/87303018/fetterman.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280615.jpg">
 
-9. I mean...they're not wrong.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035305/87303019/lakers.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280622.jpg">
 
-10. Someone check on McDonald's. Are they okay?
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035306/87303020/mac.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280623.jpg">
 
-11. I'm not mad. I'm jealous.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035308/87303021/mariah.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280624.jpg">
 
-12. Sarah freaks me TF out.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035322/87303025/sarah.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280625.jpg">
 
-13. Twitter is a raging dumpster fire.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035311/87303023/mario.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280626.jpg">
 
-14. Spitting image.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035315/87303024/oz.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280627.jpg">
 
-15. Slim Biden or Joe Shady?
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035309/87303022/jiden.jpg">
-
-16. The conspiracy continues.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035325/87303026/taylor.jpg">
-
-17. No way Thursday Night Football comes back next year.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035333/87303027/tnf.jpg">
-
-18. Oh, Thanks Mark.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035338/87303028/zuck.jpg">
-
-19. Miley FTW.
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035340/87303029/miley.jpg">
-
-20. Oh Zac, what is going on my dude?
-<img src="https://cdn.ebaumsworld.com/2022/11/10/035342/87303030/zac.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280628.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">The Most Brutal Comebacks People Have Ever Heard </a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141377.png">
+## <a href="#link3" id="link2">25 Messed Up Facts You Didn't Know About Mother Teresa</a>
+1. A "devil's advocate" was a person sanctioned by the Vatican to argue against the canonization of a potential new saint by pointing out their flaws and critically evaluating their miracles. Christopher Hitchens served as a devil's advocate for Mother Teresa.
+
+-u/FinkleIsEeinhorn
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223696.png">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141378.png">
+2. For 60 years, Mother Teresa wrote letters to her confessors and spiritual advisors. Appealing to the secrecy of confessionals, she asked that these letters were to be destroyed. 10 years after her death all her letters were published in a book that became a NY Times Bestseller.
+
+-u/EZ_does_it
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223697.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141379.png">
+3. Rapper MIA declined a spot on People's world's most beautiful people list because Mother Teresa never made the list.
+
+-u/halfmile
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223698.png">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141380.png">
+4. There have been 8 Honorary American citizens and only Winston Churchill and Mother Teresa were given the honor while they were alive.
+
+-u/LoyalMongo
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223699.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141381.png">
+5. An exorcism was performed on Mother Teresa.
+
+-u/mpirovano
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223700.png">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141382.png">
+6. Mother Teresa doubted the presence of God, saying that she "felt no presence of God whatsoever."
+
+-u/Qaher-313
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223701.png">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141383.png">
+7. Mother Teresa was anything but a saint, she withheld aide from the sick and poor stating: "There is something beautiful in seeing the poor accept their lot, to suffer it like Christ's Passion. The world gains much from their suffering."
+
+-u/harlequinrose
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223702.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141384.png">
+8. Born in 1910 in Skopje, Macedonia. Her name was Agnes Gonxha Bojaxhiu but you know her as St. Theresa of Calcutta (Mother Teresa).
+
+-u/dusky-jewel
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223703.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141385.png">
+9. People believed she ran an actual hospice, organized to allow the terminally ill to die in as little pain as possible. But it was not a hospice and people dying of cancer were denied anything stronger than aspirin and ibuprofen, and even when a patients clearly needed surgery they were refused hospital treatment. She bathed in human suffering.
+
+-B0BA_F33TT
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223704.png">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141386.png">
+10. Mother Teresa rather wanted to spread her fundamentalist ideas than actually help people. Which includes a lot of repression for many women.
+
+-Doctormimmi
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223705.png">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141387.png">
+11. Mother Teresa singled out abortion as 'the greatest destroyer of peace in the world'.
+
+-u/Raami0z
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223706.png">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141388.png">
+12. According to Dr. Tarun Praharaj, a cardiologist who treated Mother Teresa after suffering a massive heart attack in 1993. She would refuse to take her medicine and say, "I am well. I want to go home. I have a lot of work to do".
+
+-deleted user
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223707.png">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141389.png">
+13. In 1997 Life Magazine named the war-hero horse, Reckless, among history's heroes along with George Washington and Mother Teresa.
+
+-u/olagon
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223708.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141390.png">
+14. John Paul II is thought to have asked Mother Teresa if she wanted to be a cardinal. She declined.
+
+-u/stayfun
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223709.jpeg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85141391.png">
+15. Despite taking billions of dollars in donations, her famed "Homes for the Dying" provided egregiously sub-standard care, and she, despite having the financial resources to do so after gaining notoriety, refused to give the dying for whom she was caring ANY form of pain killers, as she thought it was a holy experience to endure pain. She would tell her patients things like their pain meant that "Jesus was kissing them."
+
+-u/ExistentialEnso
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223710.jpg">
+
+16. Sarkis Soghanalian, the Cold War's largest arms dealer, nicknamed the Merchant of Death, once received a letter from Mother Teresa stating that God would reward him and his family's efforts a hundredfold.
+
+-u/u/Azonata
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223711.jpeg">
+
+17. During the Seige of Beirut, Mother Teresa brokered a temporary cease-fire between the Israeli army and Palestinian guerillas so she could rescue 37 children trapped in a front-line hospital.
+
+-u/Pilpit
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223712.jpg">
+
+18. Mother Teresa of Calcutta was neither from India nor Indian. She was born in what is now Macedonia and was ethnically Albanian.
+
+-u/DontWantToSeeYourCat
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223713.jpg">
+
+19. Mother Teresa once suggested that AIDS might be a just retribution for improper sexual conduct.
+
+-u/KaliMaaaa
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223714.jpg">
+
+20. Mother Teresa once advocated for a priest's return to ministry, despite knowing that he was removed for raping a boy. Eight more charges later emerged, and the priest was arrested in 2005.
+
+-deleted user
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223715.png">
+
+21. The Eclipsed Celebrity Death club is a group made up of celebs who died at the same time as even more famous celebrities. Members include Mother Teresa, who died around the time of Princess Diana, and British writers CS Lewis and Aldous Huxley, who died the day that JFK was shot.
+
+-u/vrlyons
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223716.jpg">
+
+22. Members of Mother Teresa's order would secretly baptize dying patients of other religions. Patients were asked if they wanted a 'ticket to heaven'. While pretending to cool the patients forehead, words were quietly recited and the ceremony performed.
+
+-u/gmcl86
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223717.jpg">
+
+23. Mother Teresa's supposed "miracle cure" of a woman's abdominal tumor was not a miracle at all. The patient's doctors and husband said she was cured because she took medicine for 9-12 months. "My wife was cured by the doctors and not by any miracle."
+
+-u/mepper
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223718.jpg">
+
+24. When Charles Keating was on trial, Mother Teresa sent the judge a letter asking him to do what Jesus would do. An attorney wrote back to explain how Keating stole money from others and suggested that she return Keating's donation to the victims ... as Jesus would surely do. She never replied.
+
+-u/photolouis
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223719.jpg">
+
+25. The face of Mother Teresa was claimed to have been identified in a cinnamon bun at Bongo Java in Nashville, Tennessee in 1996. Dubbed the "Nun Bun" by the press, it was turned into an enterprise by the company. On 25 December 2005 the bun was stolen during a break-in at the coffee house.
+
+-u/garamond89
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223720.png">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">Feed Your Brain With These 13 Fascinating Facts</a>
-1. André the Giant has successfully held the record for the most Beer consumed in a single sitting for the last 40 years. During a six-hour period back in 1976, André drank 119 standard 12 ounce brews in a pub in Pennsylvania
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453819.jpg">
+## <a href="#link4" id="link3">25 Friday Facepalms of Foolishness</a>
+1.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041208/87256809/FPs7.png">
 
-2. Cotard Delusion is a rare mental illness that makes a person believe that he is already dead and has lost all his blood and internal organs.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453820.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041159/87256803/FPs3.png">
 
-3. In classical Athens each year, the citizens could vote to banish any person who was growing too powerful and becoming a threat to democracy. The process was called “ostracism.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453821.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041201/87256805/FPs4.png">
 
-4. There is a semi-secret, underground city in Las Vegas filled with around a thousand inhabitants.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453822.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041200/87256804/FPs2.png">
 
-5. Three men known as the Chernobyl “Suicide Squad” volunteered for a suicide mission days after the Chernobyl disaster. They waded through water underneath a leaking reactor to release the safety valves and prevent a chain reaction of nuclear explosions. They saved 50% of Europe from being wiped out.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453823.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041203/87256807/FPs5.png">
 
-6. After the Siege of Leningrad was broken, the Soviets wanted to prosecute those who had resorted to cannibalism. However, so many were accused (over two thousand) that the NKVD had to divide them into two groups; ‘corpse-eating’ and ‘person-eating’. The former were jailed, that later were shot
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453824.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041205/87256808/FPs1.png">
 
-7. North Korea once kidnapped a famous South Korean film director to create Fantasy films for the North Korean Government. Kim Jong-Il was a lifelong admirer of Godzilla and together, they made a North Korean version of it called “Pulgasari”.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453825.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041212/87256811/FPs9.png">
 
-8. Jack Nicholson grew up thinking his grandmother was his mother and his mother was his sister. He was an illegitimate child, and his mother was 18 years old when she gave birth.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453826.jpg">
+8. Thanks for the AC installation guys.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041213/87256812/FPs8.png">
 
-9. The Chinese were the first to invent paper money in the 7th century
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453827.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041215/87256813/FPs11.png">
 
-10. In 1923, Germany’s hyperinflation was so bad that the exchange rate rose from 9 marks to 4.2 trillion marks for $1. The cost of a single loaf of bread rose to 2 trillion marks, and people used to burn money to stay warm because it was cheaper than buying wood.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453828.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041216/87256814/FPs10.png">
 
-11. Mozart’s sister, Maria Anna Mozart, was a musical genius just like her brother and sometimes received top billing over her brother when they toured as children. But once she became a marriageable age, her parents forced her to stop performing and settle down.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453829.jpg">
+11. Is this the worst condition a box has ever shown up on a delivery?
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041218/87256815/FPs12.png">
 
-12. Prince Harry took a HIV test live on July 14, 2016 to show how easy it is. It was hailed as a “groundbreaking moment in the fight against HIV.” HIV awareness group THT has reported a 5 fold increase in the number of orders of HIV self-tests since the prince’s broadcast.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453830.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041219/87256816/FPs13.png">
 
-13. During the final months of World War II, Japan planned to use plague as a biological weapon against U.S. civilians in San Diego, California, hoping that the plague would spread as much terror to the American population. Japans surrender came only 5 weeks before the plan was to be executed
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453831.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041221/87256817/FPs14.png">
+
+14.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041223/87256818/FPs15.png">
+
+15.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041224/87256819/FPs16.png">
+
+16.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041226/87256820/FPs17.png">
+
+17. The look on the pilot’s face.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041228/87256821/FPs18.png">
+
+18.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041230/87256822/FPs20.png">
+
+19.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041232/87256823/FPs19.png">
+
+20.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041210/87256810/FPs6.png">
+
+21.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041233/87256824/FPs21.png">
+
+22.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041235/87256825/FPs22.png">
+
+23. Tourist lady shaking the bridge for 30 minutes, breaking the railing.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041238/87256827/FPs25.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041239/87256829/FPs23.png">
+
+25.
+<img src="https://cdn.ebaumsworld.com/2022/08/25/041241/87256831/FPs26.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">25 Fascinating Facts Abut the French Revolution </a>
-1. In the years preceding the French Revolution, the price of bread went from costing about 50% of a laborer's daily wages to about 88% of their income.
- 
--u/DigbyChickenZone
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221408.jpg">
+## <a href="#link5" id="link4">25 Bits of Nostalgia That Make You Long For Childhood</a>
+1. You knew it was gonna be a good day when you walk into PE class and see that huge colorful parachute.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216327.jpg">
 
-2. In 1429, King Charles VII of France exempted the town of Domrémy from paying taxes "forever", after a promise to Joan of Arc. Taxes were imposed again during the French Revolution.
- 
--u/nunped
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221409.jpg">
+2. That feeling of limitless freedom on the first day of summer vacation. That feeling of dreaded anticipation on the last day of summer vacation.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216325.jpg">
 
-3. During the French Revolution, Adrienne de La Fayette, the wife of Marquis de La Fayette, was imprisoned. However, before her planned execution, Elizabeth Monroe, the wife of Future President James Monroe, intervened. Not wanting to cut ties with James Monroe, France did not execute her.
- 
--u/Pres-John-F-Kennedy
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221410.jpg">
+3. Each sold separately. Batteries not included.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216323.jpg">
 
-4. Lafayette, from the American and French Revolution, was born Marie-Joseph Paul Yves Roch Gilbert du Montier de La Fayette. He joked, "It's not my fault. I was baptized like a Spaniard, with the name of every conceivable saint who might offer me protection in battle."
- 
--u/Axette
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221411.jpg">
+4. That feeling when you are going as high as you can go on the swings. Power? Freedom? Hard to describe.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216307.jpg">
 
-5. The "national bathtub" was a mass execution during the French Revolution when thousands of suspected royalists were drowned in the river Loire. At first, the perpetrators carried the drownings at night to avoid suspicion, but the dozen of floating bodies in the following days gave them away.
- 
--u/piponwa
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221412.jpg">
+5. Conjunction Junction.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216308.jpg">
 
-6. Statues of biblical kings, located on the west facade of the Notre-Dame de Paris, were decapitated during the French Revolution because they were mistaken for statues of French kings.
- 
--u/JetsLag
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221413.jpg">
+6. Getting up in the morning on a day it snowed to watch the list of closed schools across the bottom of the news/weather channel, hoping your school was closed.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216309.jpg">
 
-7. During the French Revolution, many medieval tapestries were destroyed, with some being melted down to extract gold or silver. The famous Apocalypse Tapestry was cut up and became floor mats, tree covers, patches, and insulation. Surviving fragments were rediscovered in 1848 and returned in 1870.
- 
--u/jamescookenotthatone
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221414.jpg">
+7. An eraser that looks and smells like a very fake strawberry.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216312.jpg">
 
-8. The Titus cut, a female haircut that became popular during the French Revolution, was inspired by the way executioners would cut the hair of people going to the guillotine. A red ribbon could also be worn around the neck to further symbolize the guillotine victims.
- 
--u/dilettantedebrah
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221415.jpg">
+8. Chinese finger traps.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216313.jpg">
 
-9. The French Revolution gave us the metric system and almost gave us metric clocks, too. They had 10 hours in the day, 10 days in the week, and even 30 days each month.
- 
--u/gedaliyah
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221416.jpg">
+9. Flintstones push pop ice creams.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216314.jpg">
 
-10. The famous Madame Tussaud started out in Paris during the French Revolution. Marie Tussaud used to make 'death masks' of famous people whose heads had been chopped by the Guillotine. She went on tour to Britain for 30 years with her collection before setting up her waxworks in London.
- 
--deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221417.jpeg">
+10. Waking up super early on Saturday morning before the rest of the family to watch cartoons.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216315.jpg">
 
-11. The man who invented the modern theory about oxygen and combustion, Antoine Lavoisier, was guillotined in 1794 during the French Revolution.
- 
--u/DannyABoi
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221418.jpg">
+11. Watching 'The Price Is Right' when you were sick at home.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216316.jpg">
 
-12. A Frenchman known as Richebourg, who measured 58 cm (1' 11") as an adult, was employed by the aristocracy to act as a secret agent during the French Revolution, dispatching messages into and out of Paris, whilst disguised as an infant and carried by his 'nurse.'
- 
--u/malalatargaryen
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221419.png">
+12. Nick nick nick nick na nick nick nick Nickelodeon.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216317.jpg">
 
-13. During the French Revolution, Catholicism was briefly replaced by the Cult of Reason. Notre Dame’s altar was dismantled and replaced by an altar to Liberty and “To Philosophy” inscribed above its doors. The Festival of Reason had girls in Roman costumes, impersonating the Goddess of Reason.
- 
--u/AnAppariti0n
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221420.jpg">
+13. You have died of dysentery.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216318.jpg">
 
-14. French writer Alexandre Dumas ( The Count of Monte Cristo, The Three Musketeers) was a black man. And his father was a black general during the French Revolution known as "Black Devil" or Diable Noir, standing as one of the highest-ranking men of African descent.
- 
--u/Kkaren1989
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221421.png">
+14. Those candy necklaces.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216319.jpg">
 
-15. Thomas de Mahy was an aristocrat who was sentenced to be hanged during the French Revolution after a two-month trial. Upon the reading of his death warrant, he remarked, "I see that you have made three spelling mistakes."
- 
--u/Tokyono
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221422.jpg">
+15. Eating one of those plastic-wrapped ice pop things after a long day of playing outside in your backyard with your friends.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216320.jpeg">
 
-16. American revolutionary Thomas Paine served as a Deputy on the French National Assembly during the French Revolution and was nearly executed during the Reign of Terror.
- 
--u/DragonOfTheNorth98
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221423.jpg">
+16. Scholastic book fairs.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216321.jpg">
 
-17. Charles-Henri Sanson was Master Executioner under King Louis XVI and was responsible for executing 2,918 people. In April of 1792, Sanson became the first executioner to use the guillotine: less than a year later, he would use it on King Louis XVI himself during the French Revolution.
- 
--u/WouldbeWanderer
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221424.png">
+17. The tingle of a skinned knee from asphalt, and the dread of having it cleaned.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216322.jpg">
 
-18. In 1783, an Icelandic volcano (Laki) erupted over 8-months spewing poisonous sulfur dioxide across the Northern Hemisphere. It lead to some of the worst winters on record with mass crop failures, famine, and disease, and is said to have been the trigger for the French Revolution.
-
--u/asherfergusson
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221425.jpg">
+18. The noise when picking up the phone when someone was surfing the web.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216324.jpg">
 
-19. The Dome De Invalides was used as a temple to Mars during the French Revolution.
- 
--u/Falcon_Gray
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221426.jpg">
+19. That sound of a door opening and shutting on AIM when your friend logs on.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216310.jpg">
 
-20. During the Reign of Terror in the French revolution (between June 1793 and July 1794), 17,000 people were guillotined -- an average of over 40 people per day.
- 
--u/JJvH91
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221427.jpg">
+20. Movies and video games on channel 3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216326.jpg">
 
-21. When French activist, feminist, and playwright Olympe de Gouges wrote "Declaration of the Rights of women and the Female Citizen" in 1791, in response to the "Declaration of the Rights of Men" of 1789 which came after the French Revolution; she was accused of treason and executed.
- 
--u/PoetryAnxietyTherapy
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221428.jpg">
+21. Sleepovers with a group of friends.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216328.jpg">
 
-22. “Right-wing" and "left-wing" labels originated from the French Revolution, in which anti-royalists sat on the left of the French National Assembly hall and pro-royalty sat on the right.
- 
--u/Indoh_
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221429.jpg">
+22. When you'd watch a VHS and it would say, "And now your feature presentation."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216311.jpg">
 
-23. The French Revolution played a major role in the development of pornography. It was used as a political tool to mock political leaders and subsequently lead to the first pornographic film ever being made, titled "A L’Ecu d’Or ou la bonne auberge" in 1908.
- 
--u/operator139
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221430.jpg">
+23. Blockbuster. The smell. The smell of that place was unique and still lingers in a very dusty space of my brain.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216329.jpg">
 
-24. One of the selling points for introducing the guillotine during the French Revolution was equality - commoners could now enjoy the comparatively quick and painless death of decapitation just like the nobility, and would no longer have to endure brutal deaths such as those caused by hanging.
- 
--u/I_notta_crazy
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221431.jpg">
+24. Light Bright. I barely remember it myself but you’d take a charcoal-black board and poke different colored pegs through it. You plug it in to the electrical outlet and all the pegs light up creating whatever shape you made in lights.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216330.jpg">
 
-25. Marie Antoinette, the Queen of France during the French Revolution, never said "Let them eat cake."
- 
--u/ItzSnapter
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87221432.jpg">
+25. The TV Guide channel. You had to sit through and watch as the channels slowly went by so we could see what was on. It blew getting distracted by the infomercial in the corner and then realizing you barely just missed what you were waiting for so had to wait for it to start all over.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216331.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">28 Great Pics to Improve Your Mood</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322952.jpg">
+## <a href="#link6" id="link5">20 Of The Most Sadistic Torture Methods Ever Devised</a>
+1. HANGED, DRAWN AND QUARTERED.
+
+During medieval times, the penalty for high treason in England was to be hanged, drawn and quartered in public and though it was abolished in 1814, it has been responsible for the death of thousands of people. In this torture technique, the victim is dragged in a wooden frame called a hurdle to the place of execution. They would then be hanged by the neck for a short period of time until they are near-death (hanged), followed by disembowelment and castration where the entrails and genitalia are burned in front of the victim (drawn). The victim would then be divided into four separate parts and beheaded (quartered).
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274016.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322953.jpg">
+2. THE BRAZEN BULL.
+
+Also known as the Sicilian Bull, it was designed in ancient Greece. A solid piece of brass was cast with a door on the side that could be opened and latched. The victim would be placed inside the bull and a fire set underneath it until the metal became literally yellow as it was heated. The victim would then be slowly roasted to death all while screaming in agonizing pain. The bull was purposely designed to amplify these screams and make them sound like the bellowing of a bull.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274017.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322954.jpg">
+3. SAW TORTURE.
+
+In this method, the victim is hung upside down, so that the blood will rush to their heads and keep them conscious during the long torture. The torturer would then saw through the victims’ bodies until they were completely sawed in half. Most were cut up only in their abdomen to prolong their agony.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274018.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322956.jpg">
+4. THE CHAIR OF TORTURE.
+
+Also known as the Judas Chair, it was a terrible, intimidating torture device that was added to dungeons in the Middle Ages. Used until the 1800′s in Europe, this chair was layered with 500 to 1,500 spikes on every surface with tight straps to restrain its victim. Made of iron, it can also contain spaces for heating elements beneath the seat. It was often used to scare people into giving confessions as they watched others being tortured on the device.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274019.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322957.jpg">
+5. THE RACK. 
+
+Is a torture device consisting of a rectangular, usually wooden frame, slightly raised from the ground, with a roller at one or both ends. The victim’s ankles are fastened to one roller and the wrists are chained to the other. As the interrogation progresses, a handle and ratchet mechanism attached to the top roller are used to very gradually increase the tension on the chains, inducing excruciating pain. By means of pulleys and levers this roller could be rotated on its own axis, thus straining the ropes until the sufferer’s joints were dislocated and eventually separated. Additionally, if muscle are stretched excessively, they lose their ability to contract, rendering them ineffective. One gruesome aspect of being stretched too far on the rack is the loud popping noises made by snapping cartilage, ligaments or bones.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274020.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322958.jpg">
+6. BREAST RIPPER.
+
+Known in another form as the Iron Spider or simply the spider, was a torture instrument mainly used on women who were accused of adultery, or self-abortion. The instrument was designed to rip the breasts from a woman and was made from iron, which was usually heated. The tool was used popularly in the Free State of Bavaria, a state in Germany, in 1599, and in parts of Germany and France until the nineteenth century.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274021.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322959.jpg">
+7. TONGUE TEARER.
+
+Looking like an over sized pair of scissors, it could effortlessly cut the victim’s tongue. Their mouth would be forced opened with a device called a mouth opener, and then the iron tongue tearer would uncomfortably twitch the tongue with its rough grippers. Once a firm hold was maintained, the screw would be firmly tightened and the victim’s tongue would roughly be torn out.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274022.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322960.jpg">
+8. IRON MAIDEN.
+
+This torture device consisted of an iron cabinet with a hinged front and spike-covered interior, sufficient enough to enclose a human being. Once inside its conical frame, the victim would be unable to move due to the great number of steel spikes impaling them from every direction. The interrogator would scream questions at the victim while poking them with jagged edges.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274023.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322961.jpg">
+9. STRAPPADO.
+
+The Strappado is a form of torture in which the victim’s hands are first tied behind his or her back and suspended in the air by means of a rope attached to wrists, which most likely dislocates both arms. Weights may be added to the body to intensify the effect and increase the pain. Other names for strappado include “reverse hanging” and “Palestinian hanging” (although it is not used by the Palestinian Authority) It is best known for its use in the torture chambers of the medieval Inquisition.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274024.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322962.jpg">
+10. WOODEN HORSE/SPANISH DONKEY.
+
+One of the torture devices during the Spanish Inquisition and medieval ages, this is probably one of the most gruesome of them all. The victim is put astride, naked, on a donkey-like apparatus, which is actually a vertical wooden board with a sharp V-wedge on top of it. After that, the torturer would add varying weights to the victim’s feet until finally the wedge sliced through the victim’s body.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274025.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322963.jpg">
+11. PEAR OF ANGUISH/CHOKE PEAR.
+
+The pear of anguish or choke pear is the modern name for a type of instrument displayed in some museums, consisting of a metal body (usually pear-shaped) divided into spoon-like segments that could be spread apart by turning a screw. The museum descriptions and some recent sources assert that the devices were used either as a gag, to prevent people from speaking, or internally as an instrument of torture.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274026.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322964.jpg">
+12. JUDAS CRADLE.
+
+The victim would presumably be placed in the waist harness above the pyramid-shaped seat, with the point inserted into their an*s or v*gin*, then very slowly lowered by ropes. The subject is tortured by intense pressure and stretching of the orifice, eventually succumbing to tears in muscle tissue that could turn septic and kill from infection, or simply being impaled.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274027.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322966.jpg">
+13. NECK TORTURE.
+
+Humiliating and painful, this punishment was something of an endurance test where the victim would be hooked into a neck device, either made of metal or wood, which prevented the victim from adjusting into a comfortable position. The cruelty of this punishment lie within the fact that they were unable to lie down, eat, or lower their head for days.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274028.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322967.jpg">
+14. HERETIC’S FORK.
+
+The device was placed between the breast bone and throat just under the chin and secured with a leather strap around the neck, while the victim was hung from the ceiling or otherwise suspended in a way so that they could not lie down.Usually the Heretic’s fork was given to people who spoke the lord’s name in vain, blasphemers, or liars. This way, the punishment made it nearly impossible for them to talk. Also, a person wearing it couldn’t fall asleep. The moment their head dropped with fatigue, the prongs pierced their throat or chest, causing great pain. This very simple instrument created long periods of sleep deprivation. People were awake for days, which made confessions more likely.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274029.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322968.jpg">
+15. BREAKING WHEEL/ CATHERINE WHEEL.
+
+Was a torture device used for capital punishment from Antiquity into early modern times for public execution by breaking the criminal’s bones/bludgeoning him to death. As a form of execution, it was used from “Classical” times into the 18th century; as a form of post mortem punishment of the criminal, the wheel was still in use into 19th century Germany.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274030.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322969.jpg">
+16. COFFIN TORTURE.
+
+The most preferred torture technique in the Middle Ages was known as coffin torture. This method involved placing the victim inside a metal cage roughly the size of the human body; hence the name. The torturers also forced overweight victims into smaller cages to heighten their discomfort as they hung from a tree or gallows. Generally, they would be left there until the crows came to feed on their remains.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274031.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322970.jpg">
+17. SPANISH TICKLER/ CAT’S PAW.
+Is a type of torture instrument, consisting of long, sharp iron spikes curved so as to resemble claws. It was often attached to a handle, or else used as an extension of the torturer’s hand. In this way it was used to rip and tear flesh away from the bone, from any part of the body. It was also used as a weapon. This device was commonly used on thieves and unfaithful wives. Most who were tortured in this manner died not at the time, but afterwards. Especially with the Cat’s Paw, the device would cause infections as the device would cut so deep. The prongs were nearly never washed, so the chances of these infections were very high.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274032.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322971.jpg">
+18. KNEE SPLITTER.
+
+The knee splitter was a form of torture used mainly during the inquisition. It was created from two spiked wood blocks, placed in front of, and behind the knee. The blocks were connected with two large screws. When turned, the blocks would close towards each other, destroying the knee underneath them. This method was used to render the knees useless. The number of spikes on the blocks would range from three to twenty, depending on the captive.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274033.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322972.jpg">
+19. HEAD CRUSHER. 
+This metal device featured a plate that sat below the victim’s jaw, which was connected by a frame to the head cap. As the torturer slowly twisted the handle, the gap between the head cap and plate decreased in width, causing crushing of the skull and facial bones, including teeth and jaws, and ultimately inducing death; even if the torturer stopped before death, permanent damage to the facial muscles and structure would occur. The victim’s head would slowly be crushed, killing the victim, but not before the victim’s jaw had been crushed, and their eyes had popped from their socket.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274034.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322973.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322974.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322975.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322976.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322977.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322978.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322979.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322980.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85322981.jpg">
+20. IMPALEMENT.
+
+Given his name, it should come as no surprise that this was the most favored method of execution by Vlad the Impaler. In 15th century Romania; the victim was forced to sit on a sharp and thick pole. When the pole was then raised upright, the victim was left to slide down the pole with their own weight. It could take the victim 3 days to die using this method and it has been said that Vlad once did this to 20,000 people all while enjoying a meal.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274035.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">25 Disturbing and Cringeworthy Facts</a>
+## <a href="#link7" id="link6">24 Carrie Fisher Photos - To Our Beloved Princess Leia</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366012.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225449.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366013.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225448.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366014.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225443.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366015.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225437.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366016.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225438.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366017.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225444.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366018.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225439.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366019.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225441.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366020.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225442.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366021.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225446.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366022.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225450.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366023.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225445.jpeg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366024.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225440.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366025.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225451.jpeg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366026.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225452.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366027.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225453.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366028.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225455.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366029.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225457.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366030.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225454.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366031.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225461.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366032.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225459.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366033.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225436.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366034.jpg">
+23. Rest In Peace.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225447.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366035.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2358204/85366036.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225456.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">Pictures That Will Make You Think</a>
+## <a href="#link8" id="link7">25 Funny Trump Inauguration Memes</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091349.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245585.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091350.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245586.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091351.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245587.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091352.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245588.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091353.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245591.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091354.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245589.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091355.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245590.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091356.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245592.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091357.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245593.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091358.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245595.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091359.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245594.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091360.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245596.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091361.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245597.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091362.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245601.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091363.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245599.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091364.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245600.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091365.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245602.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091366.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245603.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091367.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/20/034815/85245605/822519260429709312-png__700.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091368.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245604.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091369.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/20/034828/85245606/822487672824401921-png__700.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091370.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/20/034856/85245608/822468024649338880-png__700.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091371.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/20/034842/85245607/822478866035986435-png__700.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091372.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/20/034909/85245609/822482101396193280-png__700.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/2017/01/20/034922/85245610/822464550398296069-png__700.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">23 Fascinating Facts That Will Make Your Day Interesting</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328190.jpg">
+## <a href="#link9" id="link8">Douche Bag Freaks Out On Tinder Date After She Doesn't Respond Quick Enough</a>
+1. Meet Nick, your average douchebag. Nick wants to meet women online but he has a bit of a temper. Don't be like Nick.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282625.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328191.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282630.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328192.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282627.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328193.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282629.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328197.jpg">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328198.jpg">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328199.jpg">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328200.jpg">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328201.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328196.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328195.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328203.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328204.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328205.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328206.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328207.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328194.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328202.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328208.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328209.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328210.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328211.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85328212.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282628.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">This 90's Themed Mansion Is Like A Perfectly Preserved Time Capsule</a>
-1. This Waterford, Michigan mansion is for sale, and it’s got an awesome secret – it’s a throwback to the 90’s inside.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447229.jpg">
+## <a href="#link10" id="link9">15 Life Hacks That Will Make Your Stupid Body Work Better</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375383.jpg">
 
-2. And it can be yours for just $799,000.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447230.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375384.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447231.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375385.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447232.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375386.jpg">
 
-5. It’s includes an indoor swimming pool, six bedrooms, six full bathrooms, a media room and waterfront views.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447233.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375387.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447234.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375388.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447235.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375389.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447236.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375390.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447237.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375391.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447238.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375392.jpg">
 
-11. The Waterford mansion was appraised for just under $2 million, but it could be yours for just over $800,000 thanks to its less than desirable color scheme.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447239.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375393.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447240.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375394.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447241.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375395.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447242.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375396.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447243.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447244.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447245.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447246.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447247.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447248.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447249.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447250.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447251.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447252.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447253.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447254.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447255.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447256.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447257.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447258.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447259.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447260.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447261.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447262.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447263.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447264.jpg">
-
-37. Removing the turquoise and lavender 90's-esque decor could cost the buyer upwards of $500,000, but think of the endless possibilities!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85447265.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375397.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">Guy Perfectly Recreates Iconic Madonna Photos With Dog</a>
+## <a href="#link11" id="link10">32 Savage Memes That Will Make You Say 'Oh Shit'</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121003/87266236/madonna1.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310551.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/120959/87266233/madonna2.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310546.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121010/87266241/madonna9.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310547.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121017/87266246/madonna10.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310549.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121001/87266234/madonna3.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310548.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121002/87266235/madonna4.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310550.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121008/87266239/madonna5.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310553.jpeg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121005/87266237/madonna6.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310555.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121007/87266238/madonna7.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310560.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121009/87266240/madonna8.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310554.jpeg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121012/87266242/madonna11.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310556.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121013/87266243/madonna12.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310552.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121014/87266244/madonna13.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310557.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121016/87266245/madonna14.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310561.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121018/87266247/madonna15.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310562.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121019/87266248/madonna16.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310566.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121032/87266256/madonna17.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310568.png">
 
 18.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121021/87266249/madonna18.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310569.png">
 
 19.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121023/87266250/madonna19.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310572.png">
 
 20.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121024/87266251/madonna20.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310573.png">
 
 21.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121026/87266252/madonna21.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310575.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121027/87266253/madonna22.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310571.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121029/87266254/madonna23.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310570.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/2022/09/09/121030/87266255/madonna24.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310576.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310577.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310579.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310583.png">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310582.png">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310580.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310584.png">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310585.png">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310586.jpg">
 
 
 <a href="#link0">GO TO TOP</a>
