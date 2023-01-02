@@ -1,903 +1,1171 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 01.01.2023-19:45:18
+Last Updated 01.01.2023-21:58:03<br><br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">38 Funny Pics Reeking With Unbearable Cringe</a>
+## <a href="#link1" id="link0">Funny Pictures of Animals That Will Put A Smile On Your Face</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437867.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161829.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437868.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161830.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437871.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161831.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2017/08/18/085535/85441379/6.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161832.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2017/08/18/085546/85441380/5.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161833.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2017/08/18/085558/85441381/4.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161834.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2017/08/18/085610/85441382/3.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161835.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/2017/08/18/085624/85441383/2.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161836.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/2017/08/18/085637/85441384/1.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161837.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437869.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161838.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437870.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161839.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437872.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161840.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437873.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161841.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437874.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161842.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437875.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161843.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437876.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161844.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437877.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161845.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437878.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161846.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437879.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161847.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437881.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161848.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437882.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161849.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437884.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161850.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437885.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161851.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437886.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161852.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437887.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161853.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437888.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161854.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437889.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161855.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437890.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161856.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437891.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161857.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437892.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161858.jpg">
 
 31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437893.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161859.jpg">
 
 32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437894.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161860.jpg">
 
 33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437895.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161861.jpg">
 
 34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437896.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161862.jpg">
 
 35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437898.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161863.jpg">
 
 36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437900.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161868.jpg">
 
 37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437901.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161864.jpg">
 
 38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85437902.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161865.jpg">
 
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161866.jpg">
 
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85161867.jpg">
+
+<a href="https://www.ebaumsworld.com/pictures/-/423/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">15 Car Roasts That Burn To The Core</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280619.jpg">
+## <a href="#link2" id="link1">19 People Share The Most NSFW Thing They've Seen At A Party </a>
+1. Friend hired a prostitute for his bday party and she proceeded to bang any guy who wanted it. None of them even knew, they all thought she was some chick who was visiting from Georgia. They still tell the story like she wasn’t a prostitute.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474353.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280614.jpg">
+2. A stripper whipping my boss with his own belt. I was 15, and this was a McDonald’s staff party.
+The stripper was perfectly normal, not Mayor McCheese or some other nightmarish Maccas character. This wasn’t a strip club, it was held at an employees house as the franchisee forbade us from using the store or hiring an actual venue. Some of the older guys booked her as it had been his birthday recently and he had just worked. We were all drinking, and as she was a private hire nobody got ID’d. Also, you can work at 14 where I live (Australia) and work is exactly what I did.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474354.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280621.jpg">
+3. When I was still in college, I was at a sorority party with my then-girlfriend. A woman (probably a freshman) was on the floor. Ass up, pants and panties to her ankles, funnel in her ass and people were pouring shots in her asshole.
+I was too high, drunk and stupid back then to realize that this could easily have killed her and I just left the room with my gf. Had this happened today, I definitely wouldve intervened, but back then I was just like “woah dude..”
+She lived, so it’s all good.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474355.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280616.jpg">
+4. Watched a guy lose at beer pong and get mad enough that he turned around and punched the first thing he could land his hand on…which turned out to be a window. In the movies, if you break a window, you don’t get hurt. In real life, if you slam your fist through a window, the falling glass cuts you so deep you practically amputate your own hand. There was so much blood that we thought that was what happened. We thought he sliced his hand off. One of the sober partiers rushed him to the hospital while the rest of us just left because the scene involved so much blood and gore that none of us even wanted to party anymore. He ended up ok. Has a gnarly scar for the rest of his life, but at least he didn’t actually lose his hand.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474356.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280617.jpg">
+5. Back in high school, friend had an open house and threw a party, uncle came to “check on us”, and we found him smelling a girls vomit in the bathroom and playing with himself…. That’s one fucked up fetish.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474357.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280618.jpg">
+6. At a party in a huge house on the lake that had a second living room upstairs, walking up the stairs I can hear all this commotion going on. As I enter the room there is this guy smashing a chick on the couch, doggy style, right there in front of everyone. He was getting high fives from other guys and people were just standing around watching and cheering. Well a few years later, I get married and at Thanksgiving dinner with my in-laws when my brother in-law brings his new girlfriend to meet the family. You guessed it, it was her, same girl that was getting smashed on the couch. Well, he ended up getting married to this girl and now every time I see them at a family get together all I can see is the image from that night at the lake.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474358.png">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280620.jpg">
+7. Happened at my house. Girl came over, got wayyyy too drunk took off all her clothes and started masturbating on my stairs and then on the couch and then back on my stairs. Then she fell down said stairs.we tried putting her to bed before all this went doe. But she kept coming back out, each time with less and less clothes on. Eventually we all just kinda ignored her and let her do her thing.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474359.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280615.jpg">
+8. I was at a halloween party in the last year of high school, where two friends of mine had a threesome with a girl in the bathtub while one other girl watched. That’s how my friend lost his virginity.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474360.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280622.jpg">
+9. I once saw a guy shit his pants and then chuck them out the window.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474361.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280623.jpg">
+10. Dude ran to the bathroom, yelled “I gotta shit!” then pulled his pants down, sat his ass on the toilet, and puked on the floor in front of him. Realizing his mistake, he stood up, faced the toilet to puke, and shat on the floor behind him.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474362.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280624.jpg">
+11. Watched a girl drink a beer bottle full of piss. My friend thought it would be hilarious to piss in a bottle and put it in the fridge. A girl who was smashed picked it out the fridge and then drank some. She shouted “THIS TASTES LIKE PISS” then proceeded to take another sip. Never drink an open bottle of beer left in the fridge at a party people!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474363.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280625.jpg">
+12. I’ve been to a couple of parties where a few people decided it would be a good idea to throw decorum to the wind and start fucking in the backyard. Most of us gathered round to watch, but on one occasion, a few others joined in.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474364.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280626.jpg">
+13. Someone did a bump of coke in the bathroom, then took off all his clothes and ran around the house. The reason why the police were called was because this was at a 13-year-olds birthday party.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474365.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280627.jpg">
+14. Had an outside party at an old house of mine where a rando passed out on his side in the middle of the driveway. The 8 or so friends he’d come with all let him sleep and the party continued around him. Eventually someone yells my name and points at the passed out fella who’s managed to get his dick out and start peeing while still on his side. At this point everyone outside has stopped what they were doing to gasp at this turn of events. After a while he begins to slowly lean backwards and the arc of piss gradually goes higher and higher into the air. Finally he makes it all the way onto his back and the angle of his pecker is just right so that the remaining piss hits him right between the eyes. Half the party was disgusted and unimpressed, but the rest had plenty to bond over for the rest of the night.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474366.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85280628.jpg">
+15. Final year of high school, at a party where everyone was really wasted. Like, the stupid drunk you got before you understood limits. Anyone one girl couldn’t handle it anymore, so she pulled her jeans down and started masturbating on the couch in front of everyone. Was dark and I don’t know if everyone really noticed (wasn’t like those videos where everyone stands around cheering) but then the dad who owned the place walked in and it got kind of awkward…
+Good party!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474367.jpg">
 
+16. A cast party for the theater department at my university lead to an orgy (4 guys 5 girls)
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474368.jpg">
 
+17. Some dude passed out in the corner of this apartment party and there was a dude crouched over him trying his hardest to shit on his head. he couldn’t do it so nothing happened but i wondered if i should have told the passed out guy what he tried to do, but then again, if someone tried to shit on my head when i was passed out i wouldn’t want to know about it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474369.png">
+
+18. Went to a topless party in college, as in a party where guys and girls were shirtless. After doing a jello shot off of a stranger’s boobs, I told my friends a few doors down about the party. They arrived just as most of the girls went into a backroom to get high, and a big bearded man decided to show off his Jacob’s ladder by making it a bottomless party.
+My friends didn’t trust me for a while after that.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474370.png">
+
+19. A girl was proud that she could fit a 1.25L coke bottle in her vagina. Everyone was like “Yeah, cool. That’s kind of weird to tell everyone” and everyone carries on.
+About 3 hours later everyone is fucked up and the party is getting a bit weird – some people had taken acid, some had dropped some mdma caps, some were smoking weed, standard stuff.
+This girl is off her face on mdma and is adamant about wanting to show everyone how cavernous her vagina is. So she takes her skirt off, and readied herself, then proceeds to put a 1.25L coke bottle half way inside herself.
+Everyone was shocked but fascinated. She was so proud. She wasn’t so proud the following week at school when everyone called her Cola Candice.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85474371.jpg">
+
+<a href="https://www.ebaumsworld.com/pictures/-/2656/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">25 Messed Up Facts You Didn't Know About Mother Teresa</a>
-1. A "devil's advocate" was a person sanctioned by the Vatican to argue against the canonization of a potential new saint by pointing out their flaws and critically evaluating their miracles. Christopher Hitchens served as a devil's advocate for Mother Teresa.
-
--u/FinkleIsEeinhorn
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223696.png">
+## <a href="#link3" id="link2">20 Dank Memes That Will Wait For You</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217171.jpg">
 
-2. For 60 years, Mother Teresa wrote letters to her confessors and spiritual advisors. Appealing to the secrecy of confessionals, she asked that these letters were to be destroyed. 10 years after her death all her letters were published in a book that became a NY Times Bestseller.
-
--u/EZ_does_it
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223697.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217172.jpg">
 
-3. Rapper MIA declined a spot on People's world's most beautiful people list because Mother Teresa never made the list.
-
--u/halfmile
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223698.png">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217174.jpg">
 
-4. There have been 8 Honorary American citizens and only Winston Churchill and Mother Teresa were given the honor while they were alive.
-
--u/LoyalMongo
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223699.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217175.jpg">
 
-5. An exorcism was performed on Mother Teresa.
-
--u/mpirovano
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223700.png">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217177.jpg">
 
-6. Mother Teresa doubted the presence of God, saying that she "felt no presence of God whatsoever."
-
--u/Qaher-313
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223701.png">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217178.jpg">
 
-7. Mother Teresa was anything but a saint, she withheld aide from the sick and poor stating: "There is something beautiful in seeing the poor accept their lot, to suffer it like Christ's Passion. The world gains much from their suffering."
-
--u/harlequinrose
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223702.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217179.jpg">
 
-8. Born in 1910 in Skopje, Macedonia. Her name was Agnes Gonxha Bojaxhiu but you know her as St. Theresa of Calcutta (Mother Teresa).
-
--u/dusky-jewel
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223703.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217180.jpg">
 
-9. People believed she ran an actual hospice, organized to allow the terminally ill to die in as little pain as possible. But it was not a hospice and people dying of cancer were denied anything stronger than aspirin and ibuprofen, and even when a patients clearly needed surgery they were refused hospital treatment. She bathed in human suffering.
-
--B0BA_F33TT
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223704.png">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217181.jpg">
 
-10. Mother Teresa rather wanted to spread her fundamentalist ideas than actually help people. Which includes a lot of repression for many women.
-
--Doctormimmi
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223705.png">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217182.jpg">
 
-11. Mother Teresa singled out abortion as 'the greatest destroyer of peace in the world'.
-
--u/Raami0z
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223706.png">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217183.jpg">
 
-12. According to Dr. Tarun Praharaj, a cardiologist who treated Mother Teresa after suffering a massive heart attack in 1993. She would refuse to take her medicine and say, "I am well. I want to go home. I have a lot of work to do".
-
--deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223707.png">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217184.jpg">
 
-13. In 1997 Life Magazine named the war-hero horse, Reckless, among history's heroes along with George Washington and Mother Teresa.
-
--u/olagon
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223708.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217185.jpg">
 
-14. John Paul II is thought to have asked Mother Teresa if she wanted to be a cardinal. She declined.
-
--u/stayfun
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223709.jpeg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217186.jpg">
 
-15. Despite taking billions of dollars in donations, her famed "Homes for the Dying" provided egregiously sub-standard care, and she, despite having the financial resources to do so after gaining notoriety, refused to give the dying for whom she was caring ANY form of pain killers, as she thought it was a holy experience to endure pain. She would tell her patients things like their pain meant that "Jesus was kissing them."
-
--u/ExistentialEnso
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223710.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217187.jpeg">
 
-16. Sarkis Soghanalian, the Cold War's largest arms dealer, nicknamed the Merchant of Death, once received a letter from Mother Teresa stating that God would reward him and his family's efforts a hundredfold.
-
--u/u/Azonata
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223711.jpeg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217188.jpg">
 
-17. During the Seige of Beirut, Mother Teresa brokered a temporary cease-fire between the Israeli army and Palestinian guerillas so she could rescue 37 children trapped in a front-line hospital.
-
--u/Pilpit
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223712.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217189.jpg">
 
-18. Mother Teresa of Calcutta was neither from India nor Indian. She was born in what is now Macedonia and was ethnically Albanian.
-
--u/DontWantToSeeYourCat
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223713.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217190.jpg">
 
-19. Mother Teresa once suggested that AIDS might be a just retribution for improper sexual conduct.
-
--u/KaliMaaaa
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223714.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87217191.jpg">
 
-20. Mother Teresa once advocated for a priest's return to ministry, despite knowing that he was removed for raping a boy. Eight more charges later emerged, and the priest was arrested in 2005.
-
--deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223715.png">
-
-21. The Eclipsed Celebrity Death club is a group made up of celebs who died at the same time as even more famous celebrities. Members include Mother Teresa, who died around the time of Princess Diana, and British writers CS Lewis and Aldous Huxley, who died the day that JFK was shot.
-
--u/vrlyons
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223716.jpg">
-
-22. Members of Mother Teresa's order would secretly baptize dying patients of other religions. Patients were asked if they wanted a 'ticket to heaven'. While pretending to cool the patients forehead, words were quietly recited and the ceremony performed.
-
--u/gmcl86
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223717.jpg">
-
-23. Mother Teresa's supposed "miracle cure" of a woman's abdominal tumor was not a miracle at all. The patient's doctors and husband said she was cured because she took medicine for 9-12 months. "My wife was cured by the doctors and not by any miracle."
-
--u/mepper
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223718.jpg">
-
-24. When Charles Keating was on trial, Mother Teresa sent the judge a letter asking him to do what Jesus would do. An attorney wrote back to explain how Keating stole money from others and suggested that she return Keating's donation to the victims ... as Jesus would surely do. She never replied.
-
--u/photolouis
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223719.jpg">
-
-25. The face of Mother Teresa was claimed to have been identified in a cinnamon bun at Bongo Java in Nashville, Tennessee in 1996. Dubbed the "Nun Bun" by the press, it was turned into an enterprise by the company. On 25 December 2005 the bun was stolen during a break-in at the coffee house.
-
--u/garamond89
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87223720.png">
-
-
+<a href="https://www.ebaumsworld.com/pictures/-/2858/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">25 Friday Facepalms of Foolishness</a>
+## <a href="#link4" id="link3">40 Fun Photos To Cap Your Day</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041208/87256809/FPs7.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388583.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041159/87256803/FPs3.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388584.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041201/87256805/FPs4.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388585.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041200/87256804/FPs2.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388586.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041203/87256807/FPs5.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388589.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041205/87256808/FPs1.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388592.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041212/87256811/FPs9.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388594.jpg">
 
-8. Thanks for the AC installation guys.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041213/87256812/FPs8.png">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388588.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041215/87256813/FPs11.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388595.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041216/87256814/FPs10.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388590.jpg">
 
-11. Is this the worst condition a box has ever shown up on a delivery?
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041218/87256815/FPs12.png">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388591.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041219/87256816/FPs13.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388596.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041221/87256817/FPs14.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388597.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041223/87256818/FPs15.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388587.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041224/87256819/FPs16.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388593.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041226/87256820/FPs17.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388598.jpg">
 
-17. The look on the pilot’s face.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041228/87256821/FPs18.png">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388602.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041230/87256822/FPs20.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388603.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041232/87256823/FPs19.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388605.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041210/87256810/FPs6.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388606.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041233/87256824/FPs21.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388607.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041235/87256825/FPs22.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388600.jpg">
 
-23. Tourist lady shaking the bridge for 30 minutes, breaking the railing.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041238/87256827/FPs25.jpg">
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388599.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041239/87256829/FPs23.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388601.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/041241/87256831/FPs26.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388604.jpg">
 
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388608.jpg">
 
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388609.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388610.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388611.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388616.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388612.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388615.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388614.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388620.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388618.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388613.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388619.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388617.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388621.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85388622.jpg">
+
+<a href="https://www.ebaumsworld.com/pictures/-/2062/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">25 Bits of Nostalgia That Make You Long For Childhood</a>
-1. You knew it was gonna be a good day when you walk into PE class and see that huge colorful parachute.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216327.jpg">
+## <a href="#link5" id="link4">20 Perfect Tweets Shitting on Celebs to Start the Weekend off Right</a>
+1. Totally.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023720/87320751/IMG_8900.jpg">
 
-2. That feeling of limitless freedom on the first day of summer vacation. That feeling of dreaded anticipation on the last day of summer vacation.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216325.jpg">
+2. They aren't who you think they are!
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023722/87320752/IMG_8899.jpg">
 
-3. Each sold separately. Batteries not included.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216323.jpg">
+3. I believe the term is pwnd.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023723/87320753/IMG_8902.jpg">
 
-4. That feeling when you are going as high as you can go on the swings. Power? Freedom? Hard to describe.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216307.jpg">
+4. Lost a legend.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023729/87320754/IMG_8903.jpg">
 
-5. Conjunction Junction.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216308.jpg">
+5. Softest CEO ever.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023732/87320756/IMG_8906.jpg">
 
-6. Getting up in the morning on a day it snowed to watch the list of closed schools across the bottom of the news/weather channel, hoping your school was closed.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216309.jpg">
+6. I'm just glad this youtube comment went viral.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023736/87320757/IMG_8901.jpg">
 
-7. An eraser that looks and smells like a very fake strawberry.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216312.jpg">
+7. Apologize to this man!
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023730/87320755/IMG_8905.PNG">
 
-8. Chinese finger traps.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216313.jpg">
+8. But free speech!
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023740/87320758/IMG_8908.jpg">
 
-9. Flintstones push pop ice creams.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216314.jpg">
+9. Is this real? Anybody watch the doc?
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023742/87320759/IMG_8909.jpg">
 
-10. Waking up super early on Saturday morning before the rest of the family to watch cartoons.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216315.jpg">
+10. Truly witnessing the end of times.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023745/87320760/IMG_8907.jpg">
 
-11. Watching 'The Price Is Right' when you were sick at home.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216316.jpg">
+11. Everything changed in 1994.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023751/87320762/IMG_8911.jpg">
 
-12. Nick nick nick nick na nick nick nick Nickelodeon.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216317.jpg">
+12. Learn how to give better compliments.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023756/87320763/IMG_8914.jpg">
 
-13. You have died of dysentery.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216318.jpg">
+13. LMAO.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023800/87320764/IMG_8913.jpg">
 
-14. Those candy necklaces.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216319.jpg">
+14. Oh no.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023801/87320765/IMG_8915.jpg">
 
-15. Eating one of those plastic-wrapped ice pop things after a long day of playing outside in your backyard with your friends.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216320.jpeg">
+15. Bro bad news, she gone.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023747/87320761/IMG_8910.jpg">
 
-16. Scholastic book fairs.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216321.jpg">
+16. Clearly not a kids show.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023802/87320766/IMG_8916.jpg">
 
-17. The tingle of a skinned knee from asphalt, and the dread of having it cleaned.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216322.jpg">
+17. I'd still clap those cheeks.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023804/87320767/IMG_8917.jpg">
 
-18. The noise when picking up the phone when someone was surfing the web.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216324.jpg">
+18. The original is the only one that matters.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023805/87320768/IMG_8918.jpg">
 
-19. That sound of a door opening and shutting on AIM when your friend logs on.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216310.jpg">
+19. Double burn.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023809/87320769/IMG_8912.jpg">
 
-20. Movies and video games on channel 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216326.jpg">
+20. Cinderella's gl(ass) slipper.
+<img src="https://cdn.ebaumsworld.com/2022/12/16/023811/87320770/IMG_8919.JPG">
 
-21. Sleepovers with a group of friends.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216328.jpg">
-
-22. When you'd watch a VHS and it would say, "And now your feature presentation."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216311.jpg">
-
-23. Blockbuster. The smell. The smell of that place was unique and still lingers in a very dusty space of my brain.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216329.jpg">
-
-24. Light Bright. I barely remember it myself but you’d take a charcoal-black board and poke different colored pegs through it. You plug it in to the electrical outlet and all the pegs light up creating whatever shape you made in lights.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216330.jpg">
-
-25. The TV Guide channel. You had to sit through and watch as the channels slowly went by so we could see what was on. It blew getting distracted by the infomercial in the corner and then realizing you barely just missed what you were waiting for so had to wait for it to start all over.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216331.jpg">
-
-
+<a href="https://www.ebaumsworld.com/pictures/-/3713/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">20 Of The Most Sadistic Torture Methods Ever Devised</a>
-1. HANGED, DRAWN AND QUARTERED.
-
-During medieval times, the penalty for high treason in England was to be hanged, drawn and quartered in public and though it was abolished in 1814, it has been responsible for the death of thousands of people. In this torture technique, the victim is dragged in a wooden frame called a hurdle to the place of execution. They would then be hanged by the neck for a short period of time until they are near-death (hanged), followed by disembowelment and castration where the entrails and genitalia are burned in front of the victim (drawn). The victim would then be divided into four separate parts and beheaded (quartered).
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274016.jpg">
+## <a href="#link6" id="link5">54 Sidesplitting Memes For Your Entertaiment</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388138.jpg">
 
-2. THE BRAZEN BULL.
-
-Also known as the Sicilian Bull, it was designed in ancient Greece. A solid piece of brass was cast with a door on the side that could be opened and latched. The victim would be placed inside the bull and a fire set underneath it until the metal became literally yellow as it was heated. The victim would then be slowly roasted to death all while screaming in agonizing pain. The bull was purposely designed to amplify these screams and make them sound like the bellowing of a bull.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274017.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388139.jpg">
 
-3. SAW TORTURE.
-
-In this method, the victim is hung upside down, so that the blood will rush to their heads and keep them conscious during the long torture. The torturer would then saw through the victims’ bodies until they were completely sawed in half. Most were cut up only in their abdomen to prolong their agony.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274018.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388140.jpg">
 
-4. THE CHAIR OF TORTURE.
-
-Also known as the Judas Chair, it was a terrible, intimidating torture device that was added to dungeons in the Middle Ages. Used until the 1800′s in Europe, this chair was layered with 500 to 1,500 spikes on every surface with tight straps to restrain its victim. Made of iron, it can also contain spaces for heating elements beneath the seat. It was often used to scare people into giving confessions as they watched others being tortured on the device.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274019.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388141.jpg">
 
-5. THE RACK. 
-
-Is a torture device consisting of a rectangular, usually wooden frame, slightly raised from the ground, with a roller at one or both ends. The victim’s ankles are fastened to one roller and the wrists are chained to the other. As the interrogation progresses, a handle and ratchet mechanism attached to the top roller are used to very gradually increase the tension on the chains, inducing excruciating pain. By means of pulleys and levers this roller could be rotated on its own axis, thus straining the ropes until the sufferer’s joints were dislocated and eventually separated. Additionally, if muscle are stretched excessively, they lose their ability to contract, rendering them ineffective. One gruesome aspect of being stretched too far on the rack is the loud popping noises made by snapping cartilage, ligaments or bones.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274020.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388142.jpg">
 
-6. BREAST RIPPER.
-
-Known in another form as the Iron Spider or simply the spider, was a torture instrument mainly used on women who were accused of adultery, or self-abortion. The instrument was designed to rip the breasts from a woman and was made from iron, which was usually heated. The tool was used popularly in the Free State of Bavaria, a state in Germany, in 1599, and in parts of Germany and France until the nineteenth century.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274021.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388143.jpg">
 
-7. TONGUE TEARER.
-
-Looking like an over sized pair of scissors, it could effortlessly cut the victim’s tongue. Their mouth would be forced opened with a device called a mouth opener, and then the iron tongue tearer would uncomfortably twitch the tongue with its rough grippers. Once a firm hold was maintained, the screw would be firmly tightened and the victim’s tongue would roughly be torn out.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274022.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388144.jpg">
 
-8. IRON MAIDEN.
-
-This torture device consisted of an iron cabinet with a hinged front and spike-covered interior, sufficient enough to enclose a human being. Once inside its conical frame, the victim would be unable to move due to the great number of steel spikes impaling them from every direction. The interrogator would scream questions at the victim while poking them with jagged edges.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274023.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388146.jpg">
 
-9. STRAPPADO.
-
-The Strappado is a form of torture in which the victim’s hands are first tied behind his or her back and suspended in the air by means of a rope attached to wrists, which most likely dislocates both arms. Weights may be added to the body to intensify the effect and increase the pain. Other names for strappado include “reverse hanging” and “Palestinian hanging” (although it is not used by the Palestinian Authority) It is best known for its use in the torture chambers of the medieval Inquisition.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274024.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388147.jpg">
 
-10. WOODEN HORSE/SPANISH DONKEY.
-
-One of the torture devices during the Spanish Inquisition and medieval ages, this is probably one of the most gruesome of them all. The victim is put astride, naked, on a donkey-like apparatus, which is actually a vertical wooden board with a sharp V-wedge on top of it. After that, the torturer would add varying weights to the victim’s feet until finally the wedge sliced through the victim’s body.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274025.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388148.jpg">
 
-11. PEAR OF ANGUISH/CHOKE PEAR.
-
-The pear of anguish or choke pear is the modern name for a type of instrument displayed in some museums, consisting of a metal body (usually pear-shaped) divided into spoon-like segments that could be spread apart by turning a screw. The museum descriptions and some recent sources assert that the devices were used either as a gag, to prevent people from speaking, or internally as an instrument of torture.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274026.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388145.jpg">
 
-12. JUDAS CRADLE.
-
-The victim would presumably be placed in the waist harness above the pyramid-shaped seat, with the point inserted into their an*s or v*gin*, then very slowly lowered by ropes. The subject is tortured by intense pressure and stretching of the orifice, eventually succumbing to tears in muscle tissue that could turn septic and kill from infection, or simply being impaled.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274027.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388149.jpg">
 
-13. NECK TORTURE.
-
-Humiliating and painful, this punishment was something of an endurance test where the victim would be hooked into a neck device, either made of metal or wood, which prevented the victim from adjusting into a comfortable position. The cruelty of this punishment lie within the fact that they were unable to lie down, eat, or lower their head for days.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274028.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388150.jpg">
 
-14. HERETIC’S FORK.
-
-The device was placed between the breast bone and throat just under the chin and secured with a leather strap around the neck, while the victim was hung from the ceiling or otherwise suspended in a way so that they could not lie down.Usually the Heretic’s fork was given to people who spoke the lord’s name in vain, blasphemers, or liars. This way, the punishment made it nearly impossible for them to talk. Also, a person wearing it couldn’t fall asleep. The moment their head dropped with fatigue, the prongs pierced their throat or chest, causing great pain. This very simple instrument created long periods of sleep deprivation. People were awake for days, which made confessions more likely.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274029.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388151.jpg">
 
-15. BREAKING WHEEL/ CATHERINE WHEEL.
-
-Was a torture device used for capital punishment from Antiquity into early modern times for public execution by breaking the criminal’s bones/bludgeoning him to death. As a form of execution, it was used from “Classical” times into the 18th century; as a form of post mortem punishment of the criminal, the wheel was still in use into 19th century Germany.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274030.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388152.jpg">
 
-16. COFFIN TORTURE.
-
-The most preferred torture technique in the Middle Ages was known as coffin torture. This method involved placing the victim inside a metal cage roughly the size of the human body; hence the name. The torturers also forced overweight victims into smaller cages to heighten their discomfort as they hung from a tree or gallows. Generally, they would be left there until the crows came to feed on their remains.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274031.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388153.jpg">
 
-17. SPANISH TICKLER/ CAT’S PAW.
-Is a type of torture instrument, consisting of long, sharp iron spikes curved so as to resemble claws. It was often attached to a handle, or else used as an extension of the torturer’s hand. In this way it was used to rip and tear flesh away from the bone, from any part of the body. It was also used as a weapon. This device was commonly used on thieves and unfaithful wives. Most who were tortured in this manner died not at the time, but afterwards. Especially with the Cat’s Paw, the device would cause infections as the device would cut so deep. The prongs were nearly never washed, so the chances of these infections were very high.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274032.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388154.jpg">
 
-18. KNEE SPLITTER.
-
-The knee splitter was a form of torture used mainly during the inquisition. It was created from two spiked wood blocks, placed in front of, and behind the knee. The blocks were connected with two large screws. When turned, the blocks would close towards each other, destroying the knee underneath them. This method was used to render the knees useless. The number of spikes on the blocks would range from three to twenty, depending on the captive.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274033.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388155.jpg">
 
-19. HEAD CRUSHER. 
-This metal device featured a plate that sat below the victim’s jaw, which was connected by a frame to the head cap. As the torturer slowly twisted the handle, the gap between the head cap and plate decreased in width, causing crushing of the skull and facial bones, including teeth and jaws, and ultimately inducing death; even if the torturer stopped before death, permanent damage to the facial muscles and structure would occur. The victim’s head would slowly be crushed, killing the victim, but not before the victim’s jaw had been crushed, and their eyes had popped from their socket.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274034.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388156.jpg">
 
-20. IMPALEMENT.
-
-Given his name, it should come as no surprise that this was the most favored method of execution by Vlad the Impaler. In 15th century Romania; the victim was forced to sit on a sharp and thick pole. When the pole was then raised upright, the victim was left to slide down the pole with their own weight. It could take the victim 3 days to die using this method and it has been said that Vlad once did this to 20,000 people all while enjoying a meal.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274035.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388157.jpg">
 
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388158.jpg">
 
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388159.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388160.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388161.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388162.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388163.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388164.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388165.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388166.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388167.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388168.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388169.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388170.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388171.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388172.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388173.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388174.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388175.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388176.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388177.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388178.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388179.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388180.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388181.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388182.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388183.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388184.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388185.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388186.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388187.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388188.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388189.jpg">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388190.jpg">
+
+54.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85388191.jpg">
+
+<a href="https://www.ebaumsworld.com/pictures/-/2056/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">24 Carrie Fisher Photos - To Our Beloved Princess Leia</a>
+## <a href="#link7" id="link6">23 Creepy and Bad Tattoos That Will Make Your Doubt You Sanity</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225449.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257815.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225448.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257816.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225443.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257812.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225437.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257820.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225438.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257833.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225444.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257811.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225439.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257824.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225441.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257825.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225442.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257814.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225446.jpg">
+10. My Tramp, Little Stamp?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257817.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225450.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257818.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225445.jpeg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257819.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225440.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/02/07/122347/85260437/idiot.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225451.jpeg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257821.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225452.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257822.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225453.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257823.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225455.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257826.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225457.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257827.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225454.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257828.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225461.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257829.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225459.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257830.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225436.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257831.png">
 
-23. Rest In Peace.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225447.jpg">
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85257832.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225456.jpg">
-
-
+<a href="https://www.ebaumsworld.com/pictures/-/1219/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">25 Funny Trump Inauguration Memes</a>
+## <a href="#link8" id="link7">34 Remarkable Pics You Don't Want To Miss</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245585.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411257.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245586.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411258.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245587.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411259.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245588.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411261.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245591.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411262.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245589.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411263.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245590.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411264.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245592.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411265.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245593.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411256.gif">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245595.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411266.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245594.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411267.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245596.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411268.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245597.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411269.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245601.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411270.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245599.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411271.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245600.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411272.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245602.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411273.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245603.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411274.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/2017/01/20/034815/85245605/822519260429709312-png__700.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411275.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85245604.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411276.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/2017/01/20/034828/85245606/822487672824401921-png__700.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411277.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/2017/01/20/034856/85245608/822468024649338880-png__700.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411278.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/2017/01/20/034842/85245607/822478866035986435-png__700.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411279.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/2017/01/20/034909/85245609/822482101396193280-png__700.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411280.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/2017/01/20/034922/85245610/822464550398296069-png__700.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411281.jpg">
 
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411283.jpg">
 
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411284.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411285.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411286.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411287.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411288.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411290.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411291.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85411292.jpg">
+
+<a href="https://www.ebaumsworld.com/pictures/-/2207/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">Douche Bag Freaks Out On Tinder Date After She Doesn't Respond Quick Enough</a>
-1. Meet Nick, your average douchebag. Nick wants to meet women online but he has a bit of a temper. Don't be like Nick.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282625.jpg">
+## <a href="#link9" id="link8">35 Picture Potpourri of Internet Insanity </a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118615.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282630.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118581.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282627.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118582.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282629.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118583.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85282628.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118584.jpg">
 
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118585.jpg">
 
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118586.jpg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118587.jpg">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118588.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118589.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118590.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118591.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118592.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118593.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118594.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118595.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118596.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118597.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118598.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118599.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118600.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118601.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118602.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118603.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118604.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118605.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118606.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118607.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118608.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118609.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118610.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118611.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118613.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118614.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85118616.jpg">
+
+<a href="https://www.ebaumsworld.com/pictures/-/286/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">15 Life Hacks That Will Make Your Stupid Body Work Better</a>
+## <a href="#link10" id="link9">53 Savage AF Memes To Brutalize Your Day </a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375383.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493475.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375384.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493476.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375385.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493477.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375386.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493478.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375387.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493479.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375388.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493480.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375389.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493484.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375390.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493481.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375391.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493483.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375392.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493485.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375393.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493486.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375394.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493487.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375395.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493488.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375396.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493489.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85375397.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493490.jpg">
 
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493491.jpg">
 
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493492.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493493.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493494.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493495.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493496.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493497.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493498.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493499.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493500.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493501.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493502.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493503.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493504.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493505.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493506.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493507.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493508.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493509.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493510.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493511.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493512.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493513.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493514.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493515.png">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493516.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493517.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493518.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493519.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493520.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493521.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493522.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493523.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493524.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493525.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493526.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493527.jpg">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85493528.jpg">
+
+<a href="https://www.ebaumsworld.com/pictures/-/2770/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">32 Savage Memes That Will Make You Say 'Oh Shit'</a>
+## <a href="#link11" id="link10">28 Fresh Memes To Tickle Your Funny Bone</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310551.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/13/030959/85239959/85239768.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310546.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239723.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310547.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239724.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310549.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239725.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310548.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239726.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310550.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239727.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310553.jpeg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239728.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310555.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239729.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310560.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239730.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310554.jpeg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239731.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310556.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239732.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310552.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239733.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310557.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239740.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310561.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239734.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310562.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239735.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310566.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239736.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310568.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239737.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310569.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239738.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310572.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239739.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310573.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239742.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310575.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239741.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310571.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239743.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310570.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239744.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310576.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239745.gif">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310577.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239746.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310579.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239747.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310583.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239748.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310582.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85239749.jpg">
 
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310580.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310584.png">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310585.png">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310586.jpg">
-
-
+<a href="https://www.ebaumsworld.com/pictures/-/1058/">Original Article <b>with</b> Ads</a>
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link10">GO TO PREVIOUS</a>

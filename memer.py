@@ -93,7 +93,6 @@ class baumerSpider(scrapy.Spider):
 		html += f'<a href="{response.url}">Source URL <b>with</b> Ads</a>\n\n'
 		html += '<a href="#linky1">GO TO TOP</a>\n'
 
-		
 		j = {
 			'article-number': response.url.split('/')[-2],
 			'header': articleHeader,

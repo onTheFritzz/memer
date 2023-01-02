@@ -14,7 +14,7 @@ def getValue(jFile, key):
 		raise ValueError(f'"{key}" is prolly not a valid key')
 
 def getRandomMemes(number):
-	articleBlock = f'# All Ur Meemz R Belog to Uz\nLast Updated {dt.now().strftime("%m.%d.%Y-%H:%M:%S")}\n\n'
+	articleBlock = f'# All Ur Meemz R Belog to Uz\nLast Updated {dt.now().strftime("%m.%d.%Y-%H:%M:%S")}<br><br>All credits to ebaumsworld.com\n\n'
 	print('yolo yolo')
 	for x in range(number + 1):
 		# Generate random number provided it has not been used before
@@ -34,6 +34,7 @@ def getRandomMemes(number):
 
 		gototop = '<a href="#link0">GO TO TOP</a>'
 		previous = f'<a href="#link{x}">GO TO PREVIOUS</a>'
+		sourceLink = f'<a href="https://www.ebaumsworld.com/pictures/-/{articleNo}/">Original Article <b>with</b> Ads</a>'
 
 		articleBlock += f'## <a href="#link{x+1}" id="link{x}">{header}</a>\n'
 
@@ -42,7 +43,7 @@ def getRandomMemes(number):
 			articleBlock += f'{title}\n<img src="{image}">\n\n'
 		
 		print(f'Writing article {x}')
-		articleBlock += f'\n{gototop}\n\n{previous}\n\n'
+		articleBlock += f'{sourceLink}\n{gototop}\n\n{previous}\n\n'
 		with open('README.MD', 'a', encoding='utf-8') as a:
 			a.write(articleBlock)
 		articleBlock = ''
