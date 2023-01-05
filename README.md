@@ -1,959 +1,1310 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 01.05.2023-01:45:18<br>All credits to ebaumsworld.com
+Last Updated 01.05.2023-04:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">21 Fascinating Facts That Will Entertain You Through The Holidays</a>
+## <a href="#link1" id="link0">55 WTF Situations That Are Basically Unexplainable</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224878.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386388.jpg">
 
-2. Although it is possible to buy a much weaker version of the beverage created with most of the original ingredients in most countries.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224879.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386389.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224880.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386390.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224881.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386391.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224882.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386392.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224883.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386393.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224884.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386394.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224885.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386395.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224886.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386398.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224887.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386396.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224888.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386397.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224889.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386399.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224890.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386400.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224891.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386401.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224892.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386402.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224893.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386403.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224894.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386404.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224895.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386405.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224896.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386406.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224897.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386407.gif">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224898.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386408.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386409.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386410.gif">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386411.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386412.gif">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386413.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386414.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386415.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386416.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386417.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386418.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386419.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386420.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386421.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386422.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386423.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386424.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386425.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386426.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386427.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386428.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386429.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386430.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386431.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386432.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386433.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386434.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386435.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386436.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386437.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386438.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386439.jpg">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386440.jpg">
+
+54.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386441.jpg">
+
+55.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85386442.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85224877/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85386387/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">17 Movie Characters Who Are More Of A Scumbag Than You Realize</a>
+## <a href="#link2" id="link1">31 Great Pics to Improve Your Mood</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256542.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397097.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256543.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397098.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256544.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397099.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256545.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397100.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256546.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397101.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256550.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397102.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256549.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397103.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256547.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397104.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256548.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397105.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256551.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397106.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256552.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397107.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256553.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397108.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256554.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397109.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256555.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397110.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256556.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397111.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256557.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397112.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85256558.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397113.gif">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397114.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397115.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397116.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397117.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397118.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397119.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397120.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397121.png">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397122.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397123.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397124.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397125.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397126.png">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85397127.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85256541/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85397096/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">16 People Share Their Cringiest Teenage Moments</a>
+## <a href="#link3" id="link2">53 Funny Memes To Make Your Day</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327729.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373337.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327730.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373338.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327731.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373339.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327732.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373340.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327733.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373341.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327734.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373342.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327735.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373343.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327736.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373344.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327737.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373345.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327738.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373346.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327739.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373347.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327740.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373348.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327741.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373349.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327742.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373350.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327743.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373351.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85327744.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373352.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373353.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373354.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373355.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373356.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373357.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373358.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373359.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373360.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373361.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373362.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373363.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373364.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373365.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373367.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373368.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373369.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373371.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373372.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373374.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373375.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373376.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373377.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373378.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373379.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373380.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373381.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373382.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373383.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373384.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373386.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373387.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373388.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373389.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373390.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373392.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373393.jpg">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85373394.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85327728/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85373336/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">22 Images That Are The Epitome Of What The F*ck</a>
+## <a href="#link4" id="link3">31 Uncomforatable Pics From The Depths Of The Internet</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063702.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406528.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063704.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406529.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063703.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406530.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063705.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406531.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063706.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406532.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063707.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406533.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063708.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406534.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063709.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406535.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063710.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406536.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063722.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406537.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063711.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406538.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063712.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406539.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063715.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406540.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063716.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406541.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063714.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406542.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063718.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406543.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063719.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406544.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063713.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406545.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063720.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406546.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063721.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406547.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063723.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406548.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85063717.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406549.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406550.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406551.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406552.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406553.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406554.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406555.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406556.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406557.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85406558.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85063701/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85406527/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">Monday Morning Randomness - User Edition #11</a>
+## <a href="#link5" id="link4">30 Awesome, WTF, And Funny Pics To Lose Yourself In</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241527.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216731.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100312/85241543/85241037.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216732.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100300/85241542/85241034.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216733.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241499.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216734.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100349/85241546/85241049.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216735.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100504/85241552/85241069.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216736.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100414/85241548/85241052.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216737.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241501.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216738.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100427/85241549/85241058.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216739.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100401/85241547/85241051.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216740.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100440/85241550/85241067.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216742.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241496.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216744.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241497.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216745.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241498.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216746.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100325/85241544/85241039.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216747.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241500.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216748.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241502.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216749.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241503.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216750.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241504.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216751.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241505.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216752.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100337/85241545/85241047.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216753.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241506.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216754.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241507.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216755.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241508.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216756.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241509.jpeg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216757.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241510.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216758.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241511.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216759.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241525.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216760.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241512.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216761.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241513.png">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241514.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241521.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241515.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241516.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241517.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241518.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241519.png">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241520.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/2017/01/15/100452/85241551/85241068.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241522.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241523.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241524.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241526.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85241528.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85216762.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85241495/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85216730/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">23 Times Tinder Was As Beautiful As It Was Perverted </a>
+## <a href="#link6" id="link5">The Internet Reacts To Time Magazine Naming Donald Trump As Person Of The Year</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182043.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210944.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182044.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210945.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182045.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210946.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182046.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210947.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182047.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210948.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182048.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210949.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182049.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210950.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182050.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210951.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182051.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210952.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182052.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210953.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182053.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210954.gif">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182054.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210955.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182055.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210956.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182056.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210957.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182057.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210958.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182058.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210959.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182059.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210960.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182060.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210961.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182061.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182062.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182063.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182064.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85182065.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85210962.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85182042/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85210943/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">25 Scams You Need to Quit Falling For</a>
-1. Alkaline water. Unless you're in kidney failure or DKA you don't need to change your Ph, and EMTs and ER docs aren't ordering supplies from Phountain.Even if you could change the Ph of your own blood by drinking water, doing so would probably kill you. -u/Stoutyeoman
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269681.jpg">
+## <a href="#link7" id="link6">47 Fresh Memes Picked From For The Internet</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315092.jpg">
 
-2. The people that call my house trying to sell me duck cleaning.I don't have a duck. -u/Kangar
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269682.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315093.jpg">
 
-3. The individual who called me yesterday claiming to be “US Customs and Border Patrol” who said I had an illegal package from Mexico in my name. -u/Sioswing
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269683.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315094.jpg">
 
-4. The "sugar mommies" on Instagram that keep trying to talk to me. -u/kenzarellazilla
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269684.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315095.jpg">
 
-5. Nutriboom. But I will say this, Debbie Stovelman is happy, healthy, and alive. -u/TraditionalAd8468
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269679.png">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315097.jpg">
 
-6. We can’t give you a raise yet because (X), but if you work hard and prove your competency, there will be a raise next year. -u/deja_vuvuzela
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269687.jpeg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315098.jpg">
 
-7. Hydrogen-rich water. Had someone I know (this person is also into MLMs) try to sell me a thousands of dollars water filter. I looked up if there were any legit studies done on the health claims, and as I suspected, I didn't find any really compelling science. Turns out most of the claims pretty much line up with the health benefits of just drinking more water in general. -u/nerdypursuits
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269688.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315096.jpg">
 
-8. Pretty much all Youtube ads these days. If it starts with "this one trick can" or anything like "doctors hate this" doctors hate it because they have to explain green tea doesn't cure type one diabetes. Tbh, it's flat-out dangerous false advertising but youtube doesn't care. -u/neoben00
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269689.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315100.jpg">
 
-9. ”I’m paying off debts of $5000 to the first five people to DM me"
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269680.png">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315101.jpg">
 
-10. Those Alpha Male courses. -u/Ethan-Samurai
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269690.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315104.jpg">
 
-11. Kids iPhone/iPad games. My kid is downloading these “free” games that constantly ask her to buy an extra skin or a treasure box of thousands of coins to upgrade and keep playing. It’s really scummy because they know exactly who their audience is, children who have no concept of money. -u/0wlBear916
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269691.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315105.jpg">
 
-12. Your friend that has been absent in a few years suddenly showing up telling you that he /she has a fantastic job offer for you. -u/TheWiseCock
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269692.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315106.jpg">
 
-13. Anyone - A-N-Y-O-N-E - promising to teach you the secrets of becoming wealthy at a free seminar.I have a family member that got sucked into the Kiyosaki bullsh*t vortex. It's a damn cult. -u/throwaway3544219
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269693.png">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315103.jpg">
 
-14. Scientology. -u/A-rat-on-a-keyboard
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269694.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315107.jpg">
 
-15. Mobile game ads. -u/Character-Watch5463
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269695.png">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315108.jpg">
 
-16. Herbalife. -u/Teh_Beavs
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269696.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315109.jpg">
 
-17. Mega Church tithing. -u/invalidpassword
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269697.png">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315110.jpg">
 
-18. Online dating services with monthly subscriptions. Any business that gets more money by failing than succeeding will be designed to fail, succeeding just enough to make users feel as though they can succeed. Basically the same principle as casinos. -u/IndigoFenix
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269698.png">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315112.jpg">
 
-19. Filling your tires with nitrogen for an extra fee.The air we breathe is over 3/4 nitrogen and added that extra 22% nitrogen to your tires will add no benefits and cost you anywhere from $70 to as much as $179.Unless they are doing it for free, you are being sold snake oil. -u/That_Is_My_Band_Name
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269699.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315113.jpg">
 
-20. The IRS will not call you to settle debts. -u/Revlis-TK421
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269700.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315114.jpg">
 
-21. The credit score system.How it should work: pay back loans early/on time, higher score. Don't pay back loans or pay back late, lower score. How it actually works: Pay back a loan too quick, score goes down. Open an account, score goes down. CLOSE an account, score goes down. You even ask for a copy of your credit report, your score goes down. It's ridiculous.It's not about your reliability, it's about how profitable you are to creditors looking to milk interest payments as long as possible. -u/MoochtheMushroom
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269701.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315116.jpg">
 
-22. Work 110% at your job and you will be successful.Yeah you'll be successful alright doing the work of 3 people while the people who don't work as hard get promoted because you are too valuable in your position. -u/NoSpray2890
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269702.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315111.jpg">
 
-23. You didn't just win  that you don't remember entering. They just want you to send them money to process your "winnings" and by winnings I mean scam you for every penny they can. -u/Revlis-TK421
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87269703.png">
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315117.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315119.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315120.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315118.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315121.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315123.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315124.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315122.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315127.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315129.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315130.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315128.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315132.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315133.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315131.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315134.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315135.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315136.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315138.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315140.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315139.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315143.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315137.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315141.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85315144.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87269678/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85315091/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">49 Savage AF Memes That Might Make You Pee A Little</a>
+## <a href="#link8" id="link7">Monday Morning Randomness: 56 Funny Memes, Savage Tweets and Awesome Pics</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471697.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115522/87304285/87304239.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471698.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115541/87304291/87304251.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471699.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115233/87304260/87303528.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471700.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303805.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471701.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303818.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471702.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115239/87304261/87303529.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471705.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303817.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471703.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115506/87304279/87304233.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471704.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115245/87304262/87303534.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471706.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303811.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471707.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115552/87304294/87304254.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471709.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115249/87304263/87303536.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471711.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115514/87304281/87304236.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471712.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303819.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471714.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115252/87304264/87303527.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471715.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115355/87304278/87304231.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471716.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303821.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471718.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115253/87304265/87303541.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471719.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115510/87304280/87304234.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471720.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303810.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471721.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115257/87304266/87303545.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471722.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115259/87304267/87303537.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471723.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115540/87304289/87304241.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471724.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115551/87304293/87304256.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471725.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115303/87304268/87303547.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471726.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115520/87304283/87304238.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471727.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115541/87304290/87304249.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471728.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115307/87304269/87303549.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471729.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115515/87304282/87304237.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471730.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115521/87304284/87304240.jpg">
 
 31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471731.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115311/87304270/87303550.jpg">
 
 32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471732.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303804.jpg">
 
 33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471733.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115527/87304286/87304243.jpg">
 
 34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471734.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115313/87304271/87303562.jpg">
 
 35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471736.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115538/87304288/87304246.jpg">
 
 36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471738.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115547/87304292/87304253.jpg">
 
 37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471739.png">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115314/87304272/87303561.jpg">
 
 38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471741.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115534/87304287/87304244.jpg">
 
 39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471742.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303803.jpg">
 
 40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471743.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115319/87304273/87304080.jpg">
 
 41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471744.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303802.jpg">
 
 42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471745.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115320/87304274/87303563.jpg">
 
 43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471746.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303808.jpg">
 
 44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471747.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115324/87304275/87304097.jpg">
 
 45.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471748.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303815.jpg">
 
 46.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471749.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303801.jpg">
 
 47.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471750.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115346/87304276/87304108.jpg">
 
 48.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85471751.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303814.jpg">
 
 49.
-<img src="https://cdn.ebaumsworld.com/2017/09/21/020418/85472226/21.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303809.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/2022/11/13/115351/87304277/87304110.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303813.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303806.jpg">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303807.jpg">
+
+54.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303812.jpg">
+
+55.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303816.png">
+
+56.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87303820.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85471696/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87303800/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">14 Gross Sex Stories That'll Make You Cringe </a>
-1. “I decided to pull back for a second to regain my composure. I thought if I pulled open her lady-bits I might be able to have a better angle of attack on her clit. I opened up her pussy to a terrible sight. There were multiple lumps of what looked like cottage cheese dotted around her pussy lips and clit.Each lump ranged from a few millimeters in width to half a centimeter in size. It looked like some sort of fungus was growing there.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468177.jpg">
+## <a href="#link9" id="link8">20 Famous Actors Who Auditioned but Didn’t Land the Role</a>
+1. Henry Cavill auditioned for the role of James Bond but lost out to Daniel Craig.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043749/87312615/henry.jpg">
 
-2. “He pulled it out to come on my face, I was unprepared and snorted his semen up my nose. We started making out and I sneezed his semen onto his own face.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468178.gif">
+2. Britney Spears went out for the role of Allie in 'The Notebook.' Obviously Rachel McAdams would land the part.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043723/87312608/brit.jpg">
 
-3. “One Saturday afternoon, the boy is performing some world class cunnilingus when I feel a pressure at my nether orifice. I soon realized he was using some beads on me. We had some filthy and very very satisfying sex, then I went to the bathroom to clean up without removing the beads. I sat on the toilet to get the beads out. Those beads were solidly embedded in a great big turd. I just stared at it dumbly for a moment before the smell hit me.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468179.jpg">
+3. Matt Damon auditioned for the Chris O'Donnell role of Robin.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043735/87312611/damon.jpg">
 
-4. “Sixty-Nine. She came. She farted. My hair blew in it’s fetid breeze.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468180.gif">
+4. Mandy Patinkin had some competition for 'The Princess Bride.' Dylan McDermott had auditioned for the role of Inigo Montoya as well.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043742/87312612/dylan.jpg">
 
-5. “A girl I had been dating for awhile climbed on me for 69. As she scooted back, I saw something white, realized too late that it was a clump of toilet paper, and got it in my mouth. Pretty nasty, but I spit it out and kept going.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468181.jpg">
+5. Claire Danes was in the running for Rose in 'Titanic' but lost out to Kate Winslet.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043729/87312609/claire.jpg">
 
-6. “Having sex with my wife, and then noticing that something didn’t feel quite right, she still had a tampon in from 4 days prior…and i had to help pull it out….”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468182.gif">
+6. Chace Crawford from 'Gossip Girl' auditioned for the role of Jason Street in 'Friday Night Lights.' Scott Porter was eventually cast in the part.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043730/87312610/chace.jpg">
 
-7. “Sucking a chicks nipple in the dark. She was loving it. All of a sudden there is liquid.. Lactating.. sick. So keep going, she seems to be loving it. Lights come on, dun dun dunnn, I had been sucking the pus out of a boil.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468183.jpg">
+7. Gabrielle Union auditioned for the role of Trinity in 'The Matrix.'
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043744/87312613/gabrielle.jpg">
 
-8. “Last summer my husband and I were living with roommates who had a cat. We were drinking and started getting hot and heavy, he stripped down and jumped on the bed, said something about it being wet and jumped back up. One of us had left our bedroom door cracked and the cat had gotten stuck in the room, and pooped all over our bed. Worse is that apparently this cat was sick with worms. My poor husband was covered in kitty diarrhea, blood and worms.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468184.gif">
+8. Andrew Garfield lost out to Ben Barnes for 'The Chronicles of Narnia.'
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043748/87312614/garfield.jpg">
 
-9. “The grossest sexual encounter I’ve had was a guy who sweat so profusely it was dripping on me, then he flipped his sweaty ass around into my face to attempt what I can only assume was a 69 position but was more like being force fed a butt sandwich and I could see the sweat glistening on his ass/ball hair, that, and the cheese smell coming from his balls made my eyes water and I threw him off me and ran to the shower.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468185.jpg">
+9. Hugh Jackman was a lock for 'Miss Congeniality' until Benjamin Bratt came along.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043757/87312617/hugh.jpg">
 
-10. “She smelled really horrible, and she tasted even worse. He didn’t want to offend her though because he hadn’t seen her in months…so he put a Jolly Rancher in his mouth to cover it up, even though it didn’t do much to help. In the course of eating her out, he accidentally pushed the candy inside of her… and stuck a finger in to grab it out. He took it out, and put it back into his mouth and bit it. Only…it wasn’t the Jolly Rancher. It was a nodule of gonorrhea.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468186.gif">
+10. Jeffrey Dean Morgan had auditioned for 'One Tree Hill' ultimately losing out to Craig Sheffer.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043801/87312618/jeffreydean.jpg">
 
-11. “So this one time I’m having sex with my girlfriend right, and it was all good and sexy so we finish up and everything seems cool.Then about 9 months later a fucking little human being comes out of her pussy! I mean just like pops out and I saw that shit with my own eyes! The little fucker is still living with us.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468187.jpg">
+11. 'Always Sunny' star Glenn Howerton auditioned for Star-Lord but obviously lost out to Chris Pratt.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043754/87312616/glenn.jpg">
 
-12. “Anal sex. Pinworms. Maybe not as gross as the OP’s story, but it’s fucking nasty to pull your dick out and see a dozen or so worms writhing around on the condom.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468188.gif">
+12. Jennifer Lawrence auditioned for the show 'Gossip Girl' but Blake Lively landed the role instead.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043803/87312619/jen.jpg">
 
-13. “Suddenly, in one swift move, she pounced me, knocked me onto my back, jumped on top of me, spun around and started sucking me off, 69 style. I was totally into it, and started reciprocating. Only a few moments pass before I felt a tap on my forehead. My face was fully between her legs, yet there was this tap tap tap on my forehead. Every couple of seconds, tap tap tap. This tapping continued and started to take me out of the moment. I pried my face from between her legs to get a better view of what was going on. To my horror, I witnessed, dangling from her asshole, a fucking tape worm, bouncing like a fettuccine noodle with every excited movement she made.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468189.jpg">
+13. Hugh Grant could've easily been in the Harry Potter universe, but a scheduling conflict interfered. Enter Kenneth Branagh.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043805/87312620/hughgrant.jpg">
 
-14. “I once had a 69 with a girl, and about halfway through it, I felt something fall down my throat. I threw her off and ran to the bathroom. It was about a half-inch glob of congealing, jelly-like burnt-red… blood.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85468190.gif">
+14. Joe Jonas originally auditioned for the role of Spider-Man, but was turned down for Andrew Garfield.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043806/87312621/joejonas.jpg">
+
+15. John Krasinski famously auditioned for Captain America before the role was given to Chris Evans.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043807/87312622/john.jpg">
+
+16. Chris Pine auditioned for 'The OC' before being beat out by Ben McKenzie.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043811/87312623/pine.jpg">
+
+17. Salma Hayek was another contender for the role of Trinity, but apparently didn't like to run.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043815/87312624/salma.jpg">
+
+18. Dylan Minnette has had a super successful career in spite of being turned down for the role of Spider-Man which would go to Tom Holland.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043819/87312625/minnette.jpg">
+
+19. Taylor Swift was being considered for the role of Eponine in 'Les Miserables' before Samantha Barks was cast.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043823/87312626/tswift.jpg">
+
+20. Zoey Deutch auditioned for 'The Hunger Games', but the role of Katniss would go to Jennifer Lawrence.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/043831/87312627/zoey.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85468176/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87312607/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">23 Guys React to Women Making the First Move</a>
-1. I appreciate those women. I don't like having to guess.
- 
--u/GrumpyCatStevens
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224783.jpg">
+## <a href="#link10" id="link9">25 Most Intriguing and Iconic Mullets of All Time</a>
+1. Country musician, Blake Shelton.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041002/87301305/blake.jpg">
 
-2. There is nothing more relieving than being with a lady who tells you exactly how she feels and what she wants. It's so important.
- 
--u/DaHotFuzz
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224784.png">
+2. Tennis player, Andre Agassi.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041008/87301306/andre.jpg">
 
-3. If it's the lady in the subway, I wish she would stop.
- 
--u/The_Last_Ron1n
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224785.png">
+3. The one and only, Billy Ray Cyrus.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041019/87301309/brc.jpg">
 
-4. Suspicious at first, then enthused.
- 
--u/omguserius
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224786.png">
+4. Late musician, David Bowie.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041029/87301313/bowie.jpg">
 
-5. Straightforwardness is welcome if the attraction is there. Initial interest is key though.
- 
--u/lordasgul
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224787.jpg">
+5. Wrestling legend, Hulk Hogan.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041025/87301312/hulk.jpg">
 
-6. So tired of playing games.
- 
--u/KING_JELLYB3AN
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224789.jpg">
+6. Icon, Dolly Parton.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041024/87301311/Dolly.jpg">
 
-7. I'm about to get mugged.
- 
--u/shut_up_greg
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224788.jpeg">
+7. Athlete, Brian Bosworth.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041014/87301307/bosworth.jpg">
 
-8. After flirting with a woman for half an evening at a party, she came over to me, sat on my lap and whispered in my ear, "so, are we going to your place or my place tonight?" Now, I've always been blessed with a healthy amount of self-confidence; not too much to seem egotistical but just enough to be myself and be content with rejection. That moment rendered me dumbstruck.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224790.jpg">
+8. Pop-star, Demi Lovato.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041020/87301310/demi.jpg">
 
-After what seemed like a full minute, I remember looking up at her and saying, "uhhh, I have roommates. What about you?" She stared me straight in the eyes and said, "we're going to my place tonight. Let's leave soon." It was one of the sexiest, most incredible things a woman has ever said to me. Her self-confidence and decisiveness f*cking scrambled my brains in all the good ways. That was probably 15 years ago and I remember it like it was yesterday. We dated for about 6 months after that and it didn't end up working out, but I'll never forget that first night.
- 
--u/PMmeyourSchwifty
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224791.png">
+9. David Spade as the lovable, Joe Dirt.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041030/87301314/joedirt.jpg">
 
-9. Same 3 thoughts in order: This is nice. Am I being pranked? This has gotta be a serial killer.
-
--u/MoneyMitch93
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224792.png">
+10. Hockey sensation, Jaromir Jagr.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041032/87301315/jagr.jpg">
 
-10. The ugly truth is it depends on how attractive I find her.
- 
--u/bluejester12
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224793.jpg">
+11. Basketball star, Larry Bird.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041033/87301316/larry.jpg">
 
-11. I’m married to such a woman. And let me tell you there is nothing better than someone saying “let’s skip dessert and go f*ck in the back seat of the van like two teenagers.”
- 
--u/Senorpuddin
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224794.jpg">
+12. Former Green Bay Packers' QB, Don Majkowski.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041037/87301317/maj.jpg">
 
-12. I prefer it. For me, the challenge is finding a woman who is straightforward and has the sexual curiosity to be open to exploration.
- 
--u/Financial_Leg1087
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224795.png">
+13. Singer/musician, Kesha.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041041/87301318/kesha.jpg">
 
-13. If it happens it’s awesome! Sadly, all the action I’ve been getting is women telling me to go f*ck myself.
- 
--u/Illustrious_Yeti
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224796.jpg">
+14. Big Unit, former MLB pitcher, Randy Johnson.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041048/87301320/randy.jpg">
 
-14. Depends on my relationship with her. If it’s a S/O then it would be sweet. If it’s a coworker it would be creepy.
- 
--u/Hercdajerk35
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224797.png">
+15. Absolute smokeshow, actress, Scarlett Johansson.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041048/87301321/scarjo.jpg">
 
-15. Directness. I like. Pressure or aggressiveness I don’t like. That’s just me.
- 
--u/imregrettingthis
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224798.jpg">
+16. Uncle Jesse himself, John Stamos.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041054/87301322/stamos.jpg">
 
-16. If a woman came up to me and said "hey you're hot, you want to have sex with me?" I'd take it as just that, and if I found her attractive enough I'd say yes. Simply her asking me is +3 on the attractiveness score, and I'm not signing up for a marriage, just a bone.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224799.png">
+17. Country star, Reba McEntire.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041044/87301319/reba.jpg">
 
-I'm not even a huge fan of casual sex but women I would normally not approach, if all they're looking for is to satisfy physical needs and they approach me, I don't see the problem with saying yes. "Do but not date" is a legit category.
- 
--u/ichaleynbin
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224800.jpg">
+18. The Undertaker.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041107/87301323/taker.jpg">
 
-17. All women are straightforward with their sexual desires towards me. They don’t have any. It keeps life incredibly simple.
- 
--u/sleepyprojectionist
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224801.png">
+19. Like father like daughter, Miley Cyrus.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041107/87301324/miley.jpg">
 
-18. Kind of just happened to me. Earlier in the week, I was on a date at a local park. We're finished our hike and I walk her to her car. She then asks me if there's anything we can do to keep the date going. I tell her there's a local restaurant, and as I'm telling her this a light bulb goes off in my head. I then say, "we can go back to my place." She had the cutest smile and did a little wiggle/sway and said "OK." It was a fun night.
- 
--u/Dogdaydinners
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224802.jpg">
+20. Actress, Kristen Stewart.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041109/87301325/stewart.jpg">
 
-19. The better the communication, the better the sex will be.
- 
--u/Pyrrhic_Thoughts
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224803.jpg">
+21. Country musician, Toby Keith.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041112/87301326/toby.jpg">
 
-20. If they were straightforward, full stop, I would be over the moon.
- 
--u/YouProbablyBoreMe
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224804.jpg">
+22. Legendary country artist, Travis Tritt.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041113/87301327/travis.jpg">
 
-21. I wish more knew how to do that. We can't please you if we don't know what you like.
- 
--u/gibletgun
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87224805.jpg">
+23. Country legend, Alan Jackson.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041018/87301308/alan.jpg">
+
+24. Hockey legend, Wayne Gretzky.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041117/87301328/wayne.jpg">
+
+25. Actress, Zendaya.
+<img src="https://cdn.ebaumsworld.com/2022/11/07/041118/87301329/zendaya.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87224782/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87301303/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">24 Funny Posts That Were a Bit Too Specific</a>
-1. This dude wouldn't not make it. Or would he?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284954.jpg">
+## <a href="#link11" id="link10">Random Awesome Picture ORGY</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408183.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284951.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408184.jpg">
 
-3. Nods head in utter confusion.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284952.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408185.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284955.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408186.jpg">
 
-5. That explains a lot.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284956.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408187.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284957.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408188.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284958.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408189.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284960.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408190.jpg">
 
-9. Did you learn stick the easy way? Just kidding there is no easy way.  Only destroying your dad's clutch.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284961.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408191.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284962.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408192.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284963.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408193.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284964.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408194.jpg">
 
-13. That is not what we thought you were going to say.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284953.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408195.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284965.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408196.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284966.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408197.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284967.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408198.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284959.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408199.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284968.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408200.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284969.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408201.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284970.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408202.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284971.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408203.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284972.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408204.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284973.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408205.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284974.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408206.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408207.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408208.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408209.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408210.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408211.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408212.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408213.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408214.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408215.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408216.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408217.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408218.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408219.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408220.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408221.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85408222.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87284950/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85408182/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
