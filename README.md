@@ -1,830 +1,907 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 01.08.2023-13:45:19<br>All credits to ebaumsworld.com
+Last Updated 01.08.2023-16:45:19<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">27 Fascinating Photos Collected From History</a>
-1. 1890’s woman getting photographed for the first time
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302390.jpg">
+## <a href="#link1" id="link0">19 Pics Filled to the Brim With Stupidity</a>
+1. Did they realize the terrain wasn't repeating itself?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283499.jpg">
 
-2. Evicted sharecropper family in temporary camp, Butler County, Missouri, 1939
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302389.jpg">
+2. Surprise! It's still 2 pounds!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283492.jpg">
 
-3. Nap Time. 1950s.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302391.jpg">
+3. Great financial advice for the youth!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283512.jpg">
 
-4. These children from 8 years old up go to school half a day, and shuck oysters for four hours before school and three hours after school on school days, and on Saturday from 4 a.m. to early afternoon in Maggioni Canning Co., Port Royal, South Carolina, 1911. photo by Lewis Wickes Hine
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302392.jpg">
+4. Be careful of the inverted gravity crosswalk.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283493.jpg">
 
-5. A Waitress in a Diner taking a Break, New York, 1955. By Elliott Erwitt
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302393.jpg">
+5. Lorem Ipsum.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283491.jpg">
 
-6. 1925 Drexel Institute Girls’ Rifle Team.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302394.jpg">
+6. Well, many people from Texas do feel this way.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283496.jpg">
 
-7. Four contestants of the Halloween “Slick Chick” beauty contest in Anaheim, California in 1947.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302395.jpg">
+7. Buy or don't buy... it's the same!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283497.jpg">
 
-8. Post Office, Nethers, Virginia, 1935
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302396.jpg">
+8. Of course it must be every single college level student that got it wrong!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283502.jpg">
 
-9. Eberbach Elementary School Students Celebrate Halloween, Ann Arbor, Michigan, October 31, 1939. photo by Eck Stanger
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302397.jpg">
+9. No drinking at the drinking fountain either!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283503.jpg">
 
-10. A Pawnee woman preparing an animal skin at a campsite. Oklahoma, 1886.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302398.jpg">
+10. Now if only I can get it out of this packaging, I'll save so much time!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283514.jpg">
 
-11. Sharecropper & mother teaching her children numbers and alphabet at home in Louisiana, 1939.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302399.jpg">
+11. Well that really narrows down the search!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283504.jpg">
 
-12. In the days before fast-food, roadside picnics were the highlight of every road trip (pic from 1958 family vacation)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302400.jpg">
+12. Special deal! It's exactly the same as before!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283501.jpg">
 
-13. Fireman rescues Torah scrolls from a burning Synagogue, 1940’s.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302401.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283506.jpg">
 
-14. Ad for a 4-bedroom home in 1958
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302402.jpg">
+14. That is actually a big part of being unhealthy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283495.jpg">
 
-15. French Trench Raiders in WW1
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302403.jpg">
+15. What an astute prediction from this guy!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283507.jpg">
 
-16. Testing a tank prototype just before America joins WW1
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302404.jpg">
+16. Those poles might not stay up for much longer.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283509.jpg">
 
-17. Rows of artillery shells at the National Filling Factory in Chilwell. During WW1 1917
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302405.jpg">
+17. It's ok, they won't remember being offended.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283508.jpg">
 
-18. Sniper hides in fake horse carcass in no man’s land, WW1
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302406.jpg">
+18. Just your average Alabama picture frame.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283510.jpg">
 
-19. US .45 cal M1911 pistol with extended magazine and brass catching cage. In the early days of WW1 and aircraft didn’t have machine guns, enemy pilots would shoot at each other with pistols. The cage prevented the spent shells from ejecting onto the cockpit floor and interfere with the foot controls
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302407.jpg">
-
-20. Fake trees were used in WW1 as observation posts
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302408.jpg">
-
-21. Soilders paying tribute to 8 million donkeys, horses and mules that died during WW1
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302409.jpg">
-
-22. Sergeant Stubby was a WW1 war dog who warned soldiers of mustard gas and found wounded men. He served for 18 months and participated in 17 battles. He lived through the war and passed peacefully in 1926.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302410.jpg">
-
-23. Sgt. Stubby, perhaps the most decorated dog in history, leading a WW1 victory parade
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302411.jpg">
-
-24. Pigeons with cameras were used in WW1 for aerial reconnaissance
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302412.jpg">
-
-25. A unknown British soldier going through what it used to be “Shell Shocked”, known now as PTSD, with a thousand yard stare into the camera during WW1, 1916-1918.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302413.jpg">
-
-26. Soldiers celebrate the end of WW1, November 11th, 1918
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302414.jpg">
-
-27. “They buried him among the kings because he had done good toward God and toward his house.” The coffin of the Uknown Warrior before his internment in Westminster Abbey, a memorial to all British and Commonwealth troops killed during WW1 with no known grave. 11th November 1920
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87302415.jpg">
+19. Well hopefully he can still make a nice dinner for the family.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283513.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87302388/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87283490/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">32 Great Pics to Improve Your Mood</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386664.jpg">
+## <a href="#link2" id="link1">The Top 20 Most Anticipated Games Of 2017</a>
+1. Injustice 2
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165212.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386665.jpg">
+2. Scalebound
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165213.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386666.jpg">
+3. Sea of Thieves
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165214.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386668.jpg">
+4. Kingdom Come: Deliverance
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165215.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386667.jpg">
+5. The Legend of Zelda: Breath of the Wild
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165216.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386669.jpg">
+6. Agents of Mayhem
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165217.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386670.jpg">
+7. South Park: The Fractured But Whole
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165218.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386671.jpg">
+8. Mount & Blade II: Bannerlord
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165220.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386672.jpg">
+9. Crackdown 3
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165219.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386673.jpg">
+10. Vampyr
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165221.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386674.jpg">
+11. Sonic Mania
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165225.png">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386675.jpg">
+12. State of Decay 2
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165222.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386676.png">
+13. Outlast 2
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165223.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386677.jpg">
+14. Gran Turismo Sport
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165224.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386678.jpg">
+15. Divinity: Original Sin 2
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165226.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386679.jpg">
+16. Warhammer 40,000: Dawn of War III
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165227.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386680.jpg">
+17. Resident Evil 7: biohazard
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165228.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386681.jpg">
+18. NiOh
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165229.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386682.jpg">
+19. For Honor
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165230.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386683.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386684.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386687.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386685.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386688.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386689.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386691.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386686.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386693.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386695.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386697.png">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386699.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85386701.png">
+20. Prey
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85165231.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85386663/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85165211/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">32 Examples Of Clever Advertising Done Right</a>
+## <a href="#link3" id="link2">20 Fire Tweets Pulled from the Depths of the Internet</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335703.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/035953/87268051/IMG_5022.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335704.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/035954/87268052/IMG_5023.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335705.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/035956/87268053/IMG_5025.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335706.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/035957/87268054/IMG_5026.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335707.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/035959/87268055/IMG_5024.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335708.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040000/87268056/IMG_5028.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335709.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040002/87268057/IMG_5027.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335710.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040003/87268058/IMG_5030.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335711.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040005/87268059/IMG_5031.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335712.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040006/87268060/IMG_5029.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335713.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040008/87268061/IMG_5035.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335714.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040010/87268062/IMG_5036.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335715.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040012/87268063/IMG_5032.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335716.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040015/87268065/IMG_5038.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335717.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040013/87268064/IMG_5037.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335718.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040025/87268070/IMG_5042.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335719.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040018/87268067/IMG_5039.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335720.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040016/87268066/IMG_5034.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335721.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040020/87268068/IMG_5041.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335722.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335723.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335724.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335725.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335726.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335727.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335728.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335729.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335730.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335731.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335732.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335733.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335734.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/040022/87268069/IMG_5040.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85335702/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87268050/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">33 Awesome Photos To Start Your Day Won</a>
+## <a href="#link4" id="link3">Hilarious Dude Paints Over Graffiti With Readable Fonts</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405159.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174033.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405160.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174036.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405161.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174041.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405162.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174034.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405163.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174035.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405164.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174040.png">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405165.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174037.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405167.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174039.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405169.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174042.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405170.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174038.png">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405171.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174048.png">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405166.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174043.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405172.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174044.png">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405168.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174047.png">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405173.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174045.png">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405174.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405177.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405178.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405179.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405180.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405175.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405176.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405181.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405182.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405185.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405186.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405187.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405188.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405183.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405189.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405184.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405190.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85405191.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174046.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85405158/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85174032/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">21 Fascinating Historical Photos</a>
-1. Thelonius Monk, 1959
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302787.jpg">
+## <a href="#link5" id="link4">The Strangest Nastiest 'Roommates Wanted' Ad On Craigslist</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421437.png">
 
-2. Members of the Harlem Hellfighters in 1919.
-
-The “Harlem Hellfighters” were the first African American regiment in WWI who were assigned to the French forces. None were captured, never lost a trench, or a foot of ground to the enemy. They returned to the U.S. as one of the most successful regiments of World War I
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302788.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421438.png">
 
-3. Shortest, tallest and fattest men in Europe play cards. 1913
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302789.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421439.png">
 
-4. A 17-year old Frida Kahlo poses for a family photo wearing a traditional gentleman’s 3-piece suit, 1924
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302790.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421440.png">
 
-5. 8th grader Kurt Cobain playing drums at an assembly at Montesano High School, 1981
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302791.png">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421441.jpg">
 
-6. Private James Hendrix of the 101st Airborne, playing guitar at Fort Campbell Kentucky in 1962
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302792.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421442.jpg">
 
-7. Earliest known photo of Elvis Presley, with parents Gladys & Vernon in 1938
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302793.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421443.jpg">
 
-8. Samurai in Training, 1860
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302794.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421444.jpg">
 
-9. Enlisted men aboard an American ship hear the news of Japan’s surrender. 1945
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302795.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421445.jpg">
 
-10. A photo taken in secret of the Supreme Court in session, one of only two ever taken. 1932
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302796.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421446.jpg">
 
-11. The only known photograph of Abraham Lincoln at Gettysburg, before giving his famous address. November 19, 1863
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302797.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421447.jpg">
 
-12. A large crowd, made up of many African Americans, mourn the death of Abraham Lincoln outside the Courthouse in Vicksburg, Mississippi
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302798.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421448.jpg">
 
-13. Albert Einstein and Charlie Chaplin, 1931
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302799.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421450.jpg">
 
-14. In 1939 20,000 Nazi supporters held a rally in Madison Square Garden
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302800.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421451.jpg">
 
-15. Times Square, 1957
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302801.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421449.jpg">
 
-16. Paper boys at 2 A.M. about to start their morning rounds. February 12, 1908
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302802.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421452.jpg">
 
-17. The Mona Lisa stolen from the Louvre, 1911.
-
-Two years went by before the true culprit was discovered, an Italian petty criminal called Vincenzo Perugia who had moved to Paris in 1908 and worked at the Louvre for a time. He went to the gallery in the white smock that all the employees there wore and hid until it closed for the night when he removed the Mona Lisa from its frame. When the gallery reopened he walked unobtrusively out with the painting under his smock, attracting no attention, and took it to his lodgings in Paris.
-It was not until November 1913, calling himself Leonardo Vincenzo, that Perugia wrote to an art dealer in Florence named Alfredo Geri offering to bring the painting to Italy for a reward of 500,000 lire. He travelled to Florence by train the following month, taking the Mona Lisa in a trunk, hidden beneath a false bottom. After booking into a hotel, which subsequently shrewdly changed its name to the Hotel La Gioconda, he took the painting to Geri’s gallery. Geri persuaded him to leave it for expert examination and the police arrested Perugia later that day.
-Perugia apparently believed, entirely mistakenly, that the Mona Lisa  had been stolen from Florence by Napoleon and that he deserved a reward for doing his patriotic duty and returning it to its true home in Italy. That was what he said, at least. Many Italians welcomed the masterpiece home; people flocked to see it for a time at the Uffizi Gallery, some of them weeping with joy, and Perugia served only a brief prison sentence. The great painting was duly returned to the Louvre and has hung there safely and enigmatically ever since.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302803.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421453.jpg">
 
-18. A war-weary French woman pours a British soldier a cup of tea during the fighting following the Allied landings in Normandy. 1944
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302804.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421454.jpg">
 
-19. Adolf Hitler speaking with Princess Olga of Yugoslavia, 1939
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302805.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421455.jpg">
 
-20. Men working in the rigging of the three-masted steel barque Garthsnaid, 1920
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302806.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421456.jpg">
 
-21. Prince Charles and Princess Diana on vacation in Bahamas, 1982
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85302807.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421457.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421458.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421459.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421460.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421461.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421462.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85421463.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85302786/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85421436/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">18 Sexually Oriented Facts That Will Arouse Your Interest</a>
+## <a href="#link6" id="link5">33 Fun Fascinating Photos To Fuel Your Day</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772269.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487932.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772268.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487927.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772270.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487928.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772271.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487929.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772272.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487930.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772273.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487934.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772274.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487935.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772275.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487937.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772276.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487939.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772277.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487940.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772278.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487926.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772279.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487931.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772280.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487942.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772281.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487943.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772283.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487944.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772285.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487945.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772284.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487933.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/83772282.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487946.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487941.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487948.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487949.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487951.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487954.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487955.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487956.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487957.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487958.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487959.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487960.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487961.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487962.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487963.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85487965.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/83772267/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85487925/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">22 Liars Getting Called Out On Their Bullshit</a>
+## <a href="#link7" id="link6">34 Cringeworthy Photos That Bring On The Facepalm</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323840.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123649.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323841.jpeg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123650.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323842.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123677.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323843.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123680.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323844.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123683.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323845.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123651.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323846.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123652.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323847.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123653.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323848.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123654.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323849.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123655.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323850.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123656.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323851.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123657.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323852.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123659.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323853.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123660.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323854.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123661.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323855.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123662.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323856.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123663.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323857.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123664.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323858.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123666.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323859.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123667.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323860.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123668.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85323861.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123669.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123670.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123672.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123673.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123674.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123675.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123676.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123678.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123679.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123681.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123682.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123684.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85123686.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85323839/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85123647/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">Interesting Historical Pics That Will Take You Back In Time</a>
-1. A boy watches television for the first time through a shop window, 1948.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237574.jpg">
+## <a href="#link8" id="link7">23 Pictures of The Most Expensive Home Ever Sold</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064924.jpg">
 
-2. Soldiers of the Caucasus, early 20th century.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237575.png">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064925.jpg">
 
-3. Fishermen of the Volga river, Russia, with their impressive catch, 1924.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237576.png">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064926.jpg">
 
-4. A sixteen-year-old Arnold Schwarzenegger at his first body-building competition.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237577.png">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064927.jpg">
 
-5. Surfers, 1922.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237578.png">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064928.jpg">
 
-6. An Iranian woman, 1960.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237579.png">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064929.jpg">
 
-7. King George VI of Britain, 1938.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237580.png">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064930.jpg">
 
-8. A graduation ceremony, 1895.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237581.png">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064931.jpg">
 
-9. The brothers Adolf and Rudolf Dassler, who founded famous sports companies Adidas and Puma.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237582.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064932.jpg">
 
-10. Linda Christian, the first "Bond girl", 1945.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237573.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064933.jpg">
 
-11. Famous poet Joseph Brodsky with his students, Michigan, 1980s.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237583.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064934.jpg">
 
-12. James Naismith, the creator of basketball, with his wife.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237584.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064935.jpg">
 
-13. Margaret Hamilton, the principal software engineer for NASA, 1969.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237585.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064936.jpg">
 
-14. Geishas, Japan, 1920s.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237586.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064937.jpg">
 
-15. Fawzia Fuad, Princess of Iran and Queen of Egypt, 1939.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237587.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064938.jpg">
 
-16. A young Inuit girl and her husky dog, 1949.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237588.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064939.jpg">
 
-17. Players of the Toronto Maple Leafs and the Chicago Black Hawks search for Jack Evans’ lost contact lens during an ice hockey game, 1962.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237589.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064940.jpg">
 
-18. Princesses Olga and Tatyana of the Russian royal family before the Revolution, 1913.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237590.png">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064941.jpg">
 
-19. The Opening Ceremony of the XXII summer Olympic Games, Moscow, 1980.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85237591.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064942.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064943.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064944.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064945.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/85064946.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85237572/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85064923/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">Dad Trolls The F*ck Out Of His Daughter</a>
-1. This is Cassie, she spends her time posting selfies much to her dad's dismay.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85069888.jpg">
+## <a href="#link9" id="link8">32 After Sex Selfies Posted By Some Braggy People</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257148.jpg">
 
-2. So he decided to do this.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85069889.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257133.jpg">
 
-3. Cassie's father Martin looks at her selfies and duplicates them.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85069890.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257151.jpg">
 
-4. He hopes it would stop her.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85069891.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257126.jpg">
 
-5. Some say his selfies are better than hers...
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85069892.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257127.jpg">
 
-6. ...while she says "Help! My dad is harassing me!"
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85069893.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257128.jpg">
 
-7. Well she stopped complaining because her dad's plan backfired- it gave her and her profile much attention and followers. We still cheer for the worried dad though.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85069894.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257129.jpg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257130.jpg">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257124.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257123.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257131.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257132.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257134.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257135.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257136.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257137.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257138.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257139.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257140.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257141.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257142.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257143.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257125.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257144.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257145.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257146.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257147.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257149.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257150.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257152.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257153.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85257154.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85069887/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85257122/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">If Historical Figures And World Leaders Tweeted Like Donald Trump</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232450.png">
+## <a href="#link10" id="link9">20 Celebrities Who Lost Their Virginity At A Young Age</a>
+1. Paris Hilton was only 15 when she lost her virginity, but you'll never guess to who.
+It was Randy Spelling, the son of Aaron Spelling and brother to Tori Spelling. He was 17 at the time, which might explain why Hilton's grams didn't approve of the relationship. Ultimately, the two broke it off after two months together.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217370.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232451.png">
+2. Steven Tyler, the front runner for Aerosmith gave it up at... brace yourself... age 7!
+But as traumatic as it may sound, he actually looks back fondly at the memory, which occurred while sitting in between two French twins at his church's choir. He's been fond of twins ever since, which might explain why his ex-wife was a twin and his girlfriend was one too.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217371.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232452.png">
+3. Lil Wayne was only 11 when he lost his virginity, which shocked the hell out of a lot of people.
+The rapper said that he was playing a game of "Win, Lose or Draw" which got super kinky when the 13-year-old girl he was playing with wrote "F—k me", on the board.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217372.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232453.png">
+4. Johnny Depp was always a rebel. So it should come as no surprise that "Sweeney Todd" lost his virginity at 13.
+He was already living too fast by smoking, drinking and doing drugs at the age of 12. But at 13 he had sex with a groupie in the back of his band's van. It's ironic that his band was called "The Flame" as his hormones were clearly on fire.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217373.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232454.png">
+5. With a dad as wacky as Ozzy Osbourne, it's no wonder Kelly Osbourne lost her virginity at 13.
+But things got pretty scary when she hadn't gotten her period a couple of weeks after she had sex. So she became obsessed with the fear that she was pregnant. Fortunately, she wasn't.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217374.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232455.png">
+6. Agent Scully would never screw a Neo-Nazi, but 13-year-old Gillian Anderson was a different story.
+During an interview with FHM, Anderson admitted that she lost her virginity to a punk who later turned into a Neo-Nazi. But she wasn't proud of the moment and admits that it was embarrassing and she tried to put the memory of her first time behind her.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217375.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232456.png">
+7. Matthew McConaughey was always hot, which is how he ended up losing his V-card at 15.
+But don't ask him for anymore details because during an interview for Playboy he pretty much shot down the interviewer and told them that it was none of their business.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217376.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232457.png">
+8. Dustin Hoffman loves the library, especially the nonfiction section, but not because he likes books.
+When he was 15, he lost his virginity to an older woman in that section. So we suppose that reading really is fundamental.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217377.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232458.png">
+9. Britney Spears initially fooled a lot of people into thinking she was a virgin when she started dating Justin Timberlake.
+But it turns out that she lost her virginity at 14 to her much older football player boyfriend who was five years her senior. But of course she didn't want to tarnish her angelic image. So she and Justin decided to tell a little white lie for a number of years, until the truth eventually came out.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217382.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232459.png">
+10. Anthony Kiedis lost his virginity at age 12 and his father gave him his blessing to do it too.
+If you thought that was creepy, it gets creepier. The Red Hot Chili Peppers front man revealed that his dad pimped his 18-year-old girlfriend to Anthony and even allowed him to use his bed.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217378.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232460.png">
+11. At 14, Jaime Pressly was pretty busy landing modeling contracts with Teen Magazine and apparently, losing her virginity.
+She admitted to Howard Stern that she lost her virginity at 14 but because she was young, the experience wasn't very good and the guy didn't even finish.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217379.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232461.png">
+12. In the book "Kardashian Konfidential", Khloe admitted to losing her virginity at 14.
+But apparently the guy thought she was 16 when they did it. Not that it would have mattered as Khloe claimed the guy was a lot older and very manipulative. After her first time, she had a tough time adjusting to her daily routine.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217380.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232462.png">
+13. When Snooki was 14, she lost her virginity to a guy who had saran wrap on his penis because he didn't have a condom.
+The former "Jersey Shore" star may not have been very shy about her sexual experiences, but she admits that her first time occurred during an experimental phase at a very stupid time in her life and she regrets it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217381.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232463.png">
+14. Many consider Angelina Jolie to be Hollywood royalty but the day she lost her virginity was a very odd moment in her life.
+She had sex with her high school boyfriend when she was 14. Then things got a little weirder when she allegedly grabbed a knife and cut her boyfriend and he cut her back as a way of connecting on a physical and emotional level.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217383.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232465.png">
+15. Robin Thicke is well known for being outspoken about his sexual adventures and desires.
+So it shouldn't really shock anyone that he lost his virginity at 13. But when Howard Stern asked the sexy singer if he would have done anything differently during his first time, Thicke admitted that he would have wanted to make it last 30 seconds longer.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217384.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/2017/01/04/053451/85232466/alex333.jpg">
+16. Sean Combs, aka P. Diddy told Playboy Magazine that he had been trying to lose his V-Card since age 7.
+He even tried to do it by climbing on top of a girl who was nine or ten, but his mother and babysitter stopped him. So it wasn't until he was 13 that he managed to lose it at a cheap hotel in the Bronx, and he's not ashamed for having his first experience there either.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217385.jpg">
+
+17. "Lost" star Matthew Fox lost his virginity by a river when he was 12 in Dubois, Wyoming.
+But he told Playboy that although he did it with a much older and experienced person, the moment was awkward and terrible. It did however serve as a starting point for some more pleasurable moments later on when he went to college.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217386.jpg">
+
+18. During an interview with Men's Journal, Josh Brolin admitted to losing his virginity when he was 11.
+Unfortunately he didn't give a whole lot of detail about the experience other than the fact that the girl was called Greta.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217387.jpg">
+
+19. Chris Brown was already subjected to sexual imagery at a young age thanks to his male cousins.
+But it's not what you think. They all watched porn together, which would make any 8-year-old really curious. So at that very age, he gave it up to a girl who was about 15 and he's been proud of the experience ever since.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217388.jpg">
+
+20. When Katy Perry lost her virginity, she lost it to Jeff Buckley's album "Grace".
+The pop superstar was only 16 and in the front seat of a Volvo Sedan when she gave up her V-card. She admitted that she loved the record a lot to GQ Magazine in 2014. But she didn't clarify whether she loved her first time equally as much.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85217389.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85232449/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85217369/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">18 People Who Shared Way Too Much Online</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317137.jpg">
+## <a href="#link11" id="link10">22 Interesting Pics to Pass the Time With </a>
+1. “I’ve been holding onto a stack of “Y2K Compliant” stickers since 1999.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232280.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317139.jpg">
+2. “A scorpion drinking the condensation off of my beverage.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232306.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317140.jpg">
+3. “These guitars cast shadows on the wall that look like dragons.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232281.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317141.jpg">
+4. “The ear-shaped handle broke off of my Vincent van Gogh coffee mug.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232282.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317142.jpg">
+5. “I found vintage, hand typed smut in the walls of my garage.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232283.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317143.jpg">
+6. “The way you have to milk this pig to get your bbq sauce at this restaurant.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232284.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317144.jpg">
+7. “My parents 45 year old microwave still works perfectly.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232285.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317138.jpg">
+8. “Saw a black squirrel with a different colored tail.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232286.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317145.jpg">
+9. This camp site has a translated sign for teens.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232293.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317146.jpg">
+10. “I walked out on a 122yr old bridge that was destroyed by a tornado in 2003.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232294.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317147.jpg">
+11. “This restaurant that charges by height”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232295.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317136.jpg">
+12. “My dogs medication has a warning about operating heavy machinery.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232296.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317148.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232297.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317149.jpg">
+14. “These coins were stuck in an agitator in my dryer for years.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232298.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317150.jpg">
+15. “This Land Rover parked in the overhead bin.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232299.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317151.jpg">
+16. “My grumpy cat’s second heart.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232300.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317152.jpg">
+17. “The owner of this home shipped it 3 neighborhoods away.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232301.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87317153.jpg">
+18. “The ticket inspector punched a tiny train into my rail ticket.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232302.jpg">
+
+19. “My (new) adidas slides vs my dad’s 20 year old ones. Design unchanged.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232303.jpg">
+
+20. “A mosquito sucked some of the blood out of my bruise.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232304.jpg">
+
+21. “Official 10 code cup I’ve had since I was a kid.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232305.jpg">
+
+22. “The Sun bleach on my side gate.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87232307.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87317135/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87232279/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
