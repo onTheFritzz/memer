@@ -1,1007 +1,1114 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 01.14.2023-01:45:18<br>All credits to ebaumsworld.com
+Last Updated 01.14.2023-04:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">Man Poses as Target on Facebook, Trolls Angry Customers</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696191.jpg">
+## <a href="#link1" id="link0">26 Trashy People Who Stink Like Mold</a>
+1. Some people think they're the only ones on the plane.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122603/87299713/stinky4.png">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696194.jpg">
+2. I think it's even worse actually.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122628/87299723/stinky11.png">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696195.jpg">
+3. The new dress code at Little Ceasers.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122605/87299715/stinky2.png">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696196.jpg">
+4. If only there were a way to do this...
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122600/87299712/stinky3.png">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696197.jpg">
+5. She does look like she's enjoying that toe sucking though.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122604/87299714/stinky5.png">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696198.jpg">
+6. Some deep sea scuba diving going on.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122609/87299716/stinky6.png">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696199.jpg">
+7. The poor child.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122614/87299717/stinky7.png">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696202.jpg">
+8. Those guys seem pretty pleased about it though.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122615/87299718/stinky8.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696200.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122617/87299719/stinky10.png">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696201.jpg">
+10. Hopefully this sign shouldn't be needed?
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122618/87299720/stinky9.png">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696203.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122621/87299721/stinky12.png">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696205.jpg">
+12. After a university Halloween party.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122556/87299711/stinky1.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696206.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122624/87299722/stinky13.png">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696207.jpg">
+14. This is just so gross.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122630/87299724/stinky15.png">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696208.jpg">
+15. Well... I guess as long as you think so right?
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122638/87299725/stinky16.png">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696209.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122645/87299726/stinky14.png">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696210.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122648/87299727/stinky18.png">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696211.jpg">
+18. Just remember, she does NOT buy potato gravy.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122650/87299728/stinky17.png">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696214.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122654/87299729/stinky20.png">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696215.jpg">
+20. But did she hit the high note?
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122658/87299730/stinky19.png">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696216.jpg">
+21. With a lisp like that it sounds like he needs them.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122707/87299731/stinky22.png">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696217.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122708/87299732/stinky21.png">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696218.jpg">
+23. I'm in full support of this.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122709/87299733/stinky23.png">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696219.jpg">
+24. In fairness that shrimp doesn't look too good.
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122711/87299734/stinky24.png">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696220.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696221.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696222.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696223.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696224.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696225.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696226.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696227.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696228.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696229.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696230.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696231.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696232.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696233.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696234.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696235.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696236.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696237.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696238.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/952594/84696190.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/11/04/122713/87299735/stinky25.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/84696189/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87299710/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">58 Pics We Had to See To Believe</a>
-1. Living the dream.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262505.jpg">
+## <a href="#link2" id="link1">22 Fascinating Facts That Will Decapitate Your Boredom  </a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424582.jpg">
 
-2. Free Willy, baby!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262508.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424583.jpg">
 
-3. Sign me up.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262522.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424584.jpg">
 
-4. Well that's just the cutest thing ever.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262504.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424585.jpg">
 
-5. Sunsets/sunrises never get old.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262506.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424586.jpg">
 
-6. Lord of the Rings vibes.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262507.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424587.jpg">
 
-7. Just watching their favorite show.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262503.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424588.jpg">
 
-8. A little close for comfort.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262515.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424589.jpg">
 
-9. The sky's the limit.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262509.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424593.jpg">
 
-10. I'm blue daba dee daba die.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262510.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424590.jpg">
 
-11. Just some best friends.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262511.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424591.jpg">
 
-12. This is peak relaxation.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262512.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424592.jpg">
 
-13. Lightning is wild.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262513.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424594.jpg">
 
-14. Nothing better than a bonfire.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262514.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424595.jpg">
 
-15. Black and white photo appreciation.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262516.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424596.jpg">
 
-16. End of the world looks bada**.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262517.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424597.jpg">
 
-17. Welp. That's cuteness overload.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262518.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424598.jpg">
 
-18. Is this heaven?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262501.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424599.jpg">
 
-19. It's cool, I'll just stay right here.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262502.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424600.jpg">
 
-20. Who said cats hate dogs?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262519.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424601.jpg">
 
-21. Pure eye candy.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262520.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424602.jpg">
 
-22. This could be a painting.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262521.jpg">
-
-23. So many balloons.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262523.jpg">
-
-24. I want to be in this water.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262524.jpg">
-
-25. If the word epic were a photo.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262525.jpg">
-
-26. The goodest boy.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262526.jpg">
-
-27. Where is this??
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262527.jpg">
-
-28. Too effing cute.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262528.jpg">
-
-29. Peaks on peaks!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262529.jpg">
-
-30. Recreating their wedding photo.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262500.jpg">
-
-31. 18 years apart.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262530.jpg">
-
-32. Nature is gorgeous.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262531.jpg">
-
-33. Can I live here?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262532.jpg">
-
-34. Forget the cats, look at those jowls.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262533.jpg">
-
-35. Take me there.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262534.jpg">
-
-36. Just hanging out.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262535.jpg">
-
-37. Drinking champagne under the Northern Lights.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262536.jpg">
-
-38. Killer Whale sighting!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262537.jpg">
-
-39. Friends til the end.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262538.jpg">
-
-40. Fun in the sun.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262539.jpg">
-
-41. Brought a hiking buddy.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262540.jpg">
-
-42. And they say romance is dead.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262541.jpg">
-
-43. Leave me alone.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262542.jpg">
-
-44. A little cheesy, but I dig it.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262543.jpg">
-
-45. Brought back a souvenir.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262544.jpg">
-
-46. This is the future!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262545.jpg">
-
-47. What movie are you watching here?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262546.jpg">
-
-48. Camping never looked so good.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262547.jpg">
-
-49. Cuddles. All of the cuddles.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262548.jpg">
-
-50. I'm the king of the world!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262549.jpg">
-
-51. I'm all about this set up.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262550.jpg">
-
-52. Unlikely friends in nature.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262551.jpg">
-
-53. Okay now you're just showing off.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262552.jpg">
-
-54. Room with a view.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262553.jpg">
-
-55. This picture is putting me to sleep, in the best way possible.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262554.jpg">
-
-56. Paradise. That's all.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262555.jpg">
-
-57. Made a new friend.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262556.jpg">
-
-58. Yup, booking a flight.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262557.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85424603.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87262499/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85424581/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">25 Hilarious Parents Who Have Mastered The Art Of Trolling</a>
+## <a href="#link3" id="link2">32 Of The Best "Gotchu Fam" Memes</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050947.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245880.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050948.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245886.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050949.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245876.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050950.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245877.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050951.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245878.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050952.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245887.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050953.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245879.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050954.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245881.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050957.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245882.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050955.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245883.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050956.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245884.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050958.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245885.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050959.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245888.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050960.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245889.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050961.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245890.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050962.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245891.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050963.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245892.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050964.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245893.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050965.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245894.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050966.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245895.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050967.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245896.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050968.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245897.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050969.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245898.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050970.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245899.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050971.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245900.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245901.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245902.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245903.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245904.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245905.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245906.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85245907.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85050946/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85245875/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">27 Sad But True Pics About Life That'll Make You Laugh</a>
+## <a href="#link4" id="link3">22 Hilariously Tragic Grandparents Who Need To Get The Hell Off Facebook</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236359.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447276.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236380.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447277.jpg">
 
-3. Oh look, all the jobs you're qualified for...
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236363.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447278.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236362.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447279.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236382.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447280.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236366.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447281.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2017/01/10/114852/85236855/85236227.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447282.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/2017/01/10/114839/85236854/85236205.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447283.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236365.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447284.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236384.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447285.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236369.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447286.png">
 
-12. Great job.. your RUINED them!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236370.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447287.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236364.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447288.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236371.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447289.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236372.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447290.png">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236373.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447291.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236374.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447292.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236361.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447293.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236375.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447294.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236376.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447295.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236378.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447296.png">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236360.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236379.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236381.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236385.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236386.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85236387.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85447297.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85236358/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85447275/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">41 Funny Pics and Gifs That Should Crack You Up</a>
+## <a href="#link5" id="link4">41 Dank Memes Of The Week</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215864.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274216.jpg">
 
-2. 2 Fast 2 Festive
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215865.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274214.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215866.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274218.jpg">
 
-4. Fish in the cooler prank
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215867.gif">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274224.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215870.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274215.jpg">
 
-6. Game of the year
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215868.gif">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274223.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215873.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274220.jpg">
 
-8. Zamboni driver in the making
-<img src="https://cdn.ebaumsworld.com/2016/12/13/081531/85215904/6_zamboni-driver-in-the-making.gif">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274222.jpg">
 
-9. So, two quarts?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215874.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274227.jpg">
 
-10. Nailed it
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215869.gif">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274213.jpg">
 
-11. You won't believe the quality of this photo unless you zoom in
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215875.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274228.jpg">
 
-12. Woody after Toy Story
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215876.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274229.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215877.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274230.jpg">
 
-14. Yelp only has 2.5 stars on Yelp
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215878.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274232.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215879.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274233.jpg">
 
-16. Camera guy instanty realized his mistake
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215880.gif">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274234.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215871.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274235.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215881.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274237.jpg">
 
-19. Introvert at it's finest
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215872.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274238.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215882.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274239.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215883.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274240.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215884.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274241.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215885.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274242.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215886.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274243.jpg">
 
-25. Google knows
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215887.jpg">
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274244.jpg">
 
-26. He needs to get that mole on his arm checked out
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215888.jpg">
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274245.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215889.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274247.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215890.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274248.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215891.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274249.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215892.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274250.jpg">
 
 31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215893.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274251.jpg">
 
-32. Don't hate!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215894.gif">
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274252.jpg">
 
-33. When you own a truck and your friend is moving
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215895.jpg">
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274254.jpg">
 
 34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215896.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274255.jpg">
 
-35. Busted!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215897.jpg">
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274256.jpg">
 
-36. Someone didn't enjoy him filming the cheerleaders
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215898.gif">
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274257.jpg">
 
 37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215899.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274258.jpg">
 
 38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215900.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274260.jpg">
 
 39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215901.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274261.jpg">
 
 40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215902.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274262.jpg">
 
-41. When the floor is lava and the fools don't know it
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85215903.gif">
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274263.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85215863/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85274212/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">26 Fascinating Facts About The Avengers Movie</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316248.jpg">
+## <a href="#link6" id="link5">27 Greatest Movie Props And The Interesting Stories Behind Them</a>
+1. The Talkboy, Home Alone 2 (1992)
+Roger Shiffman, founder of Zizzle L.L.C. and former President of Tiger Electronics: “I worked directly with John Hughes. He came to my office a few times. His original concept in the script was for Macaulay Culkin to have a gun. I said, ‘Look you can’t have a gun at the airport. It just doesn’t fly at O’Hare.’ So I told him to let me work on it.
+“We actually designed the Talkboy ourselves, which is why it has the design it has, with the grip where he could slide his hand into and the extending microphone so it looked more lifelike. We had not [done a recorder before that] and what was interesting is how big a deal it was for us and Fox. Fox made the introduction with John, but I made a deal with them for a modest royalty I’d continue to build the brand. We went on to do a tremendous amount of volume — there are videos of people fighting over them — but the big success only came when they sold the VHS tape. It was the largest distribution, I think 10 million tapes, and every one had a printed brochure for Talkboy, saying it was a real product you could get.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414315.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316228.jpg">
+2. The knife, Psycho (1960)
+Alfred Hitchcock, director (in the book Hitchcock, 1966): “It took us seven days to shoot [Marion’s stabbing] and there were seventy camera setups for forty-five seconds of footage. We had a torso specially made up for that scene, with the blood that was supposed to spurt out from the knife, but I didn’t use it. I used a live girl instead, a naked model who stood in for Janet Leigh. We only showed Miss Leigh’s hands, shoulders, and head. All the rest was the stand-in. Naturally, the knife never touched the body; it was all done in the montage. I shot some of it in slow motion so as to cover the breasts. The slow shots were not accelerated later on because they were inserted in the montage so as to give an impression of normal speed…. This is the most violent scene in the picture. As the film unfolds, there is less violence because the harrowing memory of this initial killing carries over to the suspenseful passages that come later.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414316.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316229.jpg">
+3. The One Ring, The Lord of the Rings trilogy (2001-2003)
+Grant Major, production designer: “Tolkien’s idea of the ring, though highly descriptive in its origin and the terrible power it has over its wearer, was described physically as being a simple golden band. This band is able to expand and shrink to fit the hand that wears it and when heated reveals a phrase in Black Speech: ‘One ring to rule them all, one ring to find them, One ring to bring them all and in the darkness bind them.’
+“When first tasked with the design of this most important prop for The Fellowship of the Ring, I thought it would probably take forever to agree on its look with the director, producers, the studio, LOTR experts, and fans all weighing in. You can imagine the visual significance to the film, the marketing, and other spin-offs, and how this iconic object would have to endure all sorts of ongoing scrutiny and re-production.
+“It’s interesting to understand that, at this phase of development in late 1998, the film project was completely under the radar, with none of the hype that surrounds it now. And Peter Jackson had the last word in all these design decisions. As it transpired, the overall design concept was quick and easy, one of the producers, Rick Porras, was about to be married and the ring he had chosen was identified as a good starting point for ‘The One Ring.’ Its profile was perfectly bulbous and ‘weighty’ and had a significant ‘historic’ look, was well proportioned and simple enough to carry the phrase on its internal and external surfaces. Alan Lee produced some additional sketches of the ring but it didn’t change significantly from this first idea. A local jeweler from Nelson, New Zealand, Jens Hansen, was chosen to make these ring props. After various prototypes were produced, a final version was chosen and then multiples were made (around 40, I understand) for the actors and doubles in various units, many more were made latterly for publicity and gifts.
+“There were also versions made for specific moments in the story; an extra large one (way over scale) was used for a super close up when placed on a table (also over scale) in Bag End to achieve a forced perspective effect. Another version was made from a magnetic metal so that when dropped onto the floor inside the front door of Bag End it would appear heavy and not bounce. From memory, there was never a version with the glowing lettering — this became a visual effect. The lettering itself was a direct copy of that found in the book. But it was such a privilege help to bring this iconic prop to life and see how it has now become the definitive version for this movie phenomenon.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414317.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316230.jpg">
+4. The red and blue pills, The Matrix (1999)
+Owen Paterson, production designer: “Lana and Lilly [Wachowski] are true geniuses… I would have specific conversations with them about that scene. It takes place in a hotel that is essentially closed down. It’s derelict. They had this beautiful expression [for it], which was ‘putrid decay.’
+“I can’t remember what was in the pills, but there were discussions with doctors, so if anyone had have swallowed them by mistake, then it would be safe. It was just something that had to be blue and something that had to be red — I believe we used gelatin caps. It was quite simple the way that was set up. The other really interesting thing was there were certain shots [in the scene] that were physically impossible to do. One is in the spectacles that [Morpheus] is wearing, you’ll notice the left and right hand — and I think the right hand is the red pill and the left hand is the blue pill — but they are held up to the eye… The scene was shot so that the two separate hands were shot and both placed into those glasses. You would never know.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414318.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316231.jpg">
+5. The chainsaw, The Texas Chain Saw Massacre (1974)
+Tobe Hooper, director: “I needed an old saw. A saw that had character from age. One of the investors in the movie happened to have an old saw in his garage. [We had] just that one. Of course production-wise, that’s almost unheard of. That thing could’ve been damaged, stolen, ruined. Leatherface fell with it a couple of times. We were a bit cavalier about being careful with it. So we got another chain for the saw and took all of the teeth off it. Then we took the clutch out of the saw itself to see what would happen. If you rev the engine, the chain without that piece would naturally vibrate around in a circle. So the film only reads that it’s spinning. That made it safe for running with it.
+“But when it came to a shot where we had to cut something with the saw, we had to put the clutch back in and the chain with teeth back on. It has to go through Leatherface’s pants when he falls at the end of the film. So the clutch goes back in and a piece of metal goes on his leg and underneath there’s meat wrapped in plastic with a lot of stage blood inside it. It ripped through the steak and down to the steel plate that heated to up to maybe 150 degrees because of the friction. His reaction of pain was real. It burnt him. Not real real bad, but enough to make him jump. I didn’t want [the actors] calm at all. It was a miserable shoot, and that misery brought out pure and real fear. I later heard from [Gunnar Hansen] giving interviews that doing that final shot was his last opportunity to kill me, that he worked that dance up, swinging that saw close to me. It’s right up to the camera. So ending on that, just cutting to black at the peak of the hysteria was totally natural. You’re left breathless.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414319.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316232.jpg">
+6. The hoverboard, Back to the Future Part II (1989)
+John Bell, visual effects art director: “[Director] Bob Zemeckis and [screenwriter] Bob Gale — they’re the guys who came up with the thing. I had to visualize what they envisioned. I was working at [Industrial Light & Magic] in 1986 and the project hadn’t officially started yet. But our management came in and said, ‘Bob Zemeckis wants to shoot Back to the Future II, we go to 2015, and there’s something called a hoverboard. Come up with some ideas.’ So I took about a month or so and just started doing random images of different parts of Hill Valley and scenes with hoverboards. We sent down slides to him — because he was now fully involved with Roger Rabbit — and we didn’t hear back for a long time. The next time we heard from him was the fall of 1988. I got pulled into a meeting with Rick Carter, who was the production designer on the film, and he had seen the work I did in ’86 and said, ‘Can we get John to come down to our art department down at Universal Studios for just a couple weeks?’ So I went on loan for what was supposed to be a couple weeks… and wound up being there for four to five months.
+“Before I was on loan in the department in Los Angeles, I worked with Steve Gawley and Richard Miller in the [ILM] Highland model shop on the early designs for the hoverboard, which at the time were bigger, more like skimboards or snowboards — bigger, wider, almost like a truncated surfboard. And they had a lot of stuff attached to them, because I’d been paying attention to a lot of skateboard culture in the mid-’80s. You notice how much they modify and personalize their boards, mainly stickers. So I thought in 2015, if these things could fly, maybe they’d put wings on them, different jet engines, they’d soup them up like a hot rod. These early boards were super complex, but when you start getting into production, and you realize they have to make multiples of all these things, it just got too cost prohibitive. The silver lining is that the final version of the hoverboard is so simplistic in its shape, with crazy graphics, that the magic is the power inside of it. You don’t understand it, but you enjoy using it. It’s like a cell phone.
+“Rick Carter and I would chuckle about it. We had to put a different kind of thinking cap on this one. We were going 30 years in the future to a place called the Cafe ’80s, but we’re in the 1980s. So what was going to be relevant 30 years from now? Luckily the ’80s were so graphic driven, so colorful, it made that part of it easier. There’s that neon pink. In the 1984 Olympics you had pink and turquoise and peachy gold, and neon was a big driving fashion force at the time. At one point, Swatch was going to be proposed with doing sponsorship for the hoverboard when they were looking at branding for the thing, so we did some drawings with Swatch, and they were bold with colors. But you had to think what would resonate.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414320.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316233.jpg">
+7. The neuralyzer, Men in Black (1997)
+Bo Welch, production designer: “[The neuralyzer] does a very complicated task, so I thought the simpler it looked, the better. The shape is sort of born out of the Space Race and alien technology, and therefore is very streamlined. We didn’t want it to be so big and bulky in their otherwise lovely silhouette black suit and black tie. So it had to be small enough yet significant enough to be like, What the hell is that? Once you hit a button it pops up to roughly twice its length. It gets your attention… I know we made a number of them. Tommy Lee Jones was particularly rough on that prop, where he would sort of manhandle it… He actually broke a couple. Then it was, ‘Oh my god, go get another neuralyzer!'”
+Scott Maginnis, assistant property master: “We were still shooting film at the time, and sometimes when you shoot a gun on camera, you miss the flash on screen because it goes between the fiftieth of a second — it goes off between that. One of the pains in the asses with [the neuralyzer] was getting something that would go off between that fiftieth of a second because they wanted a bright flash. So I ended up buying old flash cubes that went on cameras. We pulled the elements from those and put them in there, so each take you’d have to swap it out and put another one in there. But they had a long enough burn to ensure it would go long enough on screen. Bo Welch gets a lot of credit for that. He’s brilliant.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414321.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316234.jpg">
+8. The inflatable co-pilot, Airplane! (1980)
+David Zucker, co-director/co-writer: “We had this idea to personify an auto pilot. I think we had an artist draw a conception of it. We modeled it after that kind of cliché image of a pilot [in] comical, blow-up form. The prop department had an air hose that they just blew up in seconds. Then they had it rigged so it would blow up at whatever rate of speed we needed for the scene.
+“I don’t remember who specifically came up with the joke. We would sit around the table and think of these things. Jokes were added on as we would write. The hands grabbing her breasts are always a good laugh. When we said, ‘Oh it’s deflating,’ we had her blow it up again, so then the idea was to put the deflator in the guy’s lap… And then how that would look to Leslie Nielsen, who was just happening to enter the cockpit from behind. So all these things kind of all worked. For the ending, somebody, I think a grip, came up with the idea to have a Mrs. Pilot come up. Then he winks and the special effects people rigged all that up.
+“I think that my brother, Jerry, may have it in his garage now. The paint has kind of deteriorated a lot because I think it was repainted to be Mrs. Pilot for the end scene.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414322.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316240.jpg">
+9. The red stapler, Office Space (1999)
+Mike Judge, director: “I wanted the stapler to stand out in the cubicle and the color scheme in the cubicles was sort of gray and blue-green, so I had them make it red. It was just a regular off-the-shelf Swingline stapler. They didn’t make them in red back then, so I had them paint it red and then put the Swingline logo on the side.
+“Since Swingline didn’t make one back then, people were calling them trying to order red staplers. Then people started making red Swinglines and selling them on Ebay and making lots of money, so Swingline finally decided to start making red staplers.
+“I have the burnt one from the last scene. Stephen Root has one that was in his cubicle. There were three total that we made. I don’t know where the third one is.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414323.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316235.jpg">
+10. Wilson, Cast Away (2000)
+Robin L. Miller, property master: “Wilson was in the script because, as I remember, [writer William Broyles Jr.] was down in Mexico and literally found a volleyball on the beach. Later we were told by psychologists that people, when they’re stranded and in moments of isolation, usually choose an inanimate object to talk to because they can’t handle being alone. The odd part of this was that the name ‘Wilson’ was in the script, and so I approached Wilson the company to make me volleyballs. Wilson wasn’t interested, at that point. Moviemaking had nothing to do with them. But I was very fortunate to find a woman there who, after I explained I was working with an Academy-Award-winning actor and an Academy-Award-winning director, the ball was called Wilson, for godsakes, and I needed blank ones, so I could make the face with Tom’s handprint. She got me 20 — only 20.
+“I blew through 20 in a heartbeat. He went through all these incarnations, plus ones I could use for take after take after take. There were only five [hero props] used in the movie for up close shots.The aging on him changes over the course of the movie. His hair gets wrecked by the end. But we made them all last. I guarded them with my life. We were in Fiji, and then traveling to some island an hour and a half away from Fiji. The other nightmare was all those FedEx boxes — they fell apart in the humidity, so for all those takes, we were gluing them back together take after take. They were cardboard turning into soggy graham crackers. But the Wilsons were locked up. I practically took them to bed with me. They took a long time to fabricate, with the hair and the aging.
+“When Tom made the original one, I put red tempera paint on his hand and he made the pattern on the ball, not on camera. He tried it and… it didn’t look great. So we did it again and again and again, and when we got one with enough room for the face, that became the template. We redid it on camera, and then we knew where we were headed because we came up with the concept three months earlier: how far his fingers needed to spread, what lines it needed to reach on the ball. Then the others were all hand-sewn, the hair was put in, and a scenic painter made five perfect matches, and then we had others for second, third, and fourth unit. Wilson had to be on every raft, and I wasn’t going to give them my best ones!
+“The challenge was they all had to match. Towards the very end, the one that sinks, it’s so sad and so dirty. The hair is messed up. The one that ultimately sank, there were two (and remember, I only had five), but the effects department had to weight them to get pulled underwater. That was special — it aged the most. I don’t think we did many takes of that scene. It was the end of his journey.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414324.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316236.jpg">
+11. The guitar, Purple Rain (1984)
+Dave Rusan, guitar maker (in an interview with Premiere Guitar, 2016): “Prince wasn’t much for small talk. He could certainly express himself if he felt it was necessary, but in this case he didn’t all that much. So he had this bass with him in the store that day — I’d actually worked on it before — and his main requirements were just that the guitar should be in that shape, and it had to be white, and it had to have gold hardware. I think he specified he wanted EMG pickups, but compared to all the conversations you would have with somebody about a custom guitar, there wasn’t anything else he wanted to talk about — the size of the neck, the frets, the playability features, or anything. He did come in once after that, and Jeff [Hill, the owner of Knut-Koupée Music] was able to get him to make a few comments, but I figured if he’s not going to tell me what he wants, I’ll make something I think he’ll like and hope for the best.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414325.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316237.jpg">
+12. The McLovin ID, Superbad (2007)
+Chris L. Spellman, production designer: “I was doing the film Knocked Up with Judd Apatow [who] said he had this other film that he was producing and that he’d like me to meet on it and read the script. I really laughed out loud a number of times. I remember reading about the guys trying to get alcohol and Fogell getting a fake ID. I don’t believe it was really descriptive, I think it just said he brought out a fake ID and that his name was McLovin. I don’t believe it said that he was from Hawaii. I actually mentioned to the guys, why don’t we make his license from Hawaii [because] I had done a film there and I just thought about a state that’s not even in the mainland. I remember researching streets because we had to put a street name on there.
+“The guy that created it was our graphics designer named Ted Haigh and I brought him on the movie because he has a website called Dr. Cocktail and he knows more about the history of cocktails and alcohol than anyone I’ve ever met. I knew that we had to create all these alcohol labels, because the kids were under 21 and we had to create fictitious labels. So I brought Ted on, mainly to do the liquor labels and stuff. Sometimes the best part of working with Seth and Evan is actually making them laugh and hearing them laugh. I recall Seth laughing and saying, ‘Yeah, let’s make him from Hawaii.'”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414326.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316238.jpg">
+13. The idol, Raiders of the Lost Ark (1981)
+Keith Short, sculptor: “Work began at Elstree Studios in early 1980. The temple rock walls were made to include several threatening-looking Aztec heads designed to collapse when triggered by the Idol.
+“Besides being required to carve polystyrene rocks and heads, my work also took place in conjunction with the plasterers, since whatever I sculpted in clay would need to be molded and cast into a more robust material, usually plaster of Paris, sometimes resin or fiberglass — which in fact was the case for the Idol. Fiberglass is strong and relatively lightweight. It can be hollow and easily made to look like metal, bronze, gold, silver, etc. The idol that I sculpted was reproduced several times in resin and painted in gold. The reference, which [production designer] Norman [Reynolds] gave me to work from, was taken from a book of Aztec sculptures and buildings. There was a beautiful little carving in green jade marble of a female fertility god giving birth with a happy sort of grimace on her face (which Norman did not like; he asked me to make her face much more threatening). I sculpted her with blank eyeballs, which was the one used in the film.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414327.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316239.jpg">
+14. The business card, American Psycho (2000)
+Gideon Ponte, production designer (in an interview with Yahoo, 2015): “All I remember was just trying to find out what you would put on these cards, and how they were meant to look. So there was a lot of talking to bankers and trying to get a hold of cards. In the end, actually, the cards probably are — and this is my fault — more European than American.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414328.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316241.jpg">
+15. The closet computer, Clueless (1995)
+Amy Heckerling, director: “Each day they go through outfits and they see what goes with what. It seemed like there’d be a lot of repetition and a big waste of time. Now I used to play with cutout dolls when I was a little kid, and I thought, ‘What if I had cutouts of all my clothes, little pictures, and I could figure it out that way?’ Then when computers came along, I thought you could computerize every garment you have — you could go through everything quickly. It was always something I thought would be a time-saver. I thought that before there were computers.
+“[The computer] was something between the costume person, Mona May, and the prop guy had to make it feel like what it was. We photographed Alicia [Silverstone] so you could see the clothes coming on to her. A computer expert who came in [described] exactly how it would go, swirling and swiping with her hands, how the outfit would come on, that was created by the computer guy. The designs are not realistic. When I wrote it, before we shot it, early ’90s grunge was a big thing and it was an anti-fashion moment. Then big designers started cashing in on it. Suddenly you have an expensive plaid outfits. In Seattle they wear plaid as a practical, keep-warm, don’t-care-about-what-you’re-wearing feel.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414329.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316242.jpg">
+16. The Green Destiny, Crouching Tiger, Hidden Dragon (2000)
+Kuo Chang-hsi, sword maker, via his assistant: “The sword blade was fully handmade of 12 different kinds of metal. Through pattern welding, Mr. Kuo forged the blade over 1,000 layers and made the carving look like the twining pattern of numerous green dragons hidden in the 90cm sword blade. Mr. Kuo also carved 23 dragons on one side of the sword, which symbolized the 23-year emperor’s position of Sun Quan (A.D. 182- 252). It took Mr. Kuo three months to make Green Destiny sword.
+“There is a specific term for the Chinese pattern welding technique — ‘folded pattern steel’ by literal translation. The process might be similar to that of making Damascus steel.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414330.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316243.jpg">
+17. The horse head, The Godfather (1972)
+Al Ruddy, producer: “The studio sent us a stuffed head from one of the Western sets. The leather was so old, the fucking thing split. Needless to say, the head arrives on the studio. It’s unacceptable. So Francis [Ford Coppola, director] and the art director went shopping for a head at a slaughterhouse. The horse had emphysema and was going to be killed anyway. The horse we featured in the movie wasn’t the same one as the head — it was a horse that looked just like him.
+“John Marley, the guy who played the movie producer, was a pain in the ass because he was a complainer every time he was on screen. Now, we go to shoot the famous scene. We’re shooting out on Long Island on a winter day, which is cold, dark, and rainy outside. We’re down at an elegant old stone mansion, and John is wearing his silk coat and his pajamas, standing by the bed. Now, four grips walk in carrying this huge metal case. He has no idea what the hell’s inside. I’m not exaggerating — it was probably about 6 to 8-ft square with the latches on each corner. He stands by the bed, and they lower this thing on the floor. They take off the four latches, and he almost faints. He sees this fucking horse’s head with the tongue hanging out. Oh, Jesus Christ!
+“The next thing we know, the head is on the bed, on the yellow sheets. So you know, the horse’s head was frozen with dry ice, so it was fucking cold. Francis figures, ‘This is my shot to get him.’ They put all the phony blood. John refuses to stretch his legs out. He’s got his legs pulled in so it doesn’t hit the horse’s head. Francis kept telling him to straighten out. His scream was blood-curdling. What you hear in the movie was not done later on. We were laughing at a certain point. We were fucking howling. He was freaking out. When that scene was over, he ran off the set, throwing the bloody shit on the floor. He was gone for the rest of the day.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414331.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316244.jpg">
+18. The up-to-11 amps, This Is Spinal Tap (1984)
+Bryan Jones, production designer: “This was my first big Hollywood job. I was a rock and roll musician, with my brother, but I opted out of rock for art school, then went into film. I met an art director who was doing television commercials. I had graduated from CalArts as a painter, but I went into film because I could make art, be creative, and work with people instead of being stuck in my painting studio alone. So I drove a truck for an art director and listened to him as he spoke to set companies, listened to him as he coaxed them through what he wanted them to be. After that I got my first prop man job, then my first art director job, then I did low-budget television commercials. Then I did music videos, like Eddie Money and Carlos Santana. I was friends with Peter Smokler, the cinematographer on Spinal Tap, who recommended to Rob Reiner and producer Karen Murphy.
+“I never received a script. It was an outline, and it said things like in this scene, this will have, you know, Christopher Guest’s Nigel will show Marty his guitar collection. No setup could afford to be on the fly. Just the dialogue. So I went to Norm’s Rare Guitars, a hallmark of a guitar shop, and I said, I want that and that and that and that, then Norm brought them over, set them up, and they did the scene.
+“All I really did to make the amps was buy replacement knobs that matched the Marshall amps. I took them to a graphics house, a place I used to work early on, my first gig, a place called the Ray Johnson Studio. They used to create color-corrected packages. When TV was in black-and-white, if you took a Quaker Oats package with the dark blue on top and the red at the bottom, the red would read darker than the blue. So I did a bunch of projects with them, but I knew I could talk to Ray Johnson about the amp dials, and he could take the dials off them and put new ones on in the same font that goes to 11.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414332.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316245.jpg">
+19. Cobb’s totem, Inception (2010)
+Scott Maginnis, property master: “[Christopher Nolan] had this old thing that he called a top… but it wouldn’t actually spin. So I completely redesigned [Nolan’s top], and the only thing I kept from that one was the texture. It had an amazing texture.
+“Then I got a bunch of tops, I got about 20 of them, and went out to spin them to see which looked the best and spun the best. From that I had four different people make one which would work, and when that one came in, it was obvious that it was the one. It’s funny: I spent about three or four months designing the case that transports in and out of their dreams, but the top took me about three hours.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414333.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316246.jpg">
+20. The hourglass, The Wizard of Oz (1939)
+Jay Scarfone and William Stillman in their book The Wizardry of Oz (1999): “More complex props like the Witch’s hourglass and crystal ball (rimmed with sculpted Winged Monkeys) and the floral design of the Munchkinland coach also required blueprints. However, the task of creating these pieces from concept to realization was delegated to the staff of Cedric Gibbons, overseer of the art department. […] The Wicked Witch’s hourglass was re-created as a wood and papier-maché prop for the scene in which the Witch shatters it in a rage. For that shot, small holes, drilled at an angle, allowed the prop to glide the length of a wire in order to consistently hit its mark. The hourglass measures 20 inches in height and 11 ½ inches in width. The glass is handblown; its frame is decorated with six winged gryphons.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414334.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316247.jpg">
+21. The portable memory eraser, Eternal Sunshine of the Spotless Mind (2004)
+Dan Leigh, production designer: “Our mission was to arrive at a believable piece of medical equipment that did not appear futuristic. The character of Dr. Mierzwiak (Tom Wilkinson) maintains his practice on the fringe of medicine. His office is decidedly low-tech and a bit shabby. The memory erasing apparatus had to belong with that character in that environment.
+“Design began with a visit to the neurosurgery department at Mt. Sinai Hospital in Manhattan where we were shown an array of electrodes, wires, and monitors. Film ‘time’ would not allow for the painstaking one-at-a-time application of electrodes so we needed a framework. [Director] Michel Gondry has a fascination with the common kitchen colander and we began fusing ideas together. The colander gave us a one piece framework to attach many electrodes together and retained the low-tech style and necessary portability.
+“The next consideration was Jim Carrey’s comfort. Neck and head support was added to the design to keep him comfortable for extended or repeat takes. The added design elements were carefully referenced to actual medical equipment, and points of light used to indicate the helmet was operational. These design elements were fabricated and assembled at Costume Armor in Cornwall, NY, and sent out for automotive finishes. Two of these were made but only one had an approved finish and became the hero prop. Both have vanished into movie lore.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414335.jpg">
 
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316249.jpg">
+22. The cocaine pile, Scarface (1983)
+Oliver Stone, writer (in The Making of ‘Scarface,’ 1998): “I thought that Al always reminded me of Humphrey Bogart with that narrow face and those nervous eyes of his. I thought it’d be a great finale for him to be buried in a mound of gold dust or cocaine. Just crash into it.”
+Brian De Palma, director (in The Making of ‘Scarface,’ 1998): “I don’t know what Al was snorting to tell you the truth. I do remember we tried out baby milk, which is dried milk, but there was nothing easy to snort because it would get in your nose and he’d be blowing his nose all the time. But I never snorted it, so I can’t really attest to what it was.”
+Al Pacino, actor (Tony Montana) (in The Making of ‘Scarface,’ 1998): “I don’t really like to give away that secret because it takes away from somebody’s belief. You have to have a secret. That’s part of what we do.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414336.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316250.jpg">
+23. Sex Panther cologne, Anchorman (2004)
+Scott Maginnis, property master: “On the shelf are a whole bunch of other colognes and this was the one that was supposed to stand out. This one was for ‘the important ladies.’ I don’t remember if the elevator that it comes up on was in the script. It described a very elaborate box. Then there’s Judd Apatow’s line: “it’s a diaper filled with Indian food.”
+“So I bought a humidor, for storing cigars, and then lined it with astroturf, and then built a unit below it with the elevator on a servo so we could control it. Then I had a sculptor make the actual panther, which was based on some panther photo that I found. It was her idea to have the ear pop off — it was definitely a joint effort.
+“But you know when you’re watching the movie and it’s a little wonky when it comes up? When I had it built, we got it to work really smooth. But when we were filming it it was really jerky. We realized the focus-puller for the camera, his [rig] was wireless and it was on the same frequency as the servo. So we were having the toughest time getting it right, then we finally got a perfect one. I talked about it with Adam later and it turned out it was funnier with the jerky take. That was a happy accident.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414337.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316251.jpg">
+24. The gold watch, Pulp Fiction (1994)
+David Wasco, production designer: “Jonathan Hodges was the prop master on Reservoir Dogs, the movie we did before Pulp Fiction, and he got reprimanded for putting a Gucci watch on Harvey Keitel. They had to go through a lot of trouble for clearance on that. Smarting from that, he pitched something that didn’t have an obvious name on the face and I don’t recall what the actual manufacturer was. It might’ve had something on the back of it. There was no name on the face. There were Roman numerals.
+“He picked it and Quentin [Tarantino] liked the fact that the brackets that hold the wrist strap were welded on there. So it was almost like it was a watch that was altered a little bit. You could almost see it on the images of the watch in movie. I’m assuming Quentin has the watch because he kept everything. He keeps everything from the movies and values all of this stuff. Even the not-very-valuable stuff. He likes to keep all that — including the cars. I know he kept the Pussy Wagon from Kill Bill.”
+Jonathan Hodges, property master: “It’s gotta go up his butt. I’m pretty sure people were wearing some form of something on their wrists a long time ago, but most things were a pocket watch and those things are bigger than an old silver dollar. So having it be more wrist watch size, or small and concealable, probably plays in better to the concept of it being shoved up somebody’s butt for however long.
+“There was a description in the script that it’s one of the earliest wristwatches … I just went around looking at a lot of different watches and found this watch that was a round, old watch face, but instead of having the standard arms that come out — you know you’ve got a little spring on a spindle that the strap goes on to — it had little soldered or welded pieces of probably silver alloy or something like that. It was gold plated, which I’ve never seen before or since, honestly. Someone had manufactured it so you can wear it on your wrist. I don’t know how old it was in the lineage of wrist watches. But it was definitely old and it fit the bit — and it was affordable, which was also important.
+“I think there may have been a conversation with Bruce Willis [about the watch] because Bruce, at the time, and I have no reason to know if this changed, was really into watches. I believe that between the three of us there was a suggestion to put on an old Speidel flex band on the watch, so I went and tracked one of those down. You can go to antique stores and they’ve got little glass-covered cases full of all sorts of stuff. So I tracked down a vintage Speidel band and had it mounted on there and there you have it.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414338.jpg">
 
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316252.jpg">
+25. The batarang, Batman (1989)
+Terry Ackland-Snow, art director: “We did a rough design sketch of what was required, and then it got handed over to the special effects supervisor, John Evans, who made all the gadgets. We were working on it all together at the same time, giving Tim Burton exactly what he wanted Batman to have. [The batarang] was based on trying to fit the symbol of Batman — the idea was to have everything Batmobile-looking, the wings, that sort of thing. All the gadgets echoed each other.”
+John Evans, special effects supervisor: “I think we made about a dozen. We made some with fiberglass and some with polished aluminum. Anton [Furst]’s team had done all the designs, so he gave us the designs, and we took it from there. It was a simple thing to do. We just had to get the balance right so it could fly through the air.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414339.jpg">
 
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85316253.jpg">
+26. The cup of water, Jurassic Park (1993)
+Michael Lantieri, special effects designer (in the Jurassic Park feature Making Prehistory): “I was at work and Steven [Spielberg] calls into the office. He goes, ‘I’m in the car, I’m playing Earth, Wind & Fire, and my mirror is shaking. That’s what we need to do. I want to shake the mirror and I want to do something with the water.’ The mirror shaking was really very easy — put a little vibrating motor in it that shook it. The water was a another story. It was very difficult thing to do. You couldn’t do it. I had everyone working on it. Finally, messing around with a guitar one night, I set a glass and started playing notes on a guitar and got to a right frequency, a right note, and it did exactly what I wanted it to do.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414340.jpg">
+
+27. The hammer, Oldboy (2003)
+Park Chan-wook, director: “[The main character] Oh Dae-su is not some special forces agent nor an expert martial artist. He is an ordinary person. That’s why I thought that it would be good if his weapon is something that’s not a weapon, which he turns into a weapon. As the hammer has a blunt head on one end and sharp teeth on the other, I really wanted to explore the idea of switching from one end to the other depending on the use to hit the opponents. On top of that, the fact that it could also be used as a torturing tool was a great advantage. Haven’t all boys played with a hammer trying to pull their younger brother’s tooth out instead of a nail? (Or is it just me?)
+“I picked the most common model, which could be found at any hardware store in Seoul. Then we made identical copies of it with soft rubber. Especially for the extreme close-up in the teeth-pulling scene, we used an extremely soft rubber. The original storyboard was divided into dozens of shots. We rehearsed the scene based on that plan, but decided to turn it into one long take in the late afternoon.
+“So the next morning, we made new preparations and shot until the evening. Just counting the takes where we went from the beginning to the end, we shot 19 takes. Considering the width of the corridor, it is obvious that the camera’s position in this long take shot is not possible without taking away one side of the wall. I think the audience would sense this unconsciously. So I think they take the scene as if it were some sort of a stage performance. Especially given the fact that this whole scene is without a cut. These two elements, which cinematically create distance for the audience, paradoxically give them the sense of being there with them in the scene. I think as a result of this, the audience ended up embracing all of Oh Dae-su’s isolation, solitude, fatigue, pain, his determination to meet any obstacles head-on and break through them, and even his Thanatos.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85414341.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85316227/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85414314/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">One Man's Clever Response When Someone Hit His Car</a>
-1. A Russian man was at the grocery store when he noticed someone had backed into his vehicle.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85163480.jpg">
+## <a href="#link7" id="link6">Pictures That Will Make You Think</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091349.jpg">
 
-2. Fortunately for the other driver, the car owner did not want to call police or file a report.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85163481.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091350.jpg">
 
-3. The driver, being a bit of an artist,  saw an opportunity for new art.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85163482.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091351.jpg">
 
-4. He drew out an awesome map of his childhood hometown.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85163483.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091352.jpg">
 
-5. He saved himself a pretty penny avoiding the body shop, and ended up with an awesome piece of car-art!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85163484.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091353.jpg">
+
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091354.jpg">
+
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091355.jpg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091356.jpg">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091357.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091358.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091359.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091360.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091361.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091362.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091363.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091364.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091365.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091366.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091367.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091368.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091369.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091370.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091371.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85091372.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85163479/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85091348/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">Memorable Facts About The Godfather's James Caan</a>
-1. "During the production of The Godfather, James Caan was known to hang out with Carmine Persico, aka "The Snake", a notorious mafioso and later head of the Colombo crime family. Government agents briefly mistook Caan, who was relatively unknown at the time, as an aspiring mobster." - u/clawsmopolitan
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215713.jpg">
+## <a href="#link8" id="link7">34 Naughty Memes And Pics To Get You In The Mood</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359716.png">
 
-2. "Misery role of author Paul Seldon was offered to William Hurt, Kevin Kline, Michael Douglas, Harrison Ford, Dustin Hoffman, Robert De Niro, Al Pacino, Richard Dreyfuss, Gene Hackman, Robert Redford, Warren Beatty, before landing on James Caan" - u/holdmymeatpipe
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215714.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359717.png">
 
-3. "After filming ELF, Will Ferrell gave James Caan the GODFATHER trilogy with a note saying "Great working with you. The first one is a little bit slow, but the second two are really good." - u/jack3000
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215715.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359718.png">
 
-4. "In his prime James Caan turned down the lead roles in The French Connection, One Flew Over the Cuckoo's Nest, Close Encounters of the Third Kind, Kramer vs. Kramer, Apocalypse Now, Blade Runner, Love Story." - u/shaka_sulu
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215716.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359722.png">
 
-5. "Following the release of The Godfather, James Caan, who played Sonny, was so closely identified with his role that he won "Italian of the Year" twice in New York, even though he isn't Italian." - u/TooFewOtters
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215717.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359720.png">
 
-6. "James Caan demanded to be paid the entire amount he received for his role in The Godfather for the one birthday flashback sequence in The Godfather Part II - which he received." - u/beno2720
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215718.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359725.png">
 
-7. "The role of Superman in the 1978 film was offered to several A-listers including Robert Redford, Sylvester Stallone, Paul Newman, James Caan, and James Brolin. They all turned it down. Both Neil Diamond and Arnold Schwarzenegger lobbied hard for the role, but were ignored." - u/cderry
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215719.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359721.png">
 
-8. "The 2008 comedy film "Get Smart" features 6 actors who have either won or been nominated for an Academy Award: Anne Hathaway, Alan Arkin, James Caan, Terrence Stamp, Steve Carrell, and Bill Murray." - u/idlethumbs
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215720.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359724.png">
 
-9. "Robert Duvall, Marlon Brando, and James Caan would moon each other behind the scenes of "The Godfather." - u/adeebchowdhury
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215721.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359731.png">
 
-10. "Dustin Hoffman, Al Pacino, Steve McQueen, James Caan, and Jack Nicholson all turned down the role of Roy Neary (eventually played by Richard Dreyfuss ) in Close Encounters of the Third Kind"
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215722.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359738.png">
 
-11. "Actor James Caan was a regular on the Pro Rodeo Circuit, where his nickname was "The Jewish Cowboy" - u/amprather
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215723.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359726.png">
 
-12. "James Caan, Al Pacino, Jack Nicholson, Robert De Niro and Burt Reynolds all turned down the role of Han Solo." - u/MAPster_
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215724.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359728.png">
 
-13. "James Caan invented the term "Bada-bing" (Vanity Fair, March '09, The Godfather Wars)" - u/One_Giant_Nostril
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87215726.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359727.png">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359729.png">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359732.png">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359739.png">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359730.png">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359723.png">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359719.png">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359745.png">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359737.png">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359733.png">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359734.png">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359741.png">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359740.png">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359742.png">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359750.gif">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359746.png">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359747.png">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359748.png">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359749.png">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359751.png">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359752.png">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85359753.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87215712/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85359715/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">24 Pics Of Sports That Cause Instant Vertigo </a>
+## <a href="#link9" id="link8">45 Great Pics And Funny Memes That Will Improve Your Mood</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340145.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354752.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340146.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354753.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340147.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354767.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340148.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354765.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340150.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354751.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340149.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354760.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340151.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354754.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340152.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354755.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340153.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354749.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340160.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354756.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340154.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354757.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340155.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354750.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340156.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354759.png">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340157.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354761.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340158.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354762.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340159.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354763.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340161.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354764.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340162.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354766.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340163.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354769.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340164.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354758.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340165.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354770.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340166.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354768.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340167.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354771.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85340168.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354772.gif">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354773.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354774.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354775.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354776.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354777.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354778.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354779.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354780.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354781.png">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354782.png">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354783.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354784.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354785.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354786.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354787.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354788.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354789.png">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354790.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354791.png">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354792.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85354793.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85340144/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85354748/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">21 Bits Of Dark Humor For The Existentialist In You</a>
+## <a href="#link10" id="link9">19 Creative Photos For What's Left of Summer</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436892.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441791.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436893.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441793.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436894.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441794.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436895.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441795.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436896.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441797.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436897.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441798.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436898.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441799.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436899.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441800.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436902.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441792.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436900.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441796.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436901.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441801.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436903.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441802.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436904.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441803.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436905.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441804.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436906.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441805.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436907.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441806.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436908.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441807.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436909.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441808.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436910.png">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436911.png">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436912.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85441809.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85436891/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85441790/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">Newly Declassified 9/11 Photos Show The Aftermath Of The Pentagon Attack</a>
+## <a href="#link11" id="link10">29 Hilarious “It’s Always Sunny In Philadelphia” Quotes</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311292.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335629.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311293.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335630.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311294.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335631.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311295.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335632.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311296.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335633.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311297.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335634.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311298.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335635.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311299.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335636.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311300.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335637.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311301.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335638.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311302.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335639.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311303.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335640.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311304.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335641.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311305.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335642.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311306.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335643.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311307.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335644.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311308.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335645.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311309.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335646.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311310.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335647.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311311.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335648.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311312.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335649.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1743917/85311313.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335650.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335651.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335652.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335653.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335654.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335655.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335656.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85335657.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85311291/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85335628/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
