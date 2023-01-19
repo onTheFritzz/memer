@@ -1,993 +1,860 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 01.18.2023-22:45:18<br>All credits to ebaumsworld.com
+Last Updated 01.19.2023-01:45:19<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">23 Fresh Memes To Make You Laugh</a>
+## <a href="#link1" id="link0">15 Ridiculous Things Someone Has Had to Explain to a Grown-Ass Person</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219097.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459856.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219098.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459857.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219099.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459858.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219100.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459859.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219101.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459860.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219102.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459861.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219103.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459862.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219104.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459863.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219105.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459864.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219106.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459865.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219107.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459866.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219108.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459867.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219109.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459868.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219110.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459869.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219111.png">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219112.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219113.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219114.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219115.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219116.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219117.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219118.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85219119.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85459870.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85219096/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85459855/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">15 Social Media Posts That Got Idiots Busted</a>
-1. Siphoning Gas From A Police Car: It’s one thing to siphon gas from someone else’s car, but to siphon gas from a police car? Now you’re just asking for it. 22-year-old Michael Baker of Jenkins, Kentucky thought it would be a good idea to steal gas from a police car from the Jenkins Police Department and post a photo of himself performing the act on Facebook. And as an added touch, he flipped the bird. It didn’t take long for the photo to disperse among the roughly 2,000 citizens that make up Jenkins and for Baker to get caught by the police. He was charged with theft for unlawful tanking, and he spent the night in jail.
-After Michael was released from the slammer, he took to Facebook to say, “yea lol i went too [sic] jail over facebook.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406366.jpg">
+## <a href="#link2" id="link1">49 Funniest Tumblr Posts Ever</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065687.jpeg">
 
-2. Posing With Money Gained From Drug Dealing: Drug dealers usually tend to keep their drug-related activities on the down-low; you know, so they won’t get caught by the authorities, but not drug dealer Junior Francis. The 33-year-old London cocaine and heroin dealer posted a photo on Instagram of himself posing with a wad of cash pressed to his face. He also posted another photo showing large wads of cash on a kitchen top with the caption, “everything I got I work hard for it,” quoting Notorious B.I.G. and Method Man. After Francis was caught, the police conducted a raid on his home, where they found £7,000 ($7,920.15) of cash and £75,000 ($84,858.75) worth of crack cocaine and heroin. They also found evidence of Junior’s drug-dealing activities on his phone in addition to connections with other drug dealers in South London. He was sentenced to six years and eight months in jail.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406367.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065688.jpg">
 
-3. Driving Drunk: I think we can all agree that it’s dangerous to film yourself while driving, but it’s even more dangerous to film yourself while driving when you’re drunk. Florida resident Whitney Beall went on a wild drunk-driving trip and broadcast the whole thing live on Periscope. During the live stream, Beall said that she was “drunk, [expletive] drunk” and that she had no idea where she was. She also admitted to running over something and that she had a flat tire. People watching Whitney’s live stream called the police, who pulled her over and arrested her. Beall was still broadcasting even after being pulled over and said, “I really hope I don’t get a DUI.” Whitney failed the field sobriety test, refused the breathalyzer, and was charged with a DUI and sent to the county jail.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406368.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065690.jpg">
 
-4. Taking Photos Of Items Stolen From Store: Crime doesn’t pay, especially when you publicize what you stole for the whole world to see. 18-year-old Pittsburg resident, Isaiah Cutler, an unnamed 17-year-old, and two unnamed 14-year-olds burglarized a local store, stealing over $8,000 worth of candy, cigarettes, cash, and checks from the business. They would have gotten away with it too, had Culter not posted pictures of himself and the teens posing with the stolen goods on Facebook just an hour later after the burglary. And then, the teens walked into the front door of their homes with shopping bags full of Michael Jordan shoes and clothes in full view of their questioning parents. Relatives of one of the teens, who were friends with him on Facebook, saw the photos and called the police. The teens were charged in juvenile court and released to their parents. Cutler, on the other hand, had to face a hearing on charges of theft, burglary, and conspiracy.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406369.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065691.jpg">
 
-5. Mocking Gymgoers: Going to the gym can be a discouraging experience for many who feel intimidated by some of the super-fit exercise enthusiasts who work out there. It probably wouldn’t help if you knew that one of those people was talking junk about you behind your back. An Australian man posted photos of patrons at the gym and mocked them with captions such as this one: “Here we see the amazing chicken man. His 2% body fat is admired by bodybuilders and bulimic teenage girls alike.” Reddit and 4chan’s “fit” board figured out about this, and they weren’t having any of it. They obtained the guy’s personal information, called his mother and told her all about her son’s commentary, and called the gym manager to explain the same thing. As a result, the guy’s mom cut her son off financially, and the gym owner banned him from the entire chain of gyms.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406370.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065692.jpg">
 
-6. Bragging About Drunk-Driving: Common sense should have told this guy that it wouldn’t be the smartest move to brag about driving drunk on social media. 18-year-old Jacob Cox-Brown was out drinking and driving one night when he hit someone’s car before driving off. Sometime later, he took to Facebook to make this post: “Drivin drunk… classic ;) but to whoever’s vehicle i hit i am sorry. :P.” Unfortunately for Jacob, the Astoria Police Department is active on social media, and it was only a matter of time before the message was reported to the authorities. Cox-Brown was arrested and charged with two counts of failing to perform the duties of a driver. While a police spokesperson said that the teen would probably only get a slap on the wrist since a Facebook post isn’t enough evidence to charge him with a DUI, one can only hope that he learned his lesson.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406371.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065693.jpg">
 
-7. Throwing Seats Off Moving Train: Some people do some really stupid things when they’re bored. This is a good example.
-Some bored high school students from Sydney, Australia thought it was funny for a boy to throw seats from the train they were on into the pathway of motorists traveling down one of the city’s busiest motorways. It was beyond dangerous and beyond senseless, but the boy’s friends didn’t seem to think so. They filmed the boy’s activity on video and uploaded it on Facebook. In the video, one of the teens can be heard saying, “You hit a f*cking car, bro, that’s gonna be on the news!”
-After the boy’s mom saw the video, she promptly took him to the police, where he and his friends faced five years in prison.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406372.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065694.jpg">
 
-8. Taunting Police Through Social Media: If you commit a crime and you’re on the run, it probably wouldn’t be in your best interest to mock the law enforcement forces trying to track you down. 24-year-old Floridian Cameron Cox was guilty of burglary, dealing in stolen property, and defrauding a public broker when he decided he wanted to play around with the police. He posted the movie poster for the 2002 drama film Catch Me If You Can along with the caption, “F*ck it. Might as well have some fun with this. LOL.” Cox was pretty much asking for it at this point, and the Tampa Police Department weren’t slow to catch him and arrest him. After they arrested Cameron, the Tampa Police Department posted his mugshot on their Facebook page with this caption: “When he is done serving his time, maybe Cameron Cox should update his profile photo with his mugshot.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406373.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065695.jpg">
 
-9. Regularly Updating Your Status While On The Run: Generally speaking, fugitives go to great lengths to keep a low profile and prevent themselves from being detected by the authorities, except for one former fugitive. 26-year-old Maxi Sopo defrauded $200,000 out of a number of Seattle banks and decided to hide out at the popular tourist destination, Cancun. But the Cameroon-born criminal wasn’t about to live it up in the city and not tell his Facebook friends all about it. He wrote Facebook posts about him “living in paradise” and “loving it,” telling the people on his friends’ list all about his days on the beach and wild nights partying at nightclubs. Unfortunately for Sopo, he made the foolish error of adding a former justice department official to his friends’ list. Sopo was arrested and charged with four counts of bank fraud. He was sentenced to 33 months in jail.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406374.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065696.jpg">
 
-10. Rudely Trolling People On The Internet: Internet trolls say a bunch of senseless and meaningless things on cyberspace for no reason at all, but some of it is too much to slide by unnoticed. 41-year-old Darren Burton, who went by the name of Nimrod Severn on Facebook, regularly trolled the Facebook pages of murdered children, leaving comments like “Rot in h***” for everyone to see. BBC tracked him down for a surprise, in-person interview in which Burton’s wife and kids (yes, he has kids) heard the kind of stuff he was putting on Facebook firsthand. When BBC asked Darren if he knew the effects his comments had on the families of the murdered children, he responded with “Well yeah. F*** em.” When BBC aired its documentary on unmasking Internet trolls, they included Darren’s real name and address. His Facebook page quickly became filled with public hatred for him, forcing him to delete his account and move away.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406375.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065697.jpg">
 
-11. Updating Your Current Location While On The Loose: Another example of why you should maintain a low profile if you’re on the run. Chris Crego from Lockport, New York was arrested and charged with assault following a bar fight. Police issued a warrant out for his arrest after Crego failed to show up for sentencing. Crego had fled the state by this point but it didn’t matter, as he would lead the police right to him, thanks to a series of incriminating mistakes. The city where Chris escaped to was Terre Haute, Indiana, where he updated his location on Facebook. He even posted about his place of employment, a tattoo parlor named Body Ink, and his work hours. If that wasn’t enough, he even published the wanted poster of him that was printed in the Lockport newspaper. The authorities traced Chris, thanks to his Facebook and Myspace accounts and apprehended him.
-Another example of why you should maintain a low profile if you’re on the run. Chris Crego from Lockport, New York was arrested and charged with assault following a bar fight. Police issued a warrant out for his arrest after Crego failed to show up for sentencing. Crego had fled the state by this point but it didn’t matter, as he would lead the police right to him, thanks to a series of incriminating mistakes. The city where Chris escaped to was Terre Haute, Indiana, where he updated his location on Facebook. He even posted about his place of employment, a tattoo parlor named Body Ink, and his work hours.
-If that wasn’t enough, he even published the wanted poster of him that was printed in the Lockport newspaper. The authorities traced Chris, thanks to his Facebook and Myspace accounts and apprehended him.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406376.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065698.jpg">
 
-12. Posing With The Stolen Goods: 19-year-old Rodney Knight probably could have gotten away with his crime had he not felt the need to show off. Rodney Knight, Jr., hailing from Washington D.C., broke into the home of Washington Post reporter Mark Fisher and stole some items, including a coat, a laptop belonging to Fisher’s son, and some cash from the son’s desk. Before he left, he thought it would be a good idea to log into Fisher’s son’s Facebook account and post a photo of himself with the items he was about to make off with. Rodney’s picture was what led the police right to him a few days later and bring about a subsequent arrest. In D.C. Superior Court, he pleaded guilty to burglary and carrying a pistol without a license. One D.C. police officer called Knight the “most stupid criminal” he ever met.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406377.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065699.jpg">
 
-13. Posting About Your Bank Heists: While physically robbing banks is mostly a thing of the past, the practice hasn’t completely died out yet. 23-year-old Jesse Hippolite went on a bank robbing spree across Brooklyn, raiding three Chase branches over a three-month period. Before the first robbery, Hippolite posted on Facebook, “I Gotta Get That $$$$$ Man!!!!” and “Crime pays my bills!” A few weeks later, Hippolite changed his profile name to Willie Sutton Jr., a homage to the infamous bank robber Willie Sutton. He also made a post saying, “What If We All G0t Fed Up With This Recessi0n And Started Running Inside Every ****ing Bank T0 Give Us The M0ney That Bel0ng T0 Us???” Jesse also posted photos of himself holding wads of $100 bills and wearing the exact same emblem-emblazoned hooded sweatshirt that he wore for the robberies. The FBI eventually caught up with him, where he was also charged with 16 similar bank heists from the previous year.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406378.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065700.jpg">
 
-14. Trying To Sell Your Kids: There are plenty of examples of bad parents out there, and this is definitely one of them.
-22-year-old Misty VanHorn from Oklahoma attempted to sell her two children through Facebook for $4,000 so she could pay her boyfriend’s bail. One of the children was two years old while the other was just 10 months old. The two-year-old was priced at $1,000, or else the “customer” could have the option of having both of the children for $4,000. Vanhorn reportedly got into contact with a woman in Fort Smith, Arkansas through Facebook. The woman promptly contacted the Oklahoma Department of Human Services, who then tipped off Sallisaw Police. Misty was arrested on suspicion of trafficking children, and her children went under the custody of the state.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406379.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065701.jpg">
 
-15. Dangling Your Baby Out Of A Window: A lot of us would admit to having an obsession with social media. But for some, that obsession can lead to utterly reckless actions all for the sake of attention. A man from Algeria held his 15-month-old baby by his t-shirt as he dangled him out of a window on the 15th floor of a building, suspending the child 150 feet in the air. With his other hand, he took a picture of himself in the act and posted it on Facebook with the caption, “1,000 likes or I will drop him.”
-Luckily for the child, the police were able to locate the father quickly and arrest him on charges of child abuse. While he pleaded with the court to forgive him of his crime, his pleas fell on deaf ears when it came to the judge. He was sentenced to two years in prison.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85406380.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065702.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065703.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065704.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065705.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065706.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065707.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065708.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065709.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065710.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065711.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065712.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065713.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065714.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065715.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065716.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065717.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065718.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065719.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065720.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065721.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065722.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065723.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065724.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065725.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065726.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065727.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065728.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065729.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065730.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065731.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065732.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065733.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065734.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065735.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85065736.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85406365/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85065686/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">20 Halloween Costumes That Have No Business Being ‘Sexy’</a>
-1. A Sexy Catholic Nun
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167515.png">
+## <a href="#link3" id="link2">29 Charts Filled With Random but Interesting Info</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297827.jpg">
 
-2. A Sexy Hamburger
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167516.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124617/87298512/87210004.jpg">
 
-3. A Sexy Minion
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167517.png">
+3.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124609/87298509/87206714.jpg">
 
-4. Sexy Spongebob Squarepants
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167518.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124625/87298515/87247797.jpg">
 
-5. Sexy Patrick Starr
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167519.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124620/87298514/87247803.jpg">
 
-6. Sexy Half-Eaten Watermelon
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167520.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124632/87298518/Movies.jpg">
 
-7. Sexy Marvin The Martian
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167521.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124614/87298511/87210006.jpg">
 
-8. A Sexy Straitjacket
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167522.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124619/87298513/87247794.jpg">
 
-9. Sexy Donald Trump
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167523.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124636/87298519/Spotify.jpg">
 
-10. A Sexy Jolly Rancher
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167524.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297829.jpg">
 
-11. A Sexy Carrot
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167525.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124613/87298510/87206706.jpg">
 
-12. Sexy Girl Scout
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167526.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297830.jpg">
 
-13. A Sexy Fortune Cookie
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167527.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297831.jpg">
 
-14. A Sexy American Flag
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167528.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297832.jpg">
 
-15. Sexy Alexander Hamilton
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167529.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297833.jpg">
 
-16. A Sexy Sorcerer’s Apprentice
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167530.png">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297834.jpg">
 
-17. A Sexy “Finding Nemo” Clownfish
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167531.png">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297838.jpg">
 
-18. A Sexy Dory Fish
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167532.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297839.jpg">
 
-19. A Sexy “F Society” Hacker
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167533.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297840.jpg">
 
-20. Sexy Ken Bone
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85167534.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297841.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297842.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297844.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297828.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297846.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297847.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/2022/11/02/124630/87298517/TV.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297848.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297849.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87297850.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85167514/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87297826/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">Hotel Guest Karen Demands Refund for Parking They Didn't Pay For, Employees Obliges</a>
+## <a href="#link4" id="link3">Dude Cheats on GF after She Saves His Life</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310760.png">
+<img src="https://cdn.ebaumsworld.com/2022/07/14/122223/87215285/one.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310761.png">
+<img src="https://cdn.ebaumsworld.com/2022/07/14/122422/87215289/two.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310762.png">
+<img src="https://cdn.ebaumsworld.com/2022/07/14/122228/87215286/three.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310763.png">
+<img src="https://cdn.ebaumsworld.com/2022/07/14/122218/87215284/four.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310764.png">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310765.png">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310766.png">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310767.png">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310768.png">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310769.png">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87310770.png">
+<img src="https://cdn.ebaumsworld.com/2022/07/14/122212/87215283/five.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87310759/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87215277/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">45 Of The Dankest Memes Of The Week</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269458.jpg">
+## <a href="#link5" id="link4">25 Bits of Nostalgia That Make You Long For Childhood</a>
+1. You knew it was gonna be a good day when you walk into PE class and see that huge colorful parachute.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216327.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269459.jpg">
+2. That feeling of limitless freedom on the first day of summer vacation. That feeling of dreaded anticipation on the last day of summer vacation.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216325.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269461.jpg">
+3. Each sold separately. Batteries not included.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216323.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269462.jpg">
+4. That feeling when you are going as high as you can go on the swings. Power? Freedom? Hard to describe.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216307.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269463.jpg">
+5. Conjunction Junction.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216308.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269464.jpg">
+6. Getting up in the morning on a day it snowed to watch the list of closed schools across the bottom of the news/weather channel, hoping your school was closed.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216309.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269465.jpg">
+7. An eraser that looks and smells like a very fake strawberry.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216312.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269466.jpg">
+8. Chinese finger traps.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216313.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269470.jpg">
+9. Flintstones push pop ice creams.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216314.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269467.jpg">
+10. Waking up super early on Saturday morning before the rest of the family to watch cartoons.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216315.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269468.jpg">
+11. Watching 'The Price Is Right' when you were sick at home.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216316.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269469.jpg">
+12. Nick nick nick nick na nick nick nick Nickelodeon.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216317.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269472.jpg">
+13. You have died of dysentery.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216318.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269474.jpg">
+14. Those candy necklaces.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216319.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269475.jpg">
+15. Eating one of those plastic-wrapped ice pop things after a long day of playing outside in your backyard with your friends.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216320.jpeg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269476.jpg">
+16. Scholastic book fairs.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216321.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269477.jpg">
+17. The tingle of a skinned knee from asphalt, and the dread of having it cleaned.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216322.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269478.jpg">
+18. The noise when picking up the phone when someone was surfing the web.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216324.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269479.jpg">
+19. That sound of a door opening and shutting on AIM when your friend logs on.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216310.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269481.jpg">
+20. Movies and video games on channel 3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216326.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269482.jpg">
+21. Sleepovers with a group of friends.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216328.jpg">
 
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269484.jpg">
+22. When you'd watch a VHS and it would say, "And now your feature presentation."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216311.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269485.jpg">
+23. Blockbuster. The smell. The smell of that place was unique and still lingers in a very dusty space of my brain.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216329.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269487.jpg">
+24. Light Bright. I barely remember it myself but you’d take a charcoal-black board and poke different colored pegs through it. You plug it in to the electrical outlet and all the pegs light up creating whatever shape you made in lights.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216330.jpg">
 
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269489.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269490.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269491.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269492.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269493.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269494.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269495.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269496.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269497.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269498.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269499.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269500.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269501.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269502.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269503.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269504.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269505.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269506.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269507.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269508.jpg">
-
-45.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85269509.jpg">
+25. The TV Guide channel. You had to sit through and watch as the channels slowly went by so we could see what was on. It blew getting distracted by the infomercial in the corner and then realizing you barely just missed what you were waiting for so had to wait for it to start all over.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87216331.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85269457/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87216306/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">Monday Morning Randomness Is Here To Make You Smile</a>
+## <a href="#link6" id="link5">37 Funny Memes And Things To Feast On</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167028.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327958.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167025.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327959.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167029.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327960.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167012.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327961.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167013.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327962.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167005.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327963.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167024.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327964.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167003.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327965.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167007.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327966.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167030.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327968.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167008.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327970.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167009.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327972.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167004.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327973.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167011.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327974.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167010.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327975.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167002.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327976.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167014.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327977.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167023.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327978.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167015.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327979.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167016.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327980.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167017.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327981.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167018.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327982.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167019.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327983.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167020.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327984.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167021.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327985.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167022.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327986.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167026.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327987.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167006.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327988.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167027.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327989.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/218923/85167031.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327990.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327991.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327992.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327993.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327994.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327995.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327996.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85327997.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85167001/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85327957/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">32 Savage Memes That Will Make You Say 'Oh Shit'</a>
+## <a href="#link7" id="link6">20 Funny Memes That Don't Want to Drive Either</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310551.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227419.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310546.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227420.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310547.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227421.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310549.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227422.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310548.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227423.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310550.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227424.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310553.jpeg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227425.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310555.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227426.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310560.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227427.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310554.jpeg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227428.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310556.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227429.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310552.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227430.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310557.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227431.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310561.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227432.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310562.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227433.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310566.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227434.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310568.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227435.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310569.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227436.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310572.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227437.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310573.png">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310575.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310571.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310570.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310576.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310577.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310579.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310583.png">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310582.png">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310580.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310584.png">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310585.png">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2362229/85310586.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227438.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85310545/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87227418/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">Cartoons And Photos That Seemingly Predicted 9/11</a>
-1. Wonder Woman cover 1963
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089615.jpg">
+## <a href="#link8" id="link7">30 Times Beggars Decided To Be Choosers</a>
+1. I'm sure some scalpers still have one.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273911.jpg">
 
-2. National Lampoon Magazine 1975
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089616.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273928.jpg">
 
-3. Sesame Street 1976
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089617.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273923.jpg">
 
-4. Pakistan Airline Ad 1979
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089618.jpg">
+4. A poor person Android just doesn't cut it for being accepted in school these days.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273900.jpg">
 
-5. Trading Places 1980
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089619.jpg">
+5. Next time she should just bring a water bottle to dump in the pool.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273901.jpg">
 
-6. Marvel Comic book 1983
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089620.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273929.jpg">
 
-7. Back To The Future 1985
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089621.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273918.jpg">
 
-8. The Illuminati Card Game 1990
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089622.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273902.jpg">
 
-9. “In 1990, Steve Jackson was a role playing inventor. He wanted to create a game called “Illuminati New World Order” game or INWO for short. His cards showed so much information that relates to our time and beyond that Secret Service agents went to his home. They did this in March 1, 1990. They seized his property without a warrant to gain computers, etc. Jackson was accused of hacking, which was false. In court, Steve Jackson won the case being awarded $50,000 plus $250,000 attorney’s fees. The cards show an interesting story about how the real elite use wars, panics, and other troubles to create the new world order.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089623.jpg">
+9. Sounds like the person having a wedding more expensive than $30,000 might be the financially irresponsible one.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273903.jpg">
 
-10. Ernest Goes to Jail 1990
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089624.jpg">
+10. I'm sure the comedy club has mac books for sale too.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273909.jpg">
 
-11. Mortadelo 1993
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089625.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273926.jpg">
 
-12. Viceland Magazine Article 1994
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089626.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273922.jpg">
 
-13. The Simpsons 1997
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089627.jpg">
+13. Uno reverse card engaged.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273904.jpg">
 
-14. The Matrix 1999...In the 1999 film of the Matrix, Anderson’s ID has the date of September 11, 2001 on it.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089628.jpg">
+14. Well that escalated quickly.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273905.jpg">
 
-15. FEMA book June 1999
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089629.gif">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273925.jpg">
 
-16. Back of the $20 bill shows the World Trade Center attacks. 9+11=20
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089630.jpg">
+16. Chairs do exist for less than $150. Probably a better option than murder.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273908.jpg">
 
-17. Trade Center Defender Game Early 2001
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089631.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273912.jpg">
 
-18. This one creeps me out the most...Johnny Bravo April 2001
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089632.jpg">
+18. Has she done the math on this? Not sure which answer is worse.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273913.jpg">
 
-19. Flexon Ad August 2001
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089633.jpg">
+19. You know, just do this highly skilled job for us for free. It's not like UCLA doesn't have the money.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273915.jpg">
 
-20. The Coup’s “Party Music” album cover finished June 2001
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/626749/85089634.jpg">
+20. Ah yes, anything being sold must be broken. That's why you want it so bad.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273906.jpg">
+
+21. "Must be willing to job for free." -  Brought to you by a red flag near you.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273916.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273921.jpg">
+
+23. "You win some you lose some" is actually a great line. Tough to argue with that one.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273910.jpg">
+
+24. They don't need luck. But do need a discount.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273917.jpg">
+
+25. It's red! That changes everything.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273907.jpg">
+
+26. Not exactly sure who she thinks is going to agree to all of these terms and be happy with them.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273914.jpg">
+
+27. Can't afford to pay a livable wage for your full time job offering, with your CORPORATE job salary?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273919.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273920.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273927.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87273924.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85089614/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87273899/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">21 Fast Food Employees Reveal The Food You Should Never Order</a>
-1. If you see something on the menu and can’t find at least one or two other items that the ingredients could be used in, don’t order it.For example, my restaurant has a pulled pork sandwich. We don’t use the pork for anything else. Since it’s not ordered too frequently, it’s not fresh and the product you’re eating might be days or weeks old. It’s not going to get you sick, but it definitely won’t be as fresh as the other things on the menu.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287286.jpg">
+## <a href="#link9" id="link8">22 Amazing Photos From The National Geographic Archives</a>
+1. A man stands dwarfed under the Ape-Ape leaves of Puohokamoa Gulch in Maui, Hawaii, 1924.Image source: Gilbert H. Grosvenor
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264135.jpg">
 
-2. I used to work at chipotle, and never ever ever order the Tacos. You get less than half the regular portions. Instead, order a bowl with whatever you want in it, then ask for the taco shells, hard or soft, on the side. When I was there, the shells were free to get on the side.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287287.jpg">
+2. A man herds sheep with the help of his collies in Scotland, 1919.Image source: William Reed
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264136.jpg">
 
-3. Tuna sandwiches. 80% mayonnaise.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287288.jpg">
+3. A woodman notches a felled tree’s trunk for sectioning in Western Australia, 1962.Image source: Robert B. Goodman
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264137.jpg">
 
-4. I work at a Buffalo Wild Wings. Don’t get anything other than the wings. That’s the only quality thing there. Everything else is frozen shit.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287289.jpg">
+4. Men blast granite to build tunnels for a hydroelectric project in Australia, 1963Image source: Robert B. Goodman
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264138.jpg">
 
-5. Worked at KFC for ~4 years. The BBQ sandwich is actually made from chicken too old and stale to give to the homeless shelters, so they soak it in BBQ sauce until it can be pulled and then they keep it on the heater for a month.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287290.jpg">
+5. A passageway in AlgeriaImage source: Thomas J. Abercrombie
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264139.jpg">
 
-6. I used to work at 7-11, so i’m gonna say any of the taquitos or hotdogs around midnight, up through about 4 or 5AM. around midnight you can be almost assured that these are now high-mileage. That hotdog might have more miles than your car.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287291.jpg">
+6. The wind sculpts the dunes of the Sahara Desert in the Erg Bourarhet, Algeria, 1973Image source: Thomas J. Abercrombie
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264140.jpg">
 
-7. Don’t order the salad. We have to add a butt-load of fatty ranch dressing and fried chicken to cover up the taste of the vile, old iceberg lettuce.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287292.jpg">
+7. Surfers overpopulate the waves off of Bondi Beach in Australia, 1963Image source: Robert B. Goodman
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264141.jpg">
 
-8. At our subway, The “oven roasted” chicken was actually boiled in a microwave.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287293.jpg">
+8. Woman adorned like a Chinese goddess poses in a garden in California, 1915Image source: Franklin Price Knott
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264142.jpg">
 
-9. Jimmy John’s…If you’re trying to order a healthy option, don’t order the Gourmet Veggie Club. It’s the second most caloric sandwich behind something called the “Gargantuan”. 8 slices of provolone cheese will do that.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287294.jpg">
+9. Flamingos standing and feeding in a pool near salt beds, Netherlands AntillesImage source: Volkmar K. Wentzel
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264143.jpg">
 
-10. Starbucks — don’t order something from the “secret menu”. We sure as shit don’t know what a Snickerdoodle frappuccino is, as it is not a menu item. Employees would be more than happy to make you a drink if you just explain the recipe rather than the name of it. I’ll make you diabetes in a goddamn cup if you just tell me what you want in there. Just don’t get mad at me for not knowing a whole menu customers created.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287295.jpg">
+10. Princess Grace Kelly in Monaco, 1962Image source: Gilbert H. Grosvenor
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264144.jpg">
 
-11. Anything egg related after breakfast ends. They keep a very small amount warm after breakfast and it tends to get old fast.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287296.jpg">
+11. With claws bared, a kitten attacks its own mirrored reflection, 1964Image source: Walter Chandoha
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264145.jpg">
 
-12. I used to work at Boston Market. They’re pretty good. The only thing I can think of is that any chicken that isn’t on the bone (sandwich, pot pie, etc) is day old, or more, leftover chicken.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287297.jpg">
+12. A shadow of a man holding a bicycle is cast on a wall near the Zambezi River, 1996Image source: Chris Johns
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264146.jpg">
 
-13. All Starbucks food is reheated frozen food. Ridiculous how little people realize that. Doesn’t mean it doesn’t taste good, it’s just not fresh at all and incredibly overpriced.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287298.jpg">
+13. Women carry baskets on their heads while children play in Kotaka, Mali, 1991Image source: James L. Stanfield
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264147.jpg">
 
-14. KFC. Literally anything.The potatoes are powdered potatoes, the gravy is powdered gravy, the corn and green beans come from Green Giant, at least they used to. Now idk where they come from but the green beans taste like shit now.Tenders. Used to be made fresh every order. Now they’re pre battered and stuck in a cooler. Sure, frozen chicken is frozen chicken, and KFC only serves frozen chicken, but when the tenders were fresh with every order and the fryer oil was recently changed, that was peak KFC.Mac and Cheese is microwaved now. Used to be baked. Guess that took too long.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287299.jpg">
+14. Astronaut Bruce McCandless II floats a few meters away from Space Shuttle Challenger during the historic first use of a nitrogen-propelled manned maneuvering unit in 1984Image source: NASA
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264148.jpg">
 
-15. I’ve worked at 4 restaurants in my life and lemons and ice are by far the most disgusting things you can get” The skin of a lemon contains several thousand pours that can hold bacteria. If the lemons are not carefully washed prior to use, there is a chance that bacterial can make its way into your water.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287300.jpg">
+15. Dozens of visitors frolic in the water as seen through a palm frond in Acapulco, Mexico, 1964Image source: Thomas Nebbia
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264149.jpg">
 
-16. I used to work in a baseball park concession stand. The short answer is not to order anything, but if you absolutely have to buy something, don’t buy the hotdogs.Do not. Buy. The Hot Dogs.They made it out of the package okay, and might even have been edible after we finished grilling them – and then they went into the water. We kept three pans of water at the back of the grill that held the hot dogs. Any hot dogs left at the end of the day went back into the fridge, and came out again the next day. Me and the other cook put our feet down on throwing out the water and old hotdogs after two full days, but the management didn’t want to let us.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287301.jpg">
+16. A white fallow stag stands in a forest in Switzerland, 1973Image source: James P. Blair
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264150.jpg">
 
-17. I used to work at Wendy’s. The meat used in the chili, yeah that comes from the meat on the grill top that expires and dries up that’s put in to a warming drawer until you have enough for a batch of chili, which we first freeze and then thaw the next day. Also if the chili sitting in the warmer doesn’t sell fast enough we just added hot water to it to mix it up.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287302.jpg">
+17. The Statue of Liberty hails dawn over New York Harbor in 1978Image source: David Alan Harvey
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264151.jpg">
 
-18. Panera – pasta; it’s all microwaved, this includes Mac and cheese. Smoothies/frozen drinks- nasty base crap that smells and it’s sticky. Cupcakes/coffee cakes- all come frozen. Best items are the real sandwhich/ salads. Real ingredients and usually fresh.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287303.jpg">
+18. Women sit in a modern chic boutique in Casablanca, 1971Image source: Thomas J. Abercrombie
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264152.jpg">
 
-19. If you’re really short on time, don’t count on chicken tenders or grilled chicken sandwiches or salads being made quickly at Burger King. I remember that the tenders took forever to cook and we didn’t really make them that often, so most times they were made to order. Same for the grilled chicken.Everything else is whatever, I mean, still shitty because it’s burger King but the normal amount of shitty.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287304.jpg">
+19. A young girl plays in a replica of a lunar-module in Toronto, Canada, August 1975Image source: Robert Madden
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264153.jpg">
 
-20. I work for McDonald's and make sure everyone that matters to me never orders anything that comes out of the ‘McCafe’ machine as these are routinely neglected, in practically all the McDonalds. Not only are staff not properly trained in its cleaning and maintenance, at almost every McDonalds I’ve had experience with, the managers in charge of training them don’t know fuck all either…All McCafe beverages run through a horrifically dirty machine – we’re talking 5+ inches of uncleaned, liquid bullshit making up its inside parts
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287305.jpeg">
+20. Welts, scars of beauty, pattern the entire back of a Nuba woman in Sudan, 1966Image source: Horst Luz
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264154.jpg">
 
-21. I worked at taco bell a little bit ago and I warn everyone to stay away from both the beans, and the steak. The beans start out looking like cat food, and the directions are, ‘Add water and stir until you can’t see white anymore.’ The steak was just the worst on dish duty. If it would sit too long it would become like hair gel. It was the worst.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287306.jpg">
+21. A kitten aboard a floating Victoria water lily pad in the Philippines, 1935Image source: Alfred T. Palmer
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264155.jpg">
+
+22. The Guards remain at attention after one guardsman faints, 1966
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264156.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87287285/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85264134/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">Weird And Awesome Images To Get You Through Your Day</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242874.jpg">
+## <a href="#link10" id="link9">20 Dark Secrets People Are More Comfortable Telling Strangers Online Than Their Family</a>
+1. My grandma was in a car accident and broke her ankle so she stayed at my house and we took care of her while she recovered. I was entering puberty at the time and discovered that you could order porn on cable and was like a madman ordering porn.
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112134/87319154/cable.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242841.jpg">
+The bill that month came out to $500 my mom thought it was my grandma because her novelas were on like channel 50-60 and the porn was 500-600 lmfaoooo. I’ve literally never told anyone to this day. -pinchefresona
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112130/87319153/camaro.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242845.jpg">
+2. My uncle owned an old Camaro that collected dust in his garage. When I was around 10 my family and I were in town visiting and I wrote the word “fuck” in the dust on the hood of the car. I used my thumb so that the letters were fatter than my normal index finger. A few hours later my aunt/uncle asked us who did it and I “proved” it wasn’t me by showing how the person who did it had bigger fingers than me. Taking that shit to my grave! -CLToris
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112141/87319155/college.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242848.jpg">
+3. That I didn't graduate from college. I failed one course my senior year, 2nd semester. The ceremony was already set up so they let everyone walk. I had no diploma in my award...nobody knows to this day and it's been 17 years. Failed one course, 3 credits. Was ashamed so I never went back for those 3 credits. So everyone believes I graduated. -TheLargeYard
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112118/87319151/bank.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242857.jpg">
+4. I owe the bank $100k. -markoshenov
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112117/87319150/abortion.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242856.jpg">
+5. It's not my secret, but my mom's. And I'm not hiding it from everyone, just the person who it potentially matters to the most. When my mom was in high school in the 60s, she had a long-term serious boyfriend named Jimmy. They were each other's first, they were together for years, and were planning on getting married. He went away to college, my mom stayed behind, but they were still together. You know what happened next. He cheated and got the new girl pregnant. He comes home to break the news to my mom. Abortion was not legal at the time. He basically says that he wants to be with my mom, but he has no choice but to marry this other girl. My mom was devastated.
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112129/87319152/callme.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242859.jpg">
+Here's the secret: my mom was also pregnant by him, but hadn't told him yet. She decided she wasn't ever going to tell him. Jimmy went on to marry the other girl and never knew my mom was also pregnant. She told me that she later threw herself down a flight of stairs to cause a miscarriage.
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112142/87319156/churchpoop.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242877.jpg">
+My mom actually reconnected with Jimmy during the early days of Facebook. She didn't have an account, but asked me to look for him using mine. He was still married to the same person. My mom was married to my dad. They wrote to each other for a while (using my account! ugh!) Signed their messages saying "I Love You."
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112144/87319157/elevator.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242844.jpg">
+My mom passed away a number of years ago. I think about this knowledge I have that Jimmy doesn't. This major life event thing that he doesn't even know happened. That could have changed the trajectory of many lives. I'm certainly not going to tell him. It's not my secret to tell. -kbivs
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112149/87319158/familly.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242847.jpg">
+6. 'Call me maybe' is my morning alarm. -chilloutjustin777
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112150/87319159/korea.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242846.jpg">
+7. I had an IBS attack once and had to violently shit in a church grounds behind someone’s car. Used underwear to wipe too and left that there. Not proud. -gotanycrisps
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112151/87319160/ghost.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242855.jpg">
+8. I sometimes wonder if a bunch of people in an elevator are gonna stab me all at once. -DairyKing28
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112156/87319161/mush.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242849.jpg">
+9. I would be perfectly ok with never talking to any of my immediate family again. -Dazzling-Toe-4955
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112203/87319162/murderer.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242861.jpg">
+10. My grandpa was stationed in Okinawa, Japan during the Korean war, while in the Marines. He hooked up with a woman there, and she got pregnant. So, I have a Japanese aunt and a few cousins, in Japan, whom I’ve never met before. -Cardinal270
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112204/87319163/notmarried.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242875.jpg">
+11. Funny, light hearted story from my childhood. My little brother was in the shower, I could hear him singing. I put a coat on backwards, and a stocking cap pulled over my face, and waited outside the bathroom door. He opened the door (still singing, and dancing kinda), and I did the Frankenstein thing. Arms out, moaning “uhhhh”.
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112215/87319167/pornsite.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242850.jpg">
+He screamed and fell backwards knocking the toilet completely over. Water went everywhere, the top of the toilet tank broke, shower curtain ripped down, and him laying on the floor in the middle of all this. I ran back down the hall; coat and hat off, and sauntered back casually. By then my mother and father and our sisters were there, and everyone is like, you know, what the hell. I’ve heard him tell this story as proof of the existence of ghosts. To this day (little feller is now a 52 year old bank manager with two kids)he believes in ghosts. I don’t feel a bit bad. -Jimmysweetspot
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112208/87319164/ones.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242851.jpg">
+12. My wife is handicapped and I lied to her that I find it hard to clean/cut up mushrooms. She has self esteem issues because I can do things much easily than her. So I lied, and now she feels better. -bukake_attack
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112211/87319165/pest.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242852.jpg">
+13. One of my closest co-workers, who is an integral part to our very large corporation killed a man in his late teens and threw the body in a lake. He only got off on a technicality. I work remotely so I don’t build a lot of personal relationships with people I work with regularly.
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112212/87319166/parenting.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242853.jpg">
+I googled his full name. It freaked me out at first. But I’ve kinda gotten over it. I wonder if anyone else knows. It happened 40+ years ago. He will retire soon and then I might ask another co-worker about it. I just don’t want to stir the pot. -adamsfan
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112219/87319168/plans.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242854.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242842.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242858.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242860.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242862.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242863.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242864.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242865.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242866.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242868.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242869.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242870.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242871.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242872.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242873.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85242867.jpg">
+14. My wife and I aren't officially married. No one knows. We had a ceremony and everything, reception... the whole nine yards. We just never did the official paperwork.
+<img src="https://cdn.ebaumsworld.com/2022/12/13/112221/87319169/xanax.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85242839/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87319149/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">47 Hilarious Hump Day Pics That Will Get You in The Mood</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451374.jpg">
+## <a href="#link11" id="link10">Guy Leaves His Apartment During Construction and Comes Back to Gigantic Mess</a>
+1. About 4 weeks ago I got a notice that there would be some construction work done in the apartment I live in. I got a letter telling me that the construction workers will need access to all apartments on saturday, June 24th and monday, June 26th. My landlord collected all security keys, so the workers could access the apartments in the event that nobody is there.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85392998.png">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451405.jpg">
+So I made the dumbest mistake I could make: I left my apartment. This is the picture I took about 5 days prior, June 19th. It shows my shelf the way I left it before I left my apartment, I don't really touch the game wall because I have no reason to. I'm more of a collector than an active gamer, and once I finished something, I put it in my shelf for it to look good. I want to point out the Majoras Mask 3DS, which is worth around 300-500€."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85392999.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112106/85452826/85437420.jpg">
+2. I left my apartment on Saturday at 12:40 pm  because all the construction noise was getting on my nerves.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85393000.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451384.jpg">
+I briefly returned the next day, Sunday, to get some things, when I noticed something weird about my shelf. Something was missing. I was joking around with my boyfriend that they'll probably rob me, I didn't actually believe they would.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85393001.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451379.jpg">
-
-6.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/111932/85452819/85436106.jpg">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451381.jpg">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451375.gif">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451383.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451386.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451387.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451388.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451389.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451391.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451392.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451393.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451394.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451396.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451401.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451404.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112147/85452829/85445910.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451406.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451409.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/111905/85452817/85435549.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85451377.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/111945/85452820/85436108.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/111959/85452821/85436114.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112012/85452822/85436118.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112024/85452823/85436123.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112038/85452824/85437398.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112052/85452825/85437400.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112119/85452827/85445890.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112133/85452828/85445895.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/111919/85452818/85435551.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112347/85452838/85450353.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112200/85452830/85445912.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112213/85452831/85445917.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112228/85452832/85450334.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112242/85452833/85450336.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112254/85452834/85450337.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112414/85452840/85450372.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112308/85452835/85450341.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112321/85452836/85450343.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112334/85452837/85450348.jpg">
-
-45.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112359/85452839/85450365.jpg">
-
-46.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112428/85452841/85450373.jpg">
-
-47.
-<img src="https://cdn.ebaumsworld.com/2017/08/30/112441/85452842/Eww.jpg">
+They handpicked a single game from my collection, probably thinking I wouldn't notice it. They targeted GTAV before, because they swapped places with REZ Infinite - too bad for them that it was an empty box. But Call of Duty: Black Ops 3 seemed to do the job just fine, given it was still wrapped and unopened since I bought it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85393002.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85451372/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85392997/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
