@@ -1,707 +1,704 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 01.29.2023-16:45:18<br>All credits to ebaumsworld.com
+Last Updated 01.29.2023-19:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">20 NFL Memes to Gear Up for Another Season of Football</a>
+## <a href="#link1" id="link0">Cash Me Ousside Girl Talks Sh*t But Gets Rekt In An Instant</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032941/87256757/ab.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85321607.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032950/87256763/fries.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85321608.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032942/87256758/baker.png">
-
-4.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032944/87256759/coach.png">
-
-5.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032945/87256760/cowboys.png">
-
-6.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032946/87256761/ball.png">
-
-7.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032948/87256762/FMNwFArWQAIrDcZ.jpg">
-
-8.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032951/87256764/game.png">
-
-9.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032953/87256766/joey.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032955/87256767/kd.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032956/87256768/kenny.png">
-
-12.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032958/87256769/legion.png">
-
-13.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032952/87256765/deshaun.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/032959/87256770/helmet.png">
-
-15.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/033000/87256771/madden.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/033002/87256772/massage.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/033004/87256773/pat.png">
-
-18.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/033005/87256774/tom.png">
-
-19.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/033007/87256775/Zach.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/2022/08/25/033008/87256776/wentz.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85321609.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87256756/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85321606/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">11 Inventions & Businesses That Proved Haters Wrong</a>
-1. Televisions: The long-distance transmission of a moving image was invented in the early 20th century, but television appeared only a few decades later. Why? Because no investors believed in the commercial success of “boxes with live pictures.“ In 1926, inventor Lee de Forest wrote: ”While theoretically and technically television may be feasible, commercially and financially it is an impossibility."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425923.jpg">
+## <a href="#link2" id="link1">19 Funny Pics To Make You Roll Over With Laughter</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214486.jpg">
 
-2. Cell phones: The cell phone, based on the idea of honeycombs, was invented by Martin Cooper. People told him that the game wasn’t worth the risk. However, they lined up at the stores on the very first day of sales! This device had a memory of 30 numbers, could work for an hour, and required a 10-hour charge.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425924.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214487.jpg">
 
-3. Emojis: Emojis were created in 1963 by American artist Harvey Ball. He received only $45 for his invention. A few years later, businessmen Bernard and Murray Spain started selling and licensing the yellow "smiles," which brought them more than $50 million.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425925.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214488.jpg">
 
-4. Broken Hearts Bar: Businessmen from the Chinese Nanjiang County created a bar where people going through a breakup could cry without feeling ashamed. When discussing this concept, people said no one needed such a bar. But the "Broken Hearts Bar" quickly became the most popular institution in the city, and its analogs can be found in every country.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425928.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214489.jpg">
 
-5. Supercomputers: When Gaurav Khanna was studying black holes, his laboratory needed an expensive supercomputer. Gaurav had another idea: he bought 412 pretty cheap PlayStation 3 consoles and installed another operating system on them. It turned out to be much more powerful and efficient than its expensive fellow.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425926.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214490.jpg">
 
-6. The Million Dollar Homepage: In 2005, an English student named Alex Tew decided to earn money for his education. He launched a website, each pixel of which cost $1. Anyone could buy a section of the site and post a link to their Web page. In less than 6 months Alex earned more than $1 million.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425927.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214492.jpg">
 
-7. Crazy straws: According to the legend, the creators just wanted to make a child choose the latter between soda and milk. Straws of the most insane shapes and sizes appeared, and they still have immense success among children and adults alike.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425929.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214493.jpg">
 
-8. Hula-Hoop: You can earn a lot by reinventing the wheel. Richard Knerr, inventor of a gymnastics hoop, proved it. Though no one believed in its commercial success, a month after the experiments ended, people lined up to get this round piece of plastic.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425930.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214494.jpg">
 
-9. Surgeon ants: Our ancestors came up with this idea in the first millennium BC. At that time, there were no instruments to sew up wounds, so people used ants, which fastened the edges of wounds with their powerful jaws. Surprisingly, this strange technique was popular until the 7th century.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425931.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214495.jpg">
 
-10. Balls against pollution: The Los Angeles reservoir was at risk of becoming seriously polluted: sunlight in combination with chlorine and bromine could make the water carcinogenic. An unusual decision was made to fill almost the whole reservoir with floating plastic balls. The balls prevented the appearance of algae and the heating of water, which very soon became clean again.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425932.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214496.jpg">
 
-11. Fidget spinners: The most trendy toy of 2017 is, in fact, just an upgraded version of the paper pinwheel. We now have a toy that drives half of humanity crazy. In just a week, a video app dedicated to fidget spinners gathered 7 million subscribers, and the business brings in billions of dollars.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425933.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214497.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214499.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214500.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214501.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214502.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214503.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214504.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214505.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85214507.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85425922/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85214485/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">15 Of The Smoothest Pick-ups Bartenders Have Ever Seen On The Job</a>
+## <a href="#link3" id="link2">Steven Seagal's New Look Gets Mercilessly Roasted By The Internet</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370713.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477820.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370714.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477821.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370715.jpg">
-
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370716.jpg">
-
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370717.jpg">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370718.jpg">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370719.jpg">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370720.jpg">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370721.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370722.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370723.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370724.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370725.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370726.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85370727.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477822.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85370712/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85477819/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">15 Parents Share The One Thing They'll NEVER, EVER Tell Their Children</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248940.png">
+## <a href="#link4" id="link3">30 People Who Took Laziness Too Far</a>
+1. "People At The Dog Park I Go To Are Too Lazy To Put Their Poop Bags In The Trash Can So They Hang Them On The Fence."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312868.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248941.png">
+2. "Ain’t My Job To Cut The Trees. I Paint The Lines."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312875.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248942.png">
+3. People Who Do This Are Just The Worst.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312863.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248943.png">
+4. "So I Finally Got A House, And They Literally Painted Over Bugs On The Wall."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312871.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248944.png">
+5. When You're So Lazy And Can't Walk 20ft To Watch Your Kid.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312882.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248945.png">
+6. The Dumpster On The Left Is Empty But People Are Too Lazy To Open The Lid So They Just Keep Piling Trash Up Into The Right Dumpster.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312891.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248946.png">
+7. If You Have A Gender Reveal Party And Leave Confetti Everywhere For People To Pick Up, F**k You.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312865.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248947.png">
+8. "I Pulled The Foil Off Of This To See What Was In It, And It Was Empty. And Still In The Fridge."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312866.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248948.png">
+9. "My Roommate Throws Away Dishes So He Won’t Have To Do Them."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312867.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248949.png">
+10. This Guy Wasn't About To Let 13 Inches Of Snow Or Laziness Stop Him From Getting To Work On Time.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312869.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248950.png">
+11. Did She Purchase Or Put Back Any Of The Books? Of Course Not.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312870.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248951.png">
+12. This Is Embarrassing.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312872.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248952.png">
+13. We Call This One, "The Landlord Supremo."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312864.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248953.png">
+14. Multiple Reasons Why You Should Put Your Cart Back And Not Be Lazy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312862.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248954.png">
+15. "I Tore My Rotator Cuff So My Husband Told Me He’d Finish The Interior Painting On Our Downstairs. He Says He’s Done."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312873.jpg">
+
+16. Best Employee Of The Month.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312874.jpg">
+
+17. "I Will Pass On The Lunch Meat. Thanks Anyway. Too Lazy To Get A Ladder."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312876.jpg">
+
+18. Yes. He Was Using Them Both.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312877.jpg">
+
+19. Lady, Your Laziness Causes An Unnecessary Line At The Exit Of Cardales.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312878.jpg">
+
+20. Lady Is Too Lazy To Find A Parking Spot So She Blocks The Bus From Picking Up The Kids From School.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312879.jpg">
+
+21. "How My Ex Roommate Left Her Bathroom After Moving Out."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312880.jpg">
+
+22. "Don't Even Get Me Started On The People That Test Spray Paint Like This."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312881.jpg">
+
+23. Lazy Karen.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312883.jpg">
+
+24. Lazy People Who Abandon Their Unwanted Groceries In The Freezer, Causing Them To Explode And Become Unsellable.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312884.jpg">
+
+25. "I Was Making Homemade Churros For The Husband And The Piping Bag Tip Popped Out. Too Lazy To Fix It. I Present To You The Turdo."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312885.jpg">
+
+26. Someone Was Very Lazy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312886.jpg">
+
+27. "This Idiot Hit Me While He Was Pulling Out Of A Gas Station, He Said He Didn't See Me."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312887.jpg">
+
+28. "First Day At The Beach And My Wife Made Sure I Was Protected From Sunburn By Spraying My Back With Sunscreen. I Can’t See Back There - Did She Do A Good Job?"
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312888.jpg">
+
+29. "My Sister Was Just Served This At A Local Mexican Restaurant."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312889.jpg">
+
+30. This Guy Ignored a No Entry Sign And Drove On Wooden Pier, Because He Was Too Lazy To Carry Stuff On His Dolly.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87312890.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85248939/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87312861/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">6 Hollywood Film Sets That Were Rumored To Be Cursed</a>
-1. Making a film isn’t easy. You need a whole army of staff, good talent, great locations and one hell of a story, to make a great film. But no matter how hard you try to manage all the elements, a lot of things can go wrong. Sometimes the difficulties in making a film are man-made, but sometimes, there’s a supernatural element that keeps you from making your film, and thus it becomes cursed.
-Throughout the history of cinema there’s a handful of films that have had some serious issues and events happen and the timing and circumstances all point to something or someone not wanting the film to happen, or punishing the participants for working on the film.
-But don’t take my word for it, read on below at your own peril.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173529.jpg">
+## <a href="#link5" id="link4">20 Loopholes People Exploited For Years</a>
+1. When I was in college they had this deal where if you signed up for a free trial of Netflix you could get a $10 gift code for Papa John's. They didn't even ask for a credit card back then, just an email, so I would just use make new email addresses and would get a code every time. Not only did I get free Netflix for a while, but I also got a lot of free pizza.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311216.jpg">
 
-2. Poltergeist
-This is perhaps one of the most cursed films out there.
-The actress that played little Carol Anne in the first three Poltergeist films, Heather O’Rourke, died under mysterious circumstances at the age of 12. She was originally admitted to the hospital for flu-like symptoms, that actually turned out to be a long standing condition that no one had caught until that point.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173530.gif">
+2. Not sure if it's a loophole but I was remoting in from home to work because of COVID. Since I'm salary I don't log in or submit a time card. Instead they require all employees (hourly or salary) to log in on Skype so they can track how long you're online. Except that they didn't disable the settings so I have my status remain "available" for 20 minutes of inactivity so I can take 50 minute lunches and not get docked for it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311232.jpg">
 
-3. O’Rourke wasn’t the only cast member to die after the films were completed. The actress that played her older sister Dana, was killed by her boyfriend right before Poltergeist II went into production.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173531.jpg">
+3. When I was at university, the pay-for campus printers all worked on a system where you'd print your documents, release them at the printer, they'd print, then after they finished printing, it would contact the server to get the cost deducted from your balance. That final step always took a while and I discovered in my first year that if I cancelled the print job as the final page was rolling out of the printer, it wouldn't deduct the cost from my balance. With this method I got free printing for nearly two years before they upgraded the system!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311211.jpg">
 
-4. Finally, Poltergeist II was plagued with so much bad luck that actor Will Sampson performed an exorcism on set, only to die a year after the film was released.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173532.jpg">
+4. Not sure if it counts as a loophole, but I worked at a books/music/video store when I was in high school. We were supposed to remove the "in training" portion of our name tags after the first two weeks. I just left mine on so that customers wouldn't ask me questions. A full year of hardly anyone talking to me at work was the best full year of my life.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311213.jpg">
 
-5. The Omen
-It’s not surprising that a film about the Antichrist would have some cursed elements. Besides some mysterious events on set and strange noises, there was also a death on set of an animal handler that was there to work on the set with the Baboon that Damien sends into a frenzy. Somehow, a tiger got loose the day after filming and mauled the handler.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173533.jpg">
+5. In college there was a parking garage that charged around $2/hour. I couldn't get a parking pass but learned the heated garage that charged $2/hour had a $20 fee for a lost ticket. I would park my car in there for a few weeks at a time and when I had to leave would "lose" my ticket and be forced to pay the $20 lost ticket fee. A parking pass was around $500 to park outside and all I payed were lost ticket fees to park in the heated garage.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311215.jpg">
 
-6. Everyone remembers this scene from the film. The creepy thing is that the special effects director who was responsible for this scene was in a car accident, shortly after the film was released. He was okay, but his girlfriend was decapitated in a way that was identical to this scene.
-Even more chilling, is that there’s a rumour that there was a sign by the wreckage that read “Omen 66km,” and the accident happened on Friday August the 13th, 1976.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173534.gif">
+6. Several years ago AT&T was running a trade-in promotion increasing the value of old iPhones way beyond what they were selling for on eBay / CL at the time. This promo thankfully wasn’t bundled to a new phone purchase and could be done on any active line of service with AT&T - so no limits on phone trade-ins. I ended up buying 31 old iPhone 4s for about $70 each on eBay and trading them all in to AT&T on promotion for $200. Worked out to $6200 in AT&T credits. I got myself 2 iPads, and 2 new iPhones at the time, and enough of a credit on my bill I didn’t pay for cell phone service for almost 2 years. I really miss this type of promotion!!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311217.jpg">
 
-7. The Exorcist
-Of course, a film about possession must have some creepy elements too.
-For example, the set of The Exorcist caught fire and burned down without any explanation, causing the film to be delayed for 6 weeks.
-Once the film was up and running, things went missing, and during the notorious scene with Regan and the crucifix, the actress that played her mother, Ellen Burstyn, hurt her back and had to be bedridden for weeks, delaying production even further. When production finally restarted, the crew saw the deaths of a night watchman and a special effects expert during principal shooting.
-Finally, when the film was completed, the actor who played alcoholic director Denning Burke, died suddenly from complications from a simple flu.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173535.jpg">
+7. I was visiting a hospital on a daily basis for many weeks (premature twin babies), but they didn't do multi-use discounts. It was costing something like £5 - £10 per day, until a few days in I realized that the hospital had only recently appointed the car parking company and they hadn't yet installed the "arrival time" machine at the car park entrance which you were meant to use on your arrival. And from that day on I got my "arrival time" ticket when I was leaving and only paid minimum stay.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311220.jpg">
 
-8. The cursed events didn’t only happen on the US portion of the film shoot, but also for the on-location shoot in Iraq. Due to all the other events, the filming for this portion was pushed from spring (when the weather is mild), to the summer, where half the crew was struck down with sunstroke or dysentery.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173536.png">
+8. When my brothers and I were 6-10 years old we found a crane candy game where you were “guaranteed to win” something. We found a laser sensor in the area where you pick up your prize. This indicated whether or not something had dropped. So, by holding the flap door open at the bottom the sensor was never triggered so for 25 cents we nearly emptied the machine. Thanks Red Robin!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311221.jpg">
 
-9. The climate on set was so terrifying that the director asked a Jesuit priest to come bless the set and perform an exorcism on the set. After that, things supposedly settled down until the film’s release.
-When the film hit theatres, there were notable cases of extreme reactions to the film. During the LA premieres, for every screening there were an average of 4 blackouts and 6 cases of vomiting, and plenty of people leaving the film halfway through.
-During the New York premiere screenings, one woman claimed that the film caused her to miscarry, while others had heart attacks.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173537.jpg">
+9. Carl’s Jr. app offered something like 10 points for “checking-in” each time you visited. Once you had 100 points you could get a free $6 burger. Well, I figured out the “checking-in” counted as long as your cell phone was within maybe 100 yards or so of the restaurant. And I drive past a Carl’s Jr. right before my house. So I would check in on the way to work each morning and check in again on the way home. Free burger every 5 days.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311222.jpg">
 
-10. Rosemary’s Baby
-With this film, there were several sources in which the curse could have come from.
-When the film started shooting, producer William Castle received a letter that read: “Bastard. Believer of Witchcraft. Worshipper at the Shrine of Satanism. My prediction is you will slowly rot during a long and painful illness which you have brought upon yourself.”
-Shortly after, he collapsed and required immediate surgery. Unfortunately for him, the condition kept on persisting and during one event he was heard to scream “Rosemary, for god’s sake, drop the knife!”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173538.jpg">
+10. Had intermittent anemia in college that I was trying to improve. But the blood work was about $100 each time. I started donating blood and if I was too low they’d turn me away and I’d keep trying to up my iron. If I was high enough, I got to donate to a good cause. Win win!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311210.jpg">
 
-11. The composer of the film’s score, Krzysztof Komeda, died during the film of a hematoma of the brain, which is very eerily similar to the death of the character of Hutch, in the film.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173539.jpg">
+11. I bought a card once for $10 that had 16 coupons for a BOGO pizza from Dominos. They were little stickers that you were supposed to pull off and hand in when using them, but they never asked for the stickers. They also didn't have an expiration on them. They also didn't tell anyone it was supposed to be one per order. We'd order 8 pizzas at a time, used them for two years. Thousands of dollars of free pizza really help when you're a broke college kid.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311214.jpg">
 
-12. Finally, there were rumours that Anton LaVey, who was the Black Pope of the Church of Satan, was a “technical advisor” in the film and played the devil. Some say it’s true, some say it’s a rumour.
-Whether or not he was on set, he was tangentially related to the cursed film. He was friends with Susan Atkins, a member of the Manson Family, who was sentenced to death for the murder of Sharon Tate, the directors wife, one year later.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173540.jpg">
+12. Years ago, Burger King sold mugs that you could refill for free any time at all. With soda or even shakes. My friends and I would bring a single mug, go in and get a chocolate shake, go back to the car to move the contents to another mug, go back in and repeat until all of us got free chocolate shakes. We did this regularly for about two years of high school.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311224.jpg">
 
-13. Twilight Zone: The Movie
-This is to expected, based on the subject matter, but the curse of this project had too high a cost.
-In a scene in the film where the films star Vic Morrow is trying to rescue children from a village in Vietnam, a helicopter flew too close to a motor, lost its tail and fell on top of Morrow and some child actors, with the rotors causing mortal injuries to them.
-A year prior to this accident, Morrow took out an insurance policy, after having a dream of a helicopter crash. On top of that, when the concept art was drawn up for the film, an unused scene in the sketches had a burnt out helicopter in the middle of a river; foreshadowing the tragic accident.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173541.png">
+13. Years ago I would buy a few games at a time. Some of the games I'd play for a few hours before deciding I didn't like the game. Since the games were opened, the store I bought them from wouldn't take it back. HOWEVER, I learned that Walmart would exchange the game for you, no questions asked without opening the new game. So I'd go to Walmart to 'exchange' a defective game, take the new, unopened game to the store I originally bought it from and return it for full price. Oops.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311225.jpg">
 
-14. The Passion of the Christ
-Moving out of the Horror genre, some other mainstream films were cursed as well. In this instance, it’s not so much supernatural elements, but perhaps something bigger than that.
-Jim Caviezel, the man who played Jesus, admits this was one of the worst shoots he’d been on. During the scene where he’s filming the sermon on the mount and the crucifixion scene, he was stuck my lighting, as well an assistant director.
-As well, while filming the scene on the cross, he actually did dislocate his shoulder, got hypothermia, a lung infection and pneumonia, as well as painful skin infections from all the makeup used to depict a battered Jesus.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173542.jpg">
+14. We had a situation at my old job, (a huge, international company), where we’d work shifts, either 8/10/12 hours. Anything after 8 hours was overtime. Sometimes we were scheduled for the next shift quite soon after the last one had ended, for example 05:00-12:00 and then 19:00-00:00. Someone discovered that if there were less than 8 hours between shifts in a 24-hour period, anything after 8 hours total was paid the overtime rate. We did it for ages and then in the context of some team chat, some twat asked one of the managers whether the above scheduling would still be feasible. Turned out the management hadn’t even noticed and stopped it immediately. And back to minimum wage we went.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311226.jpg">
 
-15. The Crow
-You knew this had to be on the list, right?
-Even outside of what happened to Brandon Lee, other crew members fell victim to the curse. On the first day of shooting, a crew member ran his crane into a power cable and had to be hospitalized with burns over 90% of his body.
-Then there was a construction worker that somehow drove a screwdriver through his own hand, a sculptor that lost control of his vehicle and plowed into the props room, destroying it. And what he didn’t destroy, a massive storm did.
-But that’s nothing compared to what happened to lead actor Brandon Lee. A prop gun that should have been filled with blanks, still had a steel rod embedded in it. When actor Michael Masee went to fire the prop, he shot Lee dead.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173543.jpg">
+15. I lived near a casino that would let you get chips using your credit card. I liked some of the shows and restaurants there but never gambled. So every time I went I'd charge $5K to my credit card for chips. Then I'd cash out at a different teller and swing by the bank on the way home to deposit the money and pay off my credit card. I did this maybe once a week. Boom $5K of free credit card points / cash back.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311228.jpg">
 
-16. Ironically enough, a different film predicted this event. Brandon Lee’s mother Linda, commissioned a film about Bruce Lee and wanted Brandon to play his father. Brandon declined, and filmed The Crow instead. In the final scene of the film, Bruce Lee is fighting a demon that wants to kill him, and gets distracted by a young Brandon and goes to take his life instead. This scene was filmed while Brandon was still alive, but released 2 months after his death.
-Even more eerie, Bruce Lee died after filming the 1973 film ‘Game of Death,’ in which he plays an actor who is shot by gangsters who have replaced a fake bullet with a live one, 20 years before that fate would befall his son.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173544.jpg">
+16. On Airbnb, some hosts allow you to change the date of the booking without any additional charges, (but would charge you if you cancelled the booking within certain hours), so if I had to cancel my booking without losing money I would change the date of my reservation to a month ahead of what it is currently and then in a couple of days cancel my reservation and get a full refund.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311227.jpg">
 
-17. Happy watching!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2424434/85173545.gif">
+17. Dating myself here, but in the late 80s, soda machines had just begun accepting dollar bills. You could take a bill and apply a piece of clear packing tape to it. Once the machine took the dollar, you could pull it back out using the tape. Free coke, but the best part was that you got change back! Paying you to drink a coke.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311229.jpg">
+
+18. When searching for sources on essays teachers warned not to use Wikipedia. On the other hand, he said noting about Wikipedia's own sources. The final product is so different that not even a software can make find similarities.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311230.jpg">
+
+19. In high school when I had a page count for an essay I would make the font size for periods, commas, apostrophes, etc. 2 numbers bigger than the essay text. In a decent sized essay it would tack on a page which was nice. For word count essays I would just make random words at the bottom and then make the text white. Didn’t work as well on online submissions like Turnitin.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311231.jpg">
+
+20. When I was a kid and we used real mail, I figured out if you reverse the addresses, you don't need a stamp. The postal service will just "send it back" to the return address. Haven't bought stamps in over 20 years!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87311233.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85173528/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87311209/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">Man Gets Amazing WW2 Cover Up Tattoo</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85235429.png">
+## <a href="#link6" id="link5">20 Savage Tweets We Saved for a Rainy Day</a>
+1. Always kiss the homies goodnight!
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045722/87279298/IMG_5934.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85235430.png">
+2. I mean, the guy's got a valid point.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045727/87279299/IMG_5937.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85235431.png">
+3. Bro at this point my body is an abandoned toys r us store in Ohio.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045729/87279300/IMG_5938.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85235432.png">
+4. Not gonna lie this is actually pretty dope.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045733/87279301/IMG_5940.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85235433.png">
+5. This is a Twitter gallery, but I'll allow the slander just this once.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045734/87279302/IMG_5941.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85235434.png">
+6. Correct me if I'm wrong, but I think that says 'Craig.'
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045736/87279303/IMG_5942.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85235435.png">
+7. You expect me to help you? We're only open another 6 hours.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045738/87279304/IMG_5926.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2438158/85235436.png">
+8. I hate this more than anyone can fathom.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045741/87279305/IMG_5945.jpg">
+
+9. Apple weather is like '55 degrees.' Lies. Absolutely lies.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045744/87279306/IMG_5946.jpg">
+
+10. She literally played it while twerking. Love to see it.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045746/87279307/IMG_5944.jpg">
+
+11. Dudes. Stop cheating on your wives.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045750/87279308/IMG_5948.jpg">
+
+12. Nate sounds like my kind of dude.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045831/87279322/IMG_5959.jpg">
+
+13. Mmmm. So cute. I love this time of year.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045751/87279309/IMG_5949.jpg">
+
+14. Someone is down BAD.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045754/87279310/IMG_5947.jpg">
+
+15. Can't believe people still want to do that job.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045758/87279311/IMG_5950.jpg">
+
+16. Whats going on ya bunch of creeps!?
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045808/87279312/IMG_5956.jpg">
+
+17. Put some of you right in your place.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045819/87279317/IMG_5957.jpg">
+
+18. Same with the airport. Why is there so much sexual tension at the airport?
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045822/87279320/IMG_5952.jpg">
+
+19. So, to answer your question...no.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045823/87279321/IMG_5960.jpg">
+
+20. I hope we're the reason you delete your Twitter account. That would be me doing my job.
+<img src="https://cdn.ebaumsworld.com/2022/09/29/045833/87279323/IMG_5962.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85235428/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87279296/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">20 Cool Pics and Crazy Coincidences</a>
-1. “The name of Adam Sandler’s character in his new movie, ‘The Do-Over,’ is Max Kessler. My name is Max Kessler. Oh yeah, and I look just like him.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242255.jpg">
+## <a href="#link7" id="link6">45 Fantastic Pics That WIll Help You Forget Your Troubles</a>
+1.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/120702/85442022/85436774.jpg">
 
-2. “Body heat making it look like little ghosts floating at the bus stop.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242256.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441575.jpg">
 
-3. “This guy’s haircut matches the lady’s coat.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242258.png">
+3.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/120715/85442023/85436783.jpg">
 
-4. “My bus driver looks almost exactly like Walter White from Breaking Bad.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242259.jpeg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441583.jpg">
 
-5. “The weird way the cats in my neighborhood sit.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242260.png">
+5.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115910/85442013/85441522.jpg">
 
-6. “Just a sleeping man-dog”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242262.png">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441588.jpg">
 
-7. “Face swapped with a stranger who looks (and acts) exactly like me”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242274.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/120621/85442019/85433750.jpg">
 
-8. “My drink was more shocked I spilled it than I was.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242263.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441589.jpg">
 
-9. “ER used neon-colored fluid to check my nephew’s eye. I’m pretty sure he has super powers now.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242264.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115959/85442017/85441534.jpg">
 
-10. “The way this leaf blends into the parking line.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242257.png">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441596.jpg">
 
-11. “This banana looks exactly like my mom’s dog.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242265.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441608.jpg">
 
-12. “I found the exact same image as on my grandad’s car keys laying on the ground.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242266.png">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441599.jpg">
 
-13. “My best friend got married and the only other bride we ran into was wearing the exact same dress!”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242267.png">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441600.jpg">
 
-14. “My cousin Anny looks exactly like her grandma.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242268.jpeg">
+14.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/120638/85442020/85433763.jpg">
 
-15. “I broke my apple slicer and accidentally created a very dangerous apple.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242269.jpeg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441604.jpg">
 
-16. “A bubble got stuck on one small strand of a spiderweb.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242270.png">
+16.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115858/85442012/85441517.jpg">
 
-17. “I think the same teacher got into the yearbook twice.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242261.png">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441620.jpg">
 
-18. “The lighting through the Golden Cathedral Arch strangely resembles my dog.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242271.png">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441592.jpg">
 
-19. “My snowman fell over and melted, but his face and hair still look the same.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242272.png">
+19.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115358/85441987/85439160.jpg">
 
-20. “This guy looks the same as the guy in the picture above him.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87242273.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115408/85441988/85439164.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115432/85441990/85439168.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441601.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115443/85441991/85439171.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441595.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115455/85441992/85439177.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115549/85441996/85439412.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115507/85441993/85439381.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115625/85441999/85439467.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115638/85442000/85439484.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115649/85442001/85439486.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115519/85441994/85439384.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115701/85442002/85439489.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115744/85442005/85440822.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115755/85442006/85440830.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115419/85441989/85439167.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115846/85442010/85441513.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115921/85442014/85441526.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115933/85442015/85441527.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115946/85442016/85441528.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/120610/85442018/85433746.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115823/85442008/85440840.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115531/85441995/85439397.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/120650/85442021/85436765.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85441586.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/2017/08/19/115834/85442009/85441506.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87242254/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85441574/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">38 Random Pics That Will Amuse and Entertain</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431454.jpg">
+## <a href="#link8" id="link7">30 Celebrity Photos That Fascinated Us</a>
+1. Elizabeth Taylor Photographed By Robert Vose For The Look Magazine, 1956
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283538.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431453.jpg">
+2. Goldie Hawn, 1964
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283516.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431465.jpg">
+3. Paul McCartney And Daughter
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283517.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113120/85431887/85431560.jpg">
+4. Elvis Signing An Autograph
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283518.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113211/85431891/85431578.jpg">
+5. Marlon Brando, Before And After Makeup For Portraying Don Corleone In The Godfather
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283519.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431455.jpg">
+6. Marilyn Monroe, June 1949
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283520.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431456.jpg">
+7. Audrey Hepburn
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283523.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431458.jpg">
+8. Nancy Reagan With Mr. T. Christmas, 1983
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283522.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431460.jpg">
+9. Here Is A Rare Photo From The First Day Daniel Radcliffe Met Rupert Grint
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283524.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431461.jpg">
+10. Young Meryl Streep
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283525.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431462.jpg">
+11. Ella Fitzgerald Was Born 4/26/1917. Here She Is Recording In The Studio With Louis Armstrong
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283526.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431463.jpg">
+12. Leonardo Dicaprio On The Set Of "Critters 3"
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283527.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113145/85431889/85431567.jpg">
+13. Audrey Hepburn Jumping. 1955. Photo By Philippe Halsman
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283528.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431464.jpg">
+14. Salvador Dali, 1930s
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283529.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431471.jpg">
+15. Young Leonardo DiCaprio
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283530.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431473.jpg">
+16. Bruce Lee
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283531.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431474.jpg">
+17. Rare Photo Of Kermit The Frog And Jim Henson
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283521.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431475.jpg">
+18. Dustin Hoffman, Robin Williams & Dante Basco On The Set Of Hook
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283532.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431477.jpg">
+19. Captain Kirk And Spock Eating And Having A Laugh
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283533.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431478.jpg">
+20. Mj vs. Mj
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283534.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431479.jpg">
+21. Paul Newman And Clint Eastwood
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283535.jpg">
 
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431480.jpg">
+22. Muhammad Ali Trains In A Pool At The Sir John Hotel In Miami, 1961
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283536.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431483.jpg">
+23. Alfred Hitchcock And A Baby On The Set Of The Birds (1963)
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283537.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/112854/85431876/85431446.jpg">
+24. Rare Color Photo Of The Kennedys
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283539.jpg">
 
-25.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/112905/85431877/85431491.jpg">
+25. Billie Holliday
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283540.jpg">
 
-26.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/112917/85431878/85431492.jpg">
+26. Young Johnny Depp
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283541.jpg">
 
-27.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/112933/85431879/85431494.jpg">
+27. The Clintons, Beginning Of ’70
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283542.jpg">
 
-28.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/112959/85431881/85431502.jpg">
+28. Feeding Hannibal Lecter A French Fry On The Scene Of Silence Of The Lambs
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283543.jpg">
 
-29.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113012/85431882/85431507.jpg">
+29. Young John Lennon With His Puppy
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283544.jpg">
 
-30.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113025/85431883/85431514.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113039/85431884/85431517.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113052/85431885/85431519.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431452.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113106/85431886/85431555.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85431476.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113134/85431888/85431561.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/112946/85431880/85431498.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/113159/85431890/85431569.jpg">
+30. Elton John At Dodger Stadium, 1975
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283545.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85431451/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87283515/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">10 Children's Toys That Got Banned From Sale</a>
-1. Sky Dancers - The little wind-up and spin through the air fairies were everywhere in the 90s and they were wreaking havoc. The Consumer Product Saftey Commission in 2000 stated when recalling the toy, "Galoob has received 170 reports of the dolls striking children and adults resulting in 150 reports of injuries. They include eye injuries, including scratched corneas and incidents of temporary blindness, broken teeth, a mild concussion, a broken rib, and facial lacerations that required stitches."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414615.jpg">
+## <a href="#link9" id="link8">Horrible And Hilarious Post Breakup Tattoo Coverups </a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407780.jpg">
 
-2. Yo-Yo Water Ball - Illinois, New Jersey and New York have all at one time or another banned Yo-Yo Water Balls, not only from stretch strings that wrap around kid's necks but also because the ball itself is made of flammable diesel hydrocarbons.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414616.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407781.jpg">
 
-3. Vibrating Nimbus 2000 Broom - This toy was quickly pulled from the market for obvious reasons....
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414617.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407782.jpg">
 
-4. Moon Shoes - The little babies that were popular in the late 70s up until the 90s were everywhere and at least one friend you had got injured on them. These little trampolines for your feet could cause a broken or twisted ankle in the blink of an eye.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414618.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407783.jpg">
 
-5. Cabbage Patch Snacktime Kids - These creepy little bastards were supposed to eat pre-packaged plastic food that comes with it. However, it would eat ANYTHING that got close to its close little mouth, which made it ideal for hair pulling fiascos and emergency room visits,
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414619.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407784.jpg">
 
-6. The Breast Milk Baby - This baby doll that was introduced in Spain caused outrage among parents, thinking that the doll sexualized young girls, allowing them to "breast feed" the creepy doll.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414620.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407779.jpg">
 
-7. SI: Fingerprint Examination Kit and CSI: Investigation Forensics Lab Kit - This seemed like an alright idea at the time, but what parents didn't know that the finger print powder that came with this popular 2007 board game was chalked FULL of asbestos.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414621.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407785.jpg">
 
-8. Black Canary Barbie - Who ever thought up the idea for this spin on Barbie, definitely likes the occasional spanking. The Black Canary Barbie was marketed as a super hero, but parents were right to see it as nothing more than S&M Barbie.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414622.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407786.jpg">
 
-9. Caylee Sunshine Doll - Someone actually made a doll from Casey Anthony's dead daughter's likeness, naming it a Caylee Sunshine doll. No wonder it sparked such outrage and was pulled almost immediately
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414623.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407787.jpg">
 
-10. African American Oreo Barbie - Being quickly released and taken off the shelves in 1990, whoever thought up Oreo Barbie must've not realized that Oreo is a derogatory term for African Americans. They were probably not working at Mattel long after this.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85414624.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407788.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407789.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407790.png">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407791.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407792.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85407793.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85414614/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85407778/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">20 Bizarre Facts That are Full of Random</a>
-1. "In Venezuela there is a thunderstorm that never ends."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224676.jpg">
+## <a href="#link10" id="link9">Karen Gets Instant Karma after Prematurely Calling Tow Truck on Another Woman</a>
+1.
+<img src="https://cdn.ebaumsworld.com/2022/09/02/035828/87262590/IMG_4722.jpg">
 
-2. "It is a Felony to own 6 or more sex toys in the state of Texas. Texas penal code 43.23 obscenity (section F)."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224677.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/2022/09/02/035830/87262591/IMG_4723.jpg">
 
-3. "Did you know the fastest woman in the world would be ranked 6348th place amongst the fastest men in the world?"
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224678.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/2022/09/02/035834/87262594/IMG_4724.jpg">
 
-4. "77% of people who inherit a large family fortune end up losing it all in just 3 years. 65% of all American professional athletes end up bankrupt 5 years after retirement. Knowing how to manage your personal finances is the key to wealth preservation."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224679.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2022/09/02/035831/87262592/IMG_4725.jpg">
 
-5. "Elon Musk just sold 6M Tesla shares for $6.9B. With this cash, he will be able to exercise options from 2012 allowing him to buy 22.86M Tesla shares at $6.24 each. Elon Musk will thus have increased his total number of Tesla shares to 186M while having obtained several billion dollars in cash."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224680.jpg">
-
-6. "Female fish will fake orgasms to trick males into thinking they've successfully mated, then the female will swim off to find a better partner."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224681.jpg">
-
-7. "Men who ejaculate at least 21 times a month slash their risk of prostate cancer by A THIRD."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224683.jpg">
-
-8. "In Japan, many families eat a KFC for Christmas Dinner. Many people order their meals months in advance and queue for hours to collect them."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224685.jpg">
-
-9. "Comparison: 261 children in Ukraine have been killed since the Russian invasion vs 650 shot and killed in the USA so far this year."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224686.jpg">
-
-10. "Patrick has a fishing licence meaning he is allowed to kill other citizens of bikini bottom."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224687.jpg">
-
-11. "Alan Turing, the man who cracked Germany’s Enigma code which helped Britain defeat Nazi Germany, was chemically castrated for being a homosexual which lead him to be clinically depressed and commit suicide in 1954."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224688.jpg">
-
-12. "Space suits take 5,000 hours to make, costs 1 million dollars, weighs about 110 pounds, and has 11 layers of material."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224689.jpg">
-
-13. "The wealth of U.S. billionaires increased by $2.1T during the pandemic. The wealth of the richest 1% of Americans now exceeds the entire wealth of the middle class. Even more serious is that the richest 1% report only a quarter of their income at most."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224690.jpg">
-
-14. "In feudal Japan, lords purposely built homes with squeaky floors as a defensive measure against ninjas."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224691.jpg">
-
-15. "The expiration date on a bottle of water is for the bottle, not the water."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224682.jpg">
-
-16. "JFK's wife knew of his affairs and, while not happy about them, had come to accept their arrangement. During an interview with a french reporter during a tour of the White House, she pointed at one of JFK’s secretaries and said in French, “And that is the woman who is sleeping with my husband."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224692.jpg">
-
-17. "America has the largest strategic petroleum reserves in the world with 568 million barrels. Joe Biden has just decided to release 1 million barrels a day for 6 months, which represents 180 million barrels. The goal is to ease the pressure on the oil market."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224693.jpg">
-
-18. "1-3% of the population are considered "the sleepless elite." They can fall asleep quickly and get 4-6 hours of sleep and be fully rested."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224684.jpg">
-
-19. "If you find a $100 bill on the ground and it takes you a second to pick it up, for that brief moment you are making $360,000 per hour."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224694.jpg">
-
-20. "Until 1948, 7-Up contained "lithium citrate," a mood stabilizer used to treat bipolar disorder."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87224695.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/2022/09/02/035832/87262593/IMG_4726.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87224675/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87262589/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">23 Roasts That Left People With Crippling Depression</a>
+## <a href="#link11" id="link10">15 People Reveal Their Best 'Don't F*ck With Me' Moments</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85279999.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297845.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280000.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297846.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280001.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297847.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280002.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297848.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280003.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297849.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280004.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297850.png">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280005.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297851.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280006.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297852.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280007.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297853.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280008.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297854.png">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85280009.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297855.png">
 
 12.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/033837/85494216/85410747.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297856.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/033849/85494217/85117492.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297857.png">
 
 14.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/033903/85494218/85117491.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297858.png">
 
 15.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/033917/85494219/85117488.png">
-
-16.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/033931/85494220/85117487.png">
-
-17.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/033943/85494221/85117486.png">
-
-18.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/033956/85494222/85117485.png">
-
-19.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/034009/85494223/85117484.png">
-
-20.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/034023/85494224/85117483.png">
-
-21.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/034035/85494225/85117482.png">
-
-22.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/034048/85494226/85117481.png">
-
-23.
-<img src="https://cdn.ebaumsworld.com/2017/10/17/034100/85494227/85117478.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85297859.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85279998/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85297844/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
