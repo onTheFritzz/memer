@@ -1,817 +1,1039 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 02.01.2023-19:45:18<br>All credits to ebaumsworld.com
+Last Updated 02.01.2023-22:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">Twitter Idiot Gets Rekt After Making The Dumbest Tweet Ever</a>
+## <a href="#link1" id="link0">22 Fascinating Facts That Will Slay Your Boredom</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85458506.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468792.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85458507.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468793.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85458508.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468794.jpg">
+
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468795.jpg">
+
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468796.jpg">
+
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468797.jpg">
+
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468798.jpg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468799.jpg">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468800.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468801.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468802.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468803.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468804.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468805.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468806.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468807.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468808.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468809.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468810.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468811.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468812.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85468813.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85458505/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85468791/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">23 Times Embarrassed Girls Were Caught In The Walk of Shame</a>
+## <a href="#link2" id="link1">Best of Roast Me: These People Asked To Get Roasted And Got Absolutely SLAYED</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438615.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157388.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438616.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157389.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438618.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157390.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438619.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157391.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438620.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157392.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438621.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157393.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438622.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157394.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438623.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157395.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438624.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157396.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438625.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157397.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438626.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157399.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438627.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157401.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438628.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157402.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438629.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157403.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438630.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157404.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438631.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157405.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438632.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157406.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438633.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157407.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438634.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157408.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438635.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157409.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438636.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157410.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438637.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157412.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85438638.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157415.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85438614/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85157387/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">42 Late Nite Pics That Will Keep You Wide Awake</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308747.jpg">
+## <a href="#link3" id="link2">Guns That Were Game Changers</a>
+1. Benelli Black Eagle
+Back in 1991, little-known gun company Benelli introduced an autoloading shotgun with their inertia-driven system; the world of autoloading shotguns hasn’t been the same since.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264083.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053729/85308954/I2SK721.png">
+2. Knight MK-85 
+In 1985, sporting goods store owner and amateur gunsmith Tony Knight built a muzzleloader with the nipple directly behind the powder charge, at the rear of the barrel, rather than to the side as with more traditional muzzleloaders. In addition to making ignition far more reliable, Knight’s design is also credited with “sparking” (pun intended) the modern muzzleloading revolution.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264084.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308748.jpg">
+3. Ruger Number One
+Bill Ruger was infamous for building not what customers wanted to buy but what he wanted to build. The falling-block actioned No. 1 single-handedly resurrected American interest in the single shot rifle.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264085.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308749.gif">
+4. Ruger 10/22
+first introduced in 1964, the Ruger 10/22 is chambered for the .22 Long Rifle rimfire cartridge and is the standard by which all other .22 rifles are judged.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264086.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053820/85308958/ToSW6oC.jpg">
+5. M-16 
+Based on the AR-10 designed by Eugene Stoner, the M-16 and its variants started the “modern sporting rifle” craze, and it remains in use by militaries all over the world. It was officially adopted by the U.S. military in 1969 (although it was in use as early as 1963), and the AR platform remains very popular among civilian shooters today.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264087.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308750.jpg">
+6. Remington 700 
+The Remington 700, designed from the ground up to be a mass produced weapon, is one of the most popular bolt action rifles available today. It enjoys great popularity with civilian as well as military and police shooters worldwide and is one of the most accurate out-of-the-box rifles ever.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264088.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308752.jpg">
+7. Mossberg 500 
+The Mossberg 500, first introduced in 1961, is currently the number one selling shotgun in America and is second in total production, behind the Remington 870. Its low cost, rugged reliability and literally hundreds of variations make it popular with military/law enforcement personal, hunters, and gun enthusiasts all over the world.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264089.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308751.png">
+8. Marlin Model 60 
+First introduced in 1960 as an inexpensive recreational rifle, Marlin claims that it is the most successful of its type in the world with over 11,000,000 produced. What we do know for certain is that made recreational shooting accessible to millions.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264090.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053704/85308952/CSCEGAM.png">
+9. M-14 
+The M-14 began replacing the M1 Garand as early as 1959, and stands as America’s last true “battle rifle” (standard issue rifle firing a full-power rifle cartridge). It remains a well-loved weapon that still sees limited use today
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264091.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308753.jpg">
+10. AK-47 
+First introduced into active service in 1948, the AK-47 is the most widely produced firearm… ever. Designed by Mikhail Kalashnikov, it remains in widespread use all over the world.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264092.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053743/85308955/LflxbYW.png">
+11. MG-42
+First adopted by the German Army as a replacement for the fragile and expensive MG-34 (itself the first modern general purpose machine gun), the MG-42 and the terrifying 1,200-1,500 rounds per minute were so feared that the U.S. Army created training films to help soldiers handle the psychological trauma of facing one in battle. Variants of “Hitler’s Buzzsaw” remain in service today.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264093.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053833/85308959/YBLeRmN.jpg">
+12. Winchester Model 70 
+Often called “The Rifleman’s Rifle,” Winchester Model 70s made before 1964 remain some of the most highly sought after bolt action rifles in existence.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264094.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308754.jpg">
+13. M1 Garand
+The first standard issue semi-automatic service rifle in the world, General George S. Patton called the M1 “The greatest battle implement ever devised.” What else is there to say?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264095.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308755.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053650/85308951/9CieIsa.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308756.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308757.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308758.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308759.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308760.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308761.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308762.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053808/85308957/qSivoik.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053637/85308950/1ZrqZ4c.png">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308763.png">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308764.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053755/85308956/MsWwpUf.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308765.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308766.png">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308767.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308769.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308770.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308768.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308771.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308772.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308773.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308774.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308775.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308777.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/2017/03/29/053715/85308953/EIm2scj.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308776.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85308778.png">
+14. Browning M2 
+The Browning M2 machine gun, designed by John Browning to fire the formidable .50BMG cartridge, is simply the most prolific machine gun in history. Production began in 1933, and the “Ma Duce” remains in widespread usage today.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85264096.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85308746/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85264082/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">25  Explosive Facts About the Manhattan Project</a>
-1. Qian Xuesen was a Chinese rocket scientist who graduated from MIT and Caltech, a major contributor to the field of engineering and aerodynamics, worked on the Manhattan Project, was deported by the US during the Red Scare to China, and became the "Father of Chinese Rocketry."
-
--u/Krelius
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278595.jpg">
+## <a href="#link4" id="link3">33 Fresh And Funny Memes And Things</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249006.jpg">
 
-2. Back in 1945, a physicist at Kodak in Rochester discovered the secret Manhattan project atomic testing 2000 miles away in New Mexico due to straw containing traces of Cerium-141. The straw was sourced from milling plants in Indiana and Iowa that was used to make the film packaging.
-
--u/arkster
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278596.png">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249007.jpg">
 
-3. In 1944 a Sci-fi writer wrote a short story describing nuclear bombs and their construction methods called "Deadline". It was so accurate that the Counter intelligence Corps feared a leak or spy on the Manhattan Project. In actuality, the info was always there in public scientific journals.
-
--u/richard-mt
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278597.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249008.jpg">
 
-4. Theodore Hall was among the youngest Manhattan Project scientists. He finished high school at 14, graduated from Harvard at 18, and recruited for the nuclear program at 19. Fifty years later, near death, he admitted to having been a Soviet informant the entire time.
-
--u/stratohornet
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278598.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249009.jpg">
 
-5. The B-29 Superfortress, the planes that dropped the atomic bombs, cost $3B to develop. The entire Manhattan Project was $1.9B in development. Making the planes about 50% more expensive than the bombs themselves.
-
--u/xE1NSTE1Nx2049
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278599.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249010.jpg">
 
-6. Sir James Chadwick, the English physicist who discovered the neutron and was awarded the Nobel Prize in 1935, actually enrolled in Physics by mistake when he was a University student. He wanted to study maths. He also led the British team of the Manhattan project.
-
--u/Bara_Chat
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278600.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249011.jpg">
 
-7. Details of the Manhattan Project were so secret that many workers had no idea why they did their jobs. A laundrywoman had a dedicated duty to "hold up an instrument and listen for a clicking noise" without knowing why. It was a Geiger counter testing the radiation levels of uniforms.
-
--u/derstherower
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278601.png">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249012.jpg">
 
-8. As US senator, Truman took note of a project receiving funding named “Expediting Production” with no further explanation. He asked the Secretary of War about it who said it was classified. Truman learned about The Manhattan Project when he became president from the same Secretary of War.
-
--u/Mad_Chemist_
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278602.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249013.jpg">
 
-9. A Belgian businessman was instrumental to the Manhattan Project's success. Realizing uranium's importance, he shipped 1,200 tons of it to Staten Island. When Lieutenant Colonel Nichols contacted him, he simply responded: "You can have the ore now. It is in New York. I was waiting for your visit."
-
--u/plopsaland
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278603.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249014.jpg">
 
-10. In addition to Little Boy and Fat Man, the Manhattan project also worked on a design called "Thin Man". The project was shelved after it was found that plutonium isotope impurities would have likely caused it to blow itself apart prematurely.
-
--u/Dovahkiin1337
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278604.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249015.jpg">
 
-11. When Truman told Stalin about the Manhattan project in July of 1945, Stalin displayed little reaction, since Stalin had known about the project for almost 4 years before Truman, and he arguably knew more about it than Truman himself did.
-
--u/MegaZeroX7
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278605.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249016.jpg">
 
-12. In 1945, the director of the Los Alamos Lab during the Manhattan Project, Robert Oppenheimer, bet ten dollars against a colleague's entire month's pay that the bomb would not work at all. The actual result was 21 kilotons, more than 4 times as much as had been predicted by most at Los Alamos.
-
--u/LateBoomerKY
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278606.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249018.jpg">
 
-13. More than a dozen vulnerable people were involuntarily injected with plutonium as part of the Manhattan Project, in order to learn the human biological reaction to radiation poisoning.
-
--u/aerostotle
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278607.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249019.jpg">
 
-14. Leona Woods was the only woman physicist on the team which built the world's first nuclear reactor as part of the Manhattan Project. She became a mother during the Project but hid her pregnancy as not to miss work. Afterward as a professor, she authored >200 papers in physics and astrophysics.
-
--u/blueberrisorbet
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278608.png">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249020.jpg">
 
-15. Bohemian Grove is a restricted 2700-acre campground in California that is only available for the world's elite. It is described as a private vacation getaway yet it is famous for hosting the Manhattan Project planning meeting in 1942, that led to the creation of the atomic bomb.
-
--u/SneakerMarket1
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278609.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249021.jpg">
 
-16. Prior to the first Nuclear Weapon test "Trinity", Manhattan Project scientists wanted to get an idea of how big a nuclear explosion might be.....so they did the only logical thing and stacked 100 tons of TNT at the test site and blew it up.
-
--u/Spaceisveryhard
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278610.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249022.jpg">
 
-17. Manhattan Project nuclear physicist Alvin Weinberg was fired from his job for continually advocating for a safer and less weaponizable nuclear reactor using Thorium, one that has no chance of a meltdown.
-
--u/jmepstein1
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278611.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249023.jpg">
 
-18. Nuclear physicists working on the Manhattan Project at Purdue University created the “barn unit” to secretly describe the approximate cross-sectional area presented by the typical nucleus, which, in particle physics, is a relatively large target to hit (i.e. the broad side of a barn).
-
--u/751assets
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278612.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249024.jpg">
 
-19. US Presidential candidates get intelligence briefings. Harry Truman began this practice in 1952 as a reaction to his own experience at the beginning of his Presidency - he knew next to nothing about the U.S.’s intelligence apparatus, including the Manhattan Project.
-
--deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278613.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249025.jpg">
 
-20. Harry Daghlian was a 24-year-old physicist with the Manhattan Project. He accidentally dropped a brick into the center of a plutonium core and exposed himself to a lethal dose of radiation, dying 25 days after the accident.
-
--u/stemh18
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278614.jpeg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249026.jpg">
 
-21. Despite having some of the top physicists in the world, including Werner Heisenberg, Nazi Germany was unable to build a nuclear weapon partly because they did not want to affiliate with "Jewish Physics" causing many scientists to defect to the US to help with the Manhattan Project.
-
--u/Narwall776
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278615.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249027.jpg">
 
-22. Only 12 individuals, out of a total of 150,000 scientists and engineers who worked on the Manhattan project, were familiar with the overall project.
-
--u/berlioz1982
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278616.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249028.jpg">
 
-23. In 1944, Lex Luthor was the first character in a comic book (and one of the first in fiction) to use an atomic bomb. The United States Department of War asked this story line be delayed from publication, which it was until 1946, to protect the secrecy of the Manhattan Project.
-
--u/ExoSpectra
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278617.jpg">
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249029.jpg">
 
-24. Richard Feynman, a physicist who worked on the Manhattan Project, was hounded by the FBI until he sent them a memo to leave him alone as he’d helped build the atomic bomb. When J. Edgar Hoover found out about it, he also sent out a memo telling them not to pursue Feynman unless told otherwise.
-
--deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278618.jpg">
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249030.jpg">
 
-25. Manhattan Project mathematician Richard Hamming was asked to check some arithmetic by a fellow researcher. Hamming planned to give it to a subordinate until he realized it was a set of calculations to see if the nuclear detonation would ignite the entire Earth's atmosphere.
-
--u/torgis30
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87278619.jpg">
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249031.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249032.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249033.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249034.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249035.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249036.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249037.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249039.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85249040.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87278594/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85249005/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">Dodgers Reporter Fractures Wrist and 6 Ribs Going Down the Brewers' Slide </a>
+## <a href="#link5" id="link4">27 Of The Funniest And Most WTF Things Ever Seen On An Airplane</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2022/08/18/023932/87250834/dodgers-reporter1.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231392.jpg">
 
-2. Oh here we go!
-<img src="https://cdn.ebaumsworld.com/2022/08/18/023931/87250833/dodgers-reporter2.png">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231393.jpg">
 
-3. Ouch!
-<img src="https://cdn.ebaumsworld.com/2022/08/18/023934/87250835/dodgers-reporter3.png">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231394.jpg">
+
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231395.jpg">
+
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231396.jpg">
+
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231397.jpg">
+
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231398.jpg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231399.jpg">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231400.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231401.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231402.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231403.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231404.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231405.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231406.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231407.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231408.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231409.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231410.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231411.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231412.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231413.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231414.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231415.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231416.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231417.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85231418.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87250831/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85231391/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">21 Funny Posts From 'Black People Twitter'</a>
+## <a href="#link6" id="link5">10 Vintage Pics Of Carrie Fisher Promoting Return Of The Jedi</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432182.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225421.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432190.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225422.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432191.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225423.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432188.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225424.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432183.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225425.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432185.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225426.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432176.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225427.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432180.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225428.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432177.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225429.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432178.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432179.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432181.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432184.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432186.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432187.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432189.png">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432192.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432193.png">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432194.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/051559/85432228/qWmeQAnLnTwQNrj98LK5OuZsegRsORv7T78v3yiNNP4.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/2017/08/08/051612/85432229/WfV8KAhDI1nhU_SlG0Z8VrJYhB4duxrhH5pejBL_teQ.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1953939/85225430.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85432175/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85225420/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">Dudes Posting Their Wins Never Gets Old to Us</a>
-1. An absolute chaotic mastermind. Maybe a serial killer, but at least he has clean laundry.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032145/87275625/IMG_5563.jpg">
+## <a href="#link7" id="link6">60 Memes To Make You Cream</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342286.jpg">
 
-2. I wish I had a personal look-out sniper.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032146/87275626/IMG_5562.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342287.jpg">
 
-3. Just some dudes living their best lives.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032147/87275627/IMG_5565.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342288.jpg">
 
-4. Work smarter not harder? Play smarter not harder.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032149/87275628/IMG_5566.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342289.jpg">
 
-5. Because that's what TRUE heroes do!
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032150/87275629/IMG_5567.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342290.jpg">
 
-6. This is the kind of motivation we like to see on the timeline.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032151/87275630/IMG_5568.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342291.jpg">
 
-7. This is the raddest dude around.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032206/87275642/IMG_5580.JPG">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342292.jpg">
 
-8. If I'm not close to death, I'm not living.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032153/87275631/IMG_5569.JPG">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342293.jpg">
 
-9. What an absolute baller move. Power naps for the win.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032154/87275632/IMG_5570.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342294.jpg">
 
-10. Text your grandma goodnight, fellas! It's worth it.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032155/87275633/IMG_5564.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342295.jpg">
 
-11. I dare someone to make fun of this guy for anything, ever.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032156/87275634/IMG_5573.JPG">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342296.jpg">
 
-12. I'm not crying, you're crying.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032158/87275635/IMG_5572.JPG">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342297.jpg">
 
-13. Dude wasn't messing around at all.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032158/87275636/IMG_5574.JPG">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342298.jpg">
 
-14. Give this guy all of the medals.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032159/87275637/IMG_5575.JPG">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342299.jpg">
 
-15. Hell yeah. Congrats to this dude.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032201/87275638/IMG_5571.JPG">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342300.jpg">
 
-16. What a a setup. Can't beat it.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032202/87275639/IMG_5577.JPG">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342301.jpg">
 
-17. This one got me. No words.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032204/87275640/IMG_5576.JPG">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342302.jpg">
 
-18. Damn focus on yourself brother!
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032205/87275641/IMG_5578.JPG">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342303.jpg">
 
-19. No UGG boots or apple cider here, just a bada** in a pumpkin.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032207/87275643/IMG_5581.JPG">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342304.jpg">
 
-20. It's...it's beautiful.
-<img src="https://cdn.ebaumsworld.com/2022/09/23/032208/87275644/IMG_5579.JPG">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342305.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342306.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342307.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342308.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342309.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342310.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342311.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342312.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342313.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342314.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342315.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342316.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342317.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342318.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342319.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342320.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342321.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342322.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342323.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342324.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342325.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342326.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342327.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342328.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342329.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342330.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342331.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342332.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342333.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342334.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342335.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342336.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342337.jpg">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342338.jpg">
+
+54.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342339.jpg">
+
+55.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342340.jpg">
+
+56.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342341.jpg">
+
+57.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342342.jpg">
+
+58.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342343.jpg">
+
+59.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342344.jpg">
+
+60.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85342345.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87275624/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85342285/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">20 Anal Bead Cheating Scandal Memes, Because Why Not?</a>
+## <a href="#link8" id="link7">41 Pics So Great You Will Stop And Stare</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021503/87278427/IMG_5840.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/010950/85236873/85236811.jpg">
 
-2. There's a lot to unpack here.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021510/87278430/IMG_5843.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85236002.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021504/87278428/IMG_5842.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235980.jpg">
 
-4. We get it, you've never touched a woman in your life.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021509/87278429/IMG_5844.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235992.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021526/87278433/IMG_5846.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/010810/85236866/85236212.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021512/87278431/IMG_5845.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/010838/85236868/85236218.jpg">
 
-7. We are NOT the same.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021522/87278432/IMG_5841.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/2017/01/10/010909/85236870/85236604.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021536/87278435/IMG_5848.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/010921/85236871/85236614.jpg">
 
-9. Choose your fighter, anal beads or spit.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021531/87278434/IMG_5849.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/2017/01/10/010856/85236869/85236222.gif">
 
 10.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021541/87278436/IMG_5847.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/010935/85236872/85236624.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021608/87278445/IMG_5862.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011052/85236877/85236821.jpg">
 
-12. He deserves some sort of award.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021543/87278437/IMG_5852.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011006/85236874/85236814.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021544/87278438/IMG_5850.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011019/85236875/85236815.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021546/87278439/IMG_5853.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011038/85236876/85236819.png">
 
 15.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021556/87278440/IMG_5854.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011109/85236878/85236825.png">
 
 16.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021601/87278441/IMG_5851.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011126/85236879/85236827.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021603/87278442/IMG_5856.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011138/85236880/85236828.jpg">
 
-18. Yikes. Too soon?
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021604/87278443/IMG_5855.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011152/85236881/85236830.jpg">
 
-19. Didn't realize anal beads gave you the meat sweats.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021606/87278444/IMG_5857.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011204/85236882/85236831.jpg">
 
-20. If she's the one checking...I mean, okay.
-<img src="https://cdn.ebaumsworld.com/2022/09/28/021613/87278446/IMG_5861.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/2017/01/10/010823/85236867/85236217.png">
+
+21.
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011218/85236883/85236834.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/2017/01/10/011231/85236884/85236836.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235975.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235978.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235985.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235986.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235988.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235990.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235991.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235993.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235994.png">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235995.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235996.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235997.png">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235998.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235999.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85236000.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85236001.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85236003.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85236004.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85236005.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87278426/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85235974/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">'Accidental' Selfies That Need to Quit Their Bullsh!t</a>
+## <a href="#link9" id="link8">Dank Memes To Kick Off The Weekend</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157776.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439680.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157777.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439681.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157778.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439682.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157779.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439683.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157780.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439684.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157781.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439685.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157782.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439686.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157783.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439679.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157784.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439687.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157785.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439688.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157786.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439689.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85157787.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439691.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439690.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439692.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439693.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439694.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439695.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439696.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439697.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439698.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439699.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439700.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439701.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439702.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439703.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439704.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439705.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439706.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439707.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439708.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439709.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439710.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439711.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439712.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439713.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439714.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439715.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439716.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439717.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439718.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439719.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439720.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439721.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439722.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439723.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439724.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439725.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439726.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439727.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439728.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439729.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439730.jpg">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439731.jpg">
+
+54.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439732.jpg">
+
+55.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439733.jpg">
+
+56.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439734.jpg">
+
+57.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439735.jpg">
+
+58.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439736.jpg">
+
+59.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439737.jpg">
+
+60.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85439738.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85157775/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85439678/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">31 Hilarious Harsh Memes To Blast Off The Day</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495601.jpg">
+## <a href="#link10" id="link9">The Most Intense Haunted Houses In The USA</a>
+1. Erebus – This haunted house in “Haunted Pontiac, Michigan” has a running total of almost 1,000 “wetters, pukers, and fainters” so far.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158808.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495602.png">
+2. McKamey Manor – You’ve got to be at least 21 and willing to sign a waiver to experience this four-to-six-hour bondage and torture session in San Diego. Fun!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158810.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495603.jpg">
+3. The House of Shock – New Orleans is one of the most haunted cities in the world, so it figures it would also be home to one of the most intense haunted houses.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158815.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495604.jpg">
+4. Fear Overload Scream Park – The centerpiece of this haunted attraction in San Leandro, CA is “7 Deadly Sins,” a Se7en-inspired murder-maze navigated with a flashlight in otherwise complete darkness.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158804.png">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495605.jpg">
+5. Blood Manor – It’s called “Blood Manor” but the theme of this massive 5,000-square-foot maze in New York City is “insane asylum,” albeit a bloody one.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158806.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495606.jpg">
+6. Terror Behind the Walls – A former prison complex in Philadelphia is now Terror Behind the Walls, a prison-escape-themed haunted attraction with “Touch” and “No Touch” variants
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158812.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495607.jpg">
+7. Fear Experience – Cleveland’s premiere haunted attraction started as “zombie laser tag,” but has expanded to include myriad other varieties of shock and horror.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158811.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495608.jpg">
+8. The 13th Gate – This Baton Rouge frightfest puts an even higher premium on realism and believability than usual for the form, which might make it a good choice for anyone on the fence about going to medical school.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158813.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495609.jpg">
+9. The Hex House – Tulsa, OK’s Hex House borrows its storyline from one of Oklahoma’s most notorious criminals: Carolann Smith, who kept two women as hypnotized slaves back in the 1940s.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158814.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495610.jpg">
+10. The Dent Schoolhouse – Another haunted house that borrows from real life is The Dent Schoolhouse in Cincinnati, which is purportedly located in an actual old haunted schoolhouse.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158807.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495611.jpg">
+11. Cutting Edge Haunted House – One tagline for Cutting Edge in Fort Worth is an experience you can only hope to forget, which might be difficult since it takes at least an hour to experience fully.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158805.png">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495612.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495613.png">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495614.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495615.png">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495616.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495617.png">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495618.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495619.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495620.png">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495621.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495622.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495623.png">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495624.png">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495625.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495626.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495627.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495628.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495629.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495630.png">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85495631.jpg">
+12. House of Torment – Chicago’s House of Torment is known and franchised throughout the country for its cinematic and psychologically engineered shocks.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85158809.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85495599/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85158803/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">26 Great Pics to Improve Your Mood</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336786.png">
+## <a href="#link11" id="link10">10 Odd Predictions That Came True</a>
+1. Vladimir Odoevsky, who came out with a novel called “Year 4338” in 1835, described a world in which instant messaging, blogging, and even status updates were a very popular form of communication. Sounds a lot like social media, no?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220368.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336787.jpg">
+2. In 1987, Apple introduced the world to a video called “Knowledge Navigator.” It was about the future of computing and boy did they get it right. The video shows us touchscreen handheld devices, video calls, and a digital knowledge assistant, much like Siri does today. Interestingly enough, the date specified in the video is September 16th, 2011. That date is just 18 days away from when all of those features became available on the phone/tablet format.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220369.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336788.jpg">
+3. In 1953 an author by the name of Ray Bradbury released a novel called “Fahrenheit 451.” In this novel we are introduced to a world in which books are outlawed and burned. So, for people to learn, they are fed information through tiny seashells that are placed in their ears and fed radio signals. Nowadays with wireless headphones, that’s pretty much exactly what we have.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220370.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336789.jpg">
+4. In 1903 Edward Morgan Forrester released a novel called “The Machine Stops” which depicts a world in which people only communicate with each other using digital screens. He even goes as far as describing the fact that ideas and general knowledge are shared with everyone through a digital system that links everyone together. He pretty much predicted the internet before radio was even a mass medium.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220371.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336790.jpg">
+5. John Brunner’s 1968 novel “Stand On Zanzibar” made a bold prediction that in the year 2010, America would have an African American president named “Obomi.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220372.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336791.jpg">
+6. Gen. Billy Mitchell had plenty of highly successful flight programs against the Germans during WWI. After these successes, he went on record with an incredibly bold prediction about a future aerial attack. He stated: “Attack will be launched as follows: Bombardment, attack to be made on Ford Island (in Pearl Harbor) at 7:30 AM.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220373.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336792.jpg">
+7. Back in 1989, Frank Zappa’s “The Real Frank Zappa Book” describes in great detail a method in which people can buy and sell music digitally. He even goes as far as saying that this shift in music purchasing won’t happen for at least another decade. Well, look where we’re at now!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220374.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336793.jpg">
+8. A French Marshal by the name of Ferdinand Foch was either a cynic, a psychic, or a smart, smart man, because at the end of World War One, he stated “This is not peace. It is an armistice for twenty years.” Astonishingly enough, World War Two started 20 years and 28 days later.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220375.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336795.jpg">
+9. In 1993, a senior high school student by the name of Michael Lee had his yearbook quote say the following: “Chicago Cubs. 2016 World Champions. You heard it here first.” As we all know by now, the Cubs actually pulled it off this year. While there has been speculations that this year book quote was shopped, so far nobody has been able to prove it to be a fake. To this day there have been dozens of copies of the year book dug up by people who attended the same school, and all of them have the now infamous Cubs quote.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220376.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336796.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336797.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336798.png">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336800.png">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336802.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336803.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336804.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336805.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336806.png">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336807.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336809.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336810.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336811.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336812.png">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336813.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336814.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85336815.jpg">
+10. Cowboy Bepop, a popular anime in the late 90’s, aired a few episodes that featured a spacecraft that went by the name Columbia. The spacecraft was sent on a rescue mission that nearly failed thanks to its heat resistant tiles peeling off during the mission. The freaky part is that in 2003, the space shuttle Columbia went up in flames after its heat resistant tiles peeled off during take off.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85220377.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85336784/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85220367/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
