@@ -5,16 +5,16 @@ from git import Repo
 now = datetime.datetime.now().strftime("%m/%d/%Y-%H:%M:%S")
 
 def fusRoDah():
-	#try:
-	repo = Repo('./')
-	repo.git.add(update=True) # Fus ## Add
-	repo.index.commit(now) # Roh ## Commit
-	origin = repo.remote(name='origin')
-	origin.push() # Dah ## Push
-	print('Fus ro duh')
-	#except:
-	#	print('Error') # Fus Roh Duh.
-	#	pass
+	try:
+		repo = Repo('./')
+		repo.git.add(update=True) # Fus ## Add
+		repo.index.commit(now) # Roh ## Commit
+		origin = repo.remote(name='origin')
+		origin.push() # Dah ## Push
+		print('Fus ro duh')
+	except:
+		print('Error') # Fus Roh Duh.
+		pass
 
 class baumerSpider(scrapy.Spider):
 	def __init__(self):
