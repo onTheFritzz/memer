@@ -22,7 +22,7 @@ def getRandomMemes(number):
 			j['memes-used'].append(articleNo)
 		
 		except IndexError:
-			j = {'memes-used': []}
+			j['memes-used'] = []
 
 		# After meme index number has been generated, add to 'do not use' list
 
