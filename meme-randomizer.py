@@ -66,8 +66,3 @@ for root, dirs, files in os.walk(walkDir):
 		memeFiles.append(files[0])
 
 getRandomMemes(10)
-
-yz = []
-for x in range(4000):
-	yz.append(x)
-print(yz)
