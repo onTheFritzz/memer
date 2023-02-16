@@ -17,8 +17,13 @@ def getRandomMemes(number):
 	articleBlock = f'# All Ur Meemz R Belog to Uz\nLast Updated {dt.now().strftime("%m.%d.%Y-%H:%M:%S")}<br>All credits to ebaumsworld.com\n\n'
 	for x in range(number + 1):
 		# Generate random number provided it has not been used before
-		articleNo = choice([i for i in range(1, len(memeFiles) + 1) if i not in j['memes-used']])
-		j['memes-used'].append(articleNo)
+		try:
+			articleNo = choice([i for i in range(1, len(memeFiles) + 1) if i not in j['memes-used']])
+			j['memes-used'].append(articleNo)
+		
+		except IndexError:
+			j = {'memes-used': []}
+
 		# After meme index number has been generated, add to 'do not use' list
 
 		with open(memerConfig, 'w') as w:
