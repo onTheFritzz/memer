@@ -22,8 +22,7 @@ def getRandomMemes(number):
 			j['memes-used'].append(articleNo)
 		
 		except IndexError: # Every article has been used. Empty article array log in json and start again...
-			articleNo = choice([i for i in range(1, len(memeFiles) + 1)])
-			j['memes-used'].append(articleNo)
+			j['memes-used'] = []
 
 		# After meme index number has been generated, add to 'do not use' list
 
