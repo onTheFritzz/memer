@@ -1,914 +1,877 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 02.28.2023-04:45:19<br>All credits to ebaumsworld.com
+Last Updated 02.28.2023-07:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">20 More Chaotic Nightclub Photos Proving We’re Too Old for This Sh*t</a>
+## <a href="#link1" id="link0">50 Truths You Can't Argue With</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120900/87264248/cake.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463811.gif">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120901/87264249/cake.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463812.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120904/87264250/baby.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463813.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120906/87264251/car.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463814.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120908/87264252/disco.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463815.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120910/87264253/cereal.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463816.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120913/87264255/dj.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463817.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120912/87264254/fire.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463818.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120915/87264256/food.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463819.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120917/87264257/green.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463820.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120919/87264258/goose.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463821.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120920/87264259/meme.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463822.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120921/87264260/leg.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463823.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120923/87264261/phone.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463824.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120925/87264262/missed.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463825.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120926/87264263/sex.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463826.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120928/87264264/smoke.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463827.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120930/87264267/vampire.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463828.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120932/87264292/ween.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463829.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/2022/09/06/120933/87264308/mike.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463830.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463831.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463832.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463833.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463834.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463835.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463836.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463837.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463838.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463839.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463840.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463841.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463842.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463843.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463844.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463845.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463846.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463847.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463848.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463849.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463850.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463851.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463852.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463853.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463854.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463855.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463856.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463857.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463858.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463859.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85463860.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87264247/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85463810/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">Check Out How These Lifelike Sex Robots Are Made</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438904.jpg">
+## <a href="#link2" id="link1">Little Girl's Party Is Saved By The Only Boy That Showed Up</a>
+1. Brooke was excited for her big day, her fifth birthday party and she invited the whole class. The only problem is that later into the party, no one had shown up yet.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85216767.png">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438906.jpg">
+2. That is until Bryce came and saved the day! Bryce is Brooke's best friend at school and his Mom quickly rushed him to the party a little earlier than they had expected.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85216768.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438905.jpg">
+3. They did all the typical awesome party-buddy adventures like taking silly photos and eating cake. All of it was captured by Brooke's older sister Brianna and put on Twitter where the cute pair has been getting tons likes.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85216771.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438907.jpg">
+4. They even ran into a shark!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85216769.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438908.jpg">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438909.jpg">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438910.jpg">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438911.jpg">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438917.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438918.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438921.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438922.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438925.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438927.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438928.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438926.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438913.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438914.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438915.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438912.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438903.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438916.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438919.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438920.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438924.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438900.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438901.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438931.jpg">
-
-29. Coming to a home near you!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85438930.jpg">
+5. These two will be friends for a long time on.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85216770.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85438898/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85216766/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">A Fine Collection Of Fascinating Pictures</a>
-1. Kate Rothschild (yes that Rothschild) left her husband for Jay Electronica
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219662.jpg">
+## <a href="#link3" id="link2">Roasts That Will Rip Right Through That Thick Skin of Yours</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219743.png">
 
-2. The aftermath of a horses nosebleed at the Vets office
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219663.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219744.png">
 
-3. View from the Pyramids of Giza
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219664.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219745.png">
 
-4. Behind the scenes of a remote interview
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219665.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219746.png">
 
-5. YouTube Puts The National Suicide Prevention Lifeline Phone Number at the Top of the Search Results When You Search For Videos About Tying a Noose
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219666.png">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219747.png">
 
-6. Industrially nailing Jesus to the cross
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219667.gif">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219748.png">
 
-7. A USPS truck caught fire and the postal worker rushed to save all of the packages from catching fire…The holidays wouldn’t be possible without these hard working people
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219668.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219749.png">
 
-8. Saturn V (Apollo 4) the night before launch: November 8, 1967
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219669.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219750.png">
 
-9. F-1 engine of the Saturn V
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219670.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219751.png">
 
-10. Syria: then and now
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219671.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219752.png">
 
-11. Michael Jackson in disguise so he could go on a date with Tatum O’ Neal in the 70’s
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219672.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219753.png">
 
-12. Penis sizes: Self-reported vs. measured values
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219673.png">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219754.png">
 
-13. Coal workers in the United States when we had a small federal government, no EPA, no unions, and no regulation
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219674.jpg">
-
-14. It may look like a superimposed circle, but this is actually a round object coated in Vantablack S-VIS
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219675.jpg">
-
-15. St. Peters Basilica, Vatican City, Italy
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219676.jpg">
-
-16. 2016 summed up in one amazing illustration
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219677.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85219755.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85219661/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85219742/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">Husband Really Appreciates His Wife's Coworker Crush </a>
-1. What a considerate gift!
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123126/87286996/kevin8.png">
+## <a href="#link4" id="link3">24 Friday Fails and Facepalms</a>
+1. Be careful, you might get exactly what you want. And quite a bit more than anticipated.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031026/87283145/fridayfails1.jpg">
 
-2. This is also a lovely gesture from Kevin. And in secret too! It's a shame he hasn't found that special someone yet though.
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123131/87286997/kevin10.png">
+2. It's a wonder the modern would isn't all dead with all the lasers everywhere.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031032/87283147/fridayfails2.png">
 
-3. This person understands. What a great friend.
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123112/87286990/kevin1.jpg">
+3. What an achievement that would be.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031137/87283162/fridayfails19.png">
 
-4. He even takes her on trips! What a great time that must have been.
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123111/87286989/kevin2.jpg">
+4. The world can be so ungrateful.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031027/87283146/fridayfails3.png">
 
-5. Dan's wife is also so lucky to have a husband that really cares about their financial future.
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123121/87286993/kevin3.jpg">
+5. Remember to support women run businesses!
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031048/87283151/fridayfails8.png">
 
-6. Kevin really understands how to make Dan's wife happy. It's no wonder their marriage is stronger than ever.
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123113/87286991/kevin4.jpg">
+6. Technically everyone can live pay check to pay check if they spend enough.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031036/87283149/fridayfails4.png">
 
-7. Unfortunately, people are just so quick to assume things about Kevin and his relationship with Dan's wife. Miami and Nashville are such spiritual places.
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123122/87286994/kevin7.png">
+7. Krypton might be the new Alabama.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031035/87283148/fridayfails5.png">
 
-8. People are just so quick to judge things that they don't understand. Why is everyone always so negative?
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123134/87286998/kevin9.png">
+8. Whoa there mom. Check your verbiage.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031109/87283156/fridayfails13.png">
 
-9. You see? How many people would just offer up their home like that? Kevin really is a next level friend.
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123118/87286992/kevin5.png">
+9. Impatient driver leaves the ferry too early.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031103/87283153/fridayfails6.jpg">
 
-10. And it seems like Kevin is a great friend to many people, not just this one couple.
-<img src="https://cdn.ebaumsworld.com/2022/10/13/123123/87286995/kevin6.png">
+10. Might want to pick your battles here.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031104/87283154/fridayfails11.png">
+
+11. These trees will REALLY be evergreen now.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031149/87283166/fridayfails21.jpg">
+
+12.  A young girl, who was walking on the rails with headphones, barely escaped injury thanks to sudden braking of the tram.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031105/87283155/fridayfails12.jpg">
+
+13. I've never met a Spanish person, have you?
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031157/87283168/fridayfails23.png">
+
+14.  How stupid do you have to be to park THERE?
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031117/87283157/fridayfails10.png">
+
+15. Well he got owned. Maybe he shouldn't say ANY words.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031118/87283158/fridayfails14.png">
+
+16. Congrats to the son. Sorry to the wife.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031124/87283159/fridayfails15.png">
+
+17. Well if it drives it drives I guess.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031131/87283160/fridayfails17.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031132/87283161/fridayfails16.png">
+
+19. He probably wonders why nobody wants to go home with him.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031041/87283150/fridayfails7.png">
+
+20. What are they even attempting to accomplish with that?
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031139/87283163/fridayfails20.png">
+
+21.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031140/87283164/fridayfails18.png">
+
+22.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031141/87283165/fridayfails22.png">
+
+23. It's almost like NFL players are REALLY good at taking people down.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031055/87283152/fridayfails9.png">
+
+24.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/031153/87283167/fridayfails24.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87286982/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87283143/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">17 Interesting Pics to Help Pass the Time </a>
-1. The ostrich, of which there are two living species (common ostrich and Somali ostrich), is the only extant bird species which has two toes on each foot. This adaptation allows ostriches, the largest and heaviest birds on the planet, to attain speeds of 40 mph over long distances
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234891.png">
+## <a href="#link5" id="link4">A Saturday Pic-Dump That Will Chase Away Your Boredom</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189642.jpg">
 
-2. An average husky next to a grey wolf
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234889.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/043649/85190121/85189628.jpg">
 
-3. United Airlines will be flying the all-new Boom Supersonic, with flights starting in 2029
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234900.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189644.jpg">
 
-4. Vegas Casinos are starting to introduce the triple 0s on their roulette wheel. House edge on triple zero roulette is a whopping 7.69% (double is 5.26% and single is 2.6%).
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234890.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/061221/85190151/WK6BtQi.jpg">
 
-5. It takes bald eagles about five years to obtain their white head! These pictures are of the same bird taken years apart, illustrating the difference between juvenile and subadult plumage
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234892.png">
+5.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/061155/85190149/Uet1hhl.jpg">
 
-6. A group of psychiatrists studied 400 movies and identified 126 psychopathic characters. They chose Javier Bardem’s portrayal of Anton Chigurh (No Country for Old Men) as the most clinically accurate portrayal of a psychopath.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234893.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189650.jpg">
 
-7. Statues of Walter White and Jessie Pinkman in Albuquerque, New Mexico were recently unveiled.
-The sculpture was commissioned by Vince Gilligan and was a gift to the city which made a lot of money during the years of the show’s filming and still sees thousands of ‘Breaking Bad’ fans as tourists each year.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234894.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189651.jpg">
 
-8. Not special forces. These are members of the CJNG cartel in Mexico
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234895.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189652.jpg">
 
-9. Aerial Picture of an uncontacted Amazon Tribe
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234896.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189653.jpg">
 
-10. First Image from A24 & Darren Aronofsky’s ‘THE WHALE’ starring Brendan Fraser
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234897.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189654.jpg">
 
-11. Cryptobro loses $525,000 of Government Covid Loan to Celsius Scam
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234898.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189649.jpg">
 
-12. During the 90s, North Korea leader Kim Jong-Il, and his son and future leader Kim Jong-Un used fake Brazilian passports to travel to Disneyland
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234899.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/061234/85190152/xMUUIct.jpg">
 
-13. This is a 393-years old Greenland Shark that was located in the Arctic Ocean. It’s been wandering the ocean since 1627. It is the oldest living vertebrate known on the planet. Photo by Julius Nielsen.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234901.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189655.jpg">
 
-14. At over 2,000 years old, Xin Zhui, also known as ‘Lady Dai’, is a mummified woman of China’s Han Dynasty (206 BC-220 AD) who still has her own hair, is soft to the touch, and has ligaments that still bend, like a living person. She’s widely recognized as the best-preserved human mummy in history
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234902.png">
+14.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/061129/85190147/EUgiHSv.jpg">
 
-15. Kummakivi is a 500 000 kg rock in Finland that has been balancing on top of another rock for 11 000 years.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234903.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/061142/85190148/GJoPhpo.jpg">
 
-16. Human vs bird colour perception
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234904.png">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189656.jpg">
 
-17. The reconstructed face of Queen Te, wife of King:Amenhotep Ill, mother of King Akhenaten, and grandmother of King Tutankhamun.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87234905.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/061117/85190146/eg5DYVS.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189657.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189658.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189646.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189645.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189660.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189661.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189643.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189663.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189664.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/061207/85190150/uf7ra5C.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189665.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189666.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/043701/85190122/85189633.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189670.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189672.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189674.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189675.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189676.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85189667.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/2016/11/12/043623/85190119/85189608.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87234888/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85189641/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">33 Prime "Only In Russia" pics</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234332.jpg">
+## <a href="#link6" id="link5">37 Honest Memes We Can't Argue With </a>
+1. Why do all YouTuber creators look like rage comics?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226097.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234333.jpg">
+2. Mexico, the land of sepia.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226067.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234335.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226069.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234336.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226062.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234337.jpg">
+5. I know you didn't ask for a serious explanation, but you're going to get one so don't pout. They do this because snakes are seen as evil creatures, in much thanks to the bible, so snake looking features is an easy way to depict villains.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226064.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234338.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226065.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234339.jpg">
+7. She doesn't trust me to do a damn thing on my own.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226066.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234340.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226061.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234342.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226068.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234343.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226070.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234345.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226071.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234346.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226072.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234347.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226073.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234348.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226063.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234344.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226077.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234350.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226078.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234349.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226079.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234351.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226080.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234352.jpg">
+19. Bro, you think this is funny?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226081.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234353.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226082.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234354.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226083.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234355.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226084.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234361.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226085.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234356.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226086.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234357.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226087.jpg">
 
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234358.jpg">
+26. One day when me and the boys have made it, we're going to live here.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226088.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234360.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226089.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234362.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226090.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234363.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226091.jpg">
 
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234364.jpg">
+30. We never realized this. No way this is true, no way. And if it is, wtf Rowling?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226092.jpg">
 
 31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234365.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226093.jpg">
 
 32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234366.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226094.jpg">
 
 33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234367.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226095.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226096.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226098.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226099.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87226100.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85234330/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87226060/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">People Caught Having Sex By Their Parents</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179431.jpg">
+## <a href="#link7" id="link6">20 Intriguing Historical Pictures You May Not Have Seen</a>
+1. People in Siberia, Russia line up for bread in 1990. This was the norm throughout most of the USSRs history, but people were usually fed post WWII. Unfortunately, as the USSR was collapsing, it got worse and people waited for hours for basic groceries or supplies and wouldn't get what they were in line to get in the first place for days.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435445.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179432.jpg">
+2. Indian refugees arrive in London after being expelled from Uganda in 1972. Idi Amin, the former heavyweight boxer turned Ugandan dictator expelled all Asians from the country almost immediately after taking power.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435446.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179433.jpg">
+3. East Berlin guards adding fresh barbed wire to the top of part of the Berlin Wall in 1972 as a curious West German family watches.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435447.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179434.jpg">
+4. The MS St. Louis when it arrived in Antwerp in 1939. This was a German ocean liner carrying around 900 Jewish refugees. The German captain and his crew got them out of Germany. They first tried to seek asylum in Cuba, but were denied. Then they tried the US and Canada, but both denied them as well. Luckily Belgium, The Netherlands, France and the UK accepted them. However, since 3 of those countries were conquered by the Nazi's, over a quarter of these Jews were shipped to camps and died.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435448.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179435.jpg">
+5. 3 veteran Tiger hunters pose for a picture somewhere in what is now North Korea in 1922.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435449.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179436.jpg">
+6. Women working at a piano factory in Sydney, Australia in 1922.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435450.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179437.jpg">
+7. Protesters in Warsaw Poland in 1984. This was the beginning of a 7 year movement known as the Solidarity Movement. They are holding up the peace symbol which also became the symbol of the movement.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435451.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179438.jpg">
+8. A group of school boys hanging out between classes in Havana, Cuba in 1937. The young man with the lollipop is none other than Fidel Castro.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435452.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179439.jpg">
+9. Students playing a soccer game in Wuhan, Hubei province, China in 1980. China has had space issues for what seems like forever, and this is no different. The field has no room for stands, leaving children dangerously close to watch the game.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435453.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179440.jpg">
+10. Jewish children at the Irene Kauffman Settlement school in Pittsburgh in 1934 giving a straight arm salute to the American flag. This salute was much like the Nazi salute, and common in the US before the Nazi's made it their own way of saluting.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435454.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179441.jpg">
+11. A Persian women at the beach in Iran in 1968.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435455.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179442.jpg">
+12. An Austrian-Hungarian soldier plays with his pet fox and owl, both chained to their cages, somewhere near the Eastern front in 1915.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435456.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179443.jpg">
+13. The famous Hells Café in Paris in 1903.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435457.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179444.jpg">
+14. Waitresses known as CarHop girls deliver food to Drive-In patrons in Corpus Christi, Texas, USA in 1940. Known for their flattering outfits, especially showcasing their legs, CarHop girls were everywhere in the US in the 1940s-1950s. Sometimes they wore roller skates, and had uniforms that made them look like band members (as shown), cheerleaders, or sometimes even only wore bikinis at some locations, or any other absurdly sexy outfit to attract mostly male customers.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435458.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179445.jpg">
+15. A woman gives her confession at the Jerónimos Monastery in Lisbon, Portugal in 1955.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435459.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179446.jpg">
+16. 2 women hitchhiking in Toronto, Canada in 1974. It is possible these 2 found the only time of day and the only street in the country without nice Canadians to assist them. That, or a big hockey game may have been taking place at the same time.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435460.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179447.jpg">
+17. People line up around the block on both sides waiting for a chance to see Star Wars in 1977. Some people would wait all day or sometimes days and some theaters ordered more reels and would only show Star Wars and nothing else due to its demand.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435461.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179448.jpg">
+18. A 5 year old boy picking cotton in Oklahoma, USA in 1916.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435462.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179449.jpg">
+19. Charlotte Darehshori hides from sniper fire from Charles Whitman during the University of Texas Tower shooting on August 1, 1966. Whitman killed a total of 16 people, his wife and mother earlier in the day, than another 14 from sniper fire from the tower during a 90-95 minute shooting spree, while wounding another 32. He was eventually snuck up on and killed by police.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435463.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85179450.jpg">
+20. Glenda Kemp doing her famous snake dance during a show in South Africa in 1970. She became so popular she even did a film called Snake Dancer in 1976 showcasing her talents.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85435464.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85179430/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85435444/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">20 Of The Most Sadistic Torture Methods Ever Devised</a>
-1. HANGED, DRAWN AND QUARTERED.
-
-During medieval times, the penalty for high treason in England was to be hanged, drawn and quartered in public and though it was abolished in 1814, it has been responsible for the death of thousands of people. In this torture technique, the victim is dragged in a wooden frame called a hurdle to the place of execution. They would then be hanged by the neck for a short period of time until they are near-death (hanged), followed by disembowelment and castration where the entrails and genitalia are burned in front of the victim (drawn). The victim would then be divided into four separate parts and beheaded (quartered).
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274016.jpg">
+## <a href="#link8" id="link7">13 Of The Most Ridiculous Questions Asked To Google MONTHLY</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326563.jpg">
 
-2. THE BRAZEN BULL.
-
-Also known as the Sicilian Bull, it was designed in ancient Greece. A solid piece of brass was cast with a door on the side that could be opened and latched. The victim would be placed inside the bull and a fire set underneath it until the metal became literally yellow as it was heated. The victim would then be slowly roasted to death all while screaming in agonizing pain. The bull was purposely designed to amplify these screams and make them sound like the bellowing of a bull.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274017.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326564.jpg">
 
-3. SAW TORTURE.
-
-In this method, the victim is hung upside down, so that the blood will rush to their heads and keep them conscious during the long torture. The torturer would then saw through the victims’ bodies until they were completely sawed in half. Most were cut up only in their abdomen to prolong their agony.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274018.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326565.jpg">
 
-4. THE CHAIR OF TORTURE.
-
-Also known as the Judas Chair, it was a terrible, intimidating torture device that was added to dungeons in the Middle Ages. Used until the 1800′s in Europe, this chair was layered with 500 to 1,500 spikes on every surface with tight straps to restrain its victim. Made of iron, it can also contain spaces for heating elements beneath the seat. It was often used to scare people into giving confessions as they watched others being tortured on the device.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274019.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326566.jpg">
 
-5. THE RACK. 
-
-Is a torture device consisting of a rectangular, usually wooden frame, slightly raised from the ground, with a roller at one or both ends. The victim’s ankles are fastened to one roller and the wrists are chained to the other. As the interrogation progresses, a handle and ratchet mechanism attached to the top roller are used to very gradually increase the tension on the chains, inducing excruciating pain. By means of pulleys and levers this roller could be rotated on its own axis, thus straining the ropes until the sufferer’s joints were dislocated and eventually separated. Additionally, if muscle are stretched excessively, they lose their ability to contract, rendering them ineffective. One gruesome aspect of being stretched too far on the rack is the loud popping noises made by snapping cartilage, ligaments or bones.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274020.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326567.jpg">
 
-6. BREAST RIPPER.
-
-Known in another form as the Iron Spider or simply the spider, was a torture instrument mainly used on women who were accused of adultery, or self-abortion. The instrument was designed to rip the breasts from a woman and was made from iron, which was usually heated. The tool was used popularly in the Free State of Bavaria, a state in Germany, in 1599, and in parts of Germany and France until the nineteenth century.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274021.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326568.jpg">
 
-7. TONGUE TEARER.
-
-Looking like an over sized pair of scissors, it could effortlessly cut the victim’s tongue. Their mouth would be forced opened with a device called a mouth opener, and then the iron tongue tearer would uncomfortably twitch the tongue with its rough grippers. Once a firm hold was maintained, the screw would be firmly tightened and the victim’s tongue would roughly be torn out.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274022.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326569.jpg">
 
-8. IRON MAIDEN.
-
-This torture device consisted of an iron cabinet with a hinged front and spike-covered interior, sufficient enough to enclose a human being. Once inside its conical frame, the victim would be unable to move due to the great number of steel spikes impaling them from every direction. The interrogator would scream questions at the victim while poking them with jagged edges.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274023.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326570.jpg">
 
-9. STRAPPADO.
-
-The Strappado is a form of torture in which the victim’s hands are first tied behind his or her back and suspended in the air by means of a rope attached to wrists, which most likely dislocates both arms. Weights may be added to the body to intensify the effect and increase the pain. Other names for strappado include “reverse hanging” and “Palestinian hanging” (although it is not used by the Palestinian Authority) It is best known for its use in the torture chambers of the medieval Inquisition.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274024.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326571.jpg">
 
-10. WOODEN HORSE/SPANISH DONKEY.
-
-One of the torture devices during the Spanish Inquisition and medieval ages, this is probably one of the most gruesome of them all. The victim is put astride, naked, on a donkey-like apparatus, which is actually a vertical wooden board with a sharp V-wedge on top of it. After that, the torturer would add varying weights to the victim’s feet until finally the wedge sliced through the victim’s body.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274025.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326572.jpg">
 
-11. PEAR OF ANGUISH/CHOKE PEAR.
-
-The pear of anguish or choke pear is the modern name for a type of instrument displayed in some museums, consisting of a metal body (usually pear-shaped) divided into spoon-like segments that could be spread apart by turning a screw. The museum descriptions and some recent sources assert that the devices were used either as a gag, to prevent people from speaking, or internally as an instrument of torture.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274026.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326573.jpg">
 
-12. JUDAS CRADLE.
-
-The victim would presumably be placed in the waist harness above the pyramid-shaped seat, with the point inserted into their an*s or v*gin*, then very slowly lowered by ropes. The subject is tortured by intense pressure and stretching of the orifice, eventually succumbing to tears in muscle tissue that could turn septic and kill from infection, or simply being impaled.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274027.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326574.jpg">
 
-13. NECK TORTURE.
-
-Humiliating and painful, this punishment was something of an endurance test where the victim would be hooked into a neck device, either made of metal or wood, which prevented the victim from adjusting into a comfortable position. The cruelty of this punishment lie within the fact that they were unable to lie down, eat, or lower their head for days.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274028.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326575.jpg">
 
-14. HERETIC’S FORK.
-
-The device was placed between the breast bone and throat just under the chin and secured with a leather strap around the neck, while the victim was hung from the ceiling or otherwise suspended in a way so that they could not lie down.Usually the Heretic’s fork was given to people who spoke the lord’s name in vain, blasphemers, or liars. This way, the punishment made it nearly impossible for them to talk. Also, a person wearing it couldn’t fall asleep. The moment their head dropped with fatigue, the prongs pierced their throat or chest, causing great pain. This very simple instrument created long periods of sleep deprivation. People were awake for days, which made confessions more likely.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274029.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326576.jpg">
 
-15. BREAKING WHEEL/ CATHERINE WHEEL.
-
-Was a torture device used for capital punishment from Antiquity into early modern times for public execution by breaking the criminal’s bones/bludgeoning him to death. As a form of execution, it was used from “Classical” times into the 18th century; as a form of post mortem punishment of the criminal, the wheel was still in use into 19th century Germany.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274030.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326577.jpg">
 
-16. COFFIN TORTURE.
-
-The most preferred torture technique in the Middle Ages was known as coffin torture. This method involved placing the victim inside a metal cage roughly the size of the human body; hence the name. The torturers also forced overweight victims into smaller cages to heighten their discomfort as they hung from a tree or gallows. Generally, they would be left there until the crows came to feed on their remains.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274031.jpg">
-
-17. SPANISH TICKLER/ CAT’S PAW.
-Is a type of torture instrument, consisting of long, sharp iron spikes curved so as to resemble claws. It was often attached to a handle, or else used as an extension of the torturer’s hand. In this way it was used to rip and tear flesh away from the bone, from any part of the body. It was also used as a weapon. This device was commonly used on thieves and unfaithful wives. Most who were tortured in this manner died not at the time, but afterwards. Especially with the Cat’s Paw, the device would cause infections as the device would cut so deep. The prongs were nearly never washed, so the chances of these infections were very high.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274032.jpg">
-
-18. KNEE SPLITTER.
-
-The knee splitter was a form of torture used mainly during the inquisition. It was created from two spiked wood blocks, placed in front of, and behind the knee. The blocks were connected with two large screws. When turned, the blocks would close towards each other, destroying the knee underneath them. This method was used to render the knees useless. The number of spikes on the blocks would range from three to twenty, depending on the captive.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274033.jpg">
-
-19. HEAD CRUSHER. 
-This metal device featured a plate that sat below the victim’s jaw, which was connected by a frame to the head cap. As the torturer slowly twisted the handle, the gap between the head cap and plate decreased in width, causing crushing of the skull and facial bones, including teeth and jaws, and ultimately inducing death; even if the torturer stopped before death, permanent damage to the facial muscles and structure would occur. The victim’s head would slowly be crushed, killing the victim, but not before the victim’s jaw had been crushed, and their eyes had popped from their socket.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274034.jpg">
-
-20. IMPALEMENT.
-
-Given his name, it should come as no surprise that this was the most favored method of execution by Vlad the Impaler. In 15th century Romania; the victim was forced to sit on a sharp and thick pole. When the pole was then raised upright, the victim was left to slide down the pole with their own weight. It could take the victim 3 days to die using this method and it has been said that Vlad once did this to 20,000 people all while enjoying a meal.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85274035.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85326578.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85274015/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85326562/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">31 Great Pics to Improve Your Mood</a>
+## <a href="#link9" id="link8">The Game Of Thrones Olympics</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2017/06/18/073740/85385183/LACjPas5CJoOLjjEoUk6LRQVHMD62xRWHSzfdf5sHJ0.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454319.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2017/06/18/074042/85385185/IeMmG0qiRNPIy6d7IOzij0MNAoA4fuANy_tiRgaBozQ.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454321.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2017/06/18/074054/85385186/r0AtH3qMNUAQDGh4B1wXKg2wsBjG5iJlK_dmqlCsDOA.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454320.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2017/06/18/074105/85385187/y7BdjuEldAtBUDjKtI9SdMlcVm9Uf2g7RMeFPGE0B6g.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454322.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2017/06/18/074342/85385189/XXiP527.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454325.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2017/06/18/074355/85385190/14p3QYt.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454323.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384965.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454324.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384966.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454329.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384967.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454326.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384968.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454327.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384969.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454328.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384970.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454330.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384972.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454331.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384973.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454332.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384975.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454333.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384976.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454334.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384977.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454335.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384978.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454336.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384980.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454337.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384981.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454338.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384982.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454339.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384983.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454340.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384984.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454341.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384985.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384986.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385002.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384990.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384991.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384995.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385010.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85384997.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85454342.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85384964/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85454318/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">30 Of The Strangest Things People Found On Their Property</a>
-1. Gravestones - A woman found old headstones from the 1800's underneath her stepping stones in her backyard while she was gardening.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285579.jpg">
+## <a href="#link10" id="link9">21 Interesting Facts That Will Stimulate Your Brain</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176964.jpg">
 
-2. Old Coin - An interesting old coin that someone found in their backyard while cutting grass.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285580.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176963.jpg">
 
-3. Treasure Trove - Andreas K. from Wiener Neustadt, Austria found a treasure-trove of 650-year-old jewels while digging to expand a small pond in his backyard. It contained over 200 rings, brooches, ornate belt buckles, gold-plated silver plates and other pieces or fragments.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285581.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176951.jpg">
 
-4. The Long Lost Audio Tapes of Martin Luther King, Jr. - Steven Tull found audio tapes of a conversation between his father and Martin Luther King, Jr. It turns out his father interviewed King in 1960 for a book about the Civil Rights movement that never came out.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285582.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176956.jpg">
 
-5. Golf Ball - An interesting golf ball from 1899 dug up and found in the Bronx. Perhaps once upon a time it was actually white.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285583.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176957.jpg">
 
-6. A Live Korean Missile - A couple in St. Francis, Wisconsin found a live 20-inch-long Korean missile with a 5-inch explosive head inside of their bathroom wall while they were remodeling. The couple carefully carried the missile outside and left it there for the bomb squad to detonate. The neighbors claimed that the home's previous owner was a man that served in both World War II and the Korean War.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285584.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176958.jpg">
 
-7.  A Masive Gold Nugget - A man from California used a metal detector in his backyard to find a 8.2 pound lump of gold in 2011. He was able to sell the gold at an auction for $460,000 but remained anonymous so that no one would go digging around for gold on his property. Geologists claimed there was a 100% chance that there's more gold on that land.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285585.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176959.jpg">
 
-8. A $5 Million Figurine - A random figurine of a former Russian czar was found in someone's home that ended up being worth $5 million at an auction.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285586.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176960.jpg">
 
-9. 400 Year Old Church Bells. - A man from Czech Republic found two large church bells while he was digging up dirt in his backyard to install pipes. He later found out that the bells were actually stolen 11 years prior from a church nearby.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285587.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176961.jpg">
 
-10. Cheetah - A nine-year-old boy from Hamerton, Cambridgeshire, U.K., found a cheetah in his house's garden. The predator had actually broke free from a nearby animal sanctuary.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285588.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176962.jpg">
 
-11. Fully Equiped Bomb Shelter - Chris and Colleen Otcasek bought a house in California that had a fallout shelter in the backyard. It turns out the shelter was a time capsule built in 1961 during the Cold War by nuclear engineer Alvin Kaufman.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285589.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176952.jpg">
 
-12. Hidden Safe - A couple found a bottle of bourbon from 1960, a copy of the book "A Guide for the Perplexed" by E.F. Schumacher, and $51,080 in a 50-year-old safe that was hidden in behind their kitchen wall.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285590.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176953.jpg">
 
-13. Mummy - Ten-year-old Alexander Kettler discovered a mummy in his grandmother's attic. The mummy was encased inside a sarcophagus with hieroglyphic adornments. It was actually obtained by Kettler's grandfather as a souvenir from a trip to North Africa in the 1950's. The mummy was taken to a hospital in Hamburg, Germany for testing to find out whether or not it's a real mummy.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285591.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176965.jpg">
 
-14. 200 Pound Alligator - The massive alligator was found in someone's basement. If I saw that thing in my home, I'd run out the door screaming and never come back.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285592.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176966.jpg">
 
-15. Van Gogh Painting - A very fortunate Norwegian family found an unsigned Van Gogh painting in their attic. If you found such a painting, would you keep it or sell it?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285593.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176967.jpg">
 
-16. A Hidden Kitchen For Servants - An entire servants' kitchen was found in a home's basement. The home was in the family for generations but the kitchen had been hidden behind a door behind a bunch of old junk.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285594.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176954.jpg">
 
-17. A $175,000 Comic - After a wall was demolished in a home, a copy of the first issue of Action Comics was found. It ended up selling for $175,000 later at an auction.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285595.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176968.jpg">
 
-18. Creepy Ancient Chapel - A family found an ancient chapel underneath their house. Depending on your perspective, this chapel could come off either terrifyingly creepy or amazing.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285596.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176955.jpg">
 
-19. The Head of a King - A journalist found the head of King Henry IV (dead since 1610) in the attic of dead notorious French tax collector, Jacques Bellanger, after he heard rumors that Bellanger collected and kept odd things.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285597.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176969.jpg">
 
-20. A Stolen Stradivarius - The violin (worth $5 million) was found and recovered in an attic thanks to a tip from a local weapons shop. The violin was originally stolen from top first violinist for the Milwaukee Symphony Orchestra, Frank Almond, by an assailant with a taser gun.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285598.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176970.jpg">
 
-21. WWII Tank - A wealthy German man in the suburb of Heikendorf, was found to own several WWII arms, including a WWII-era Panzer tank (tucked away in his basement), German cannon and torpedo.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285599.jpg">
-
-22. Creepy Well - A well was found at the bottom of someone's home. Who knows what's at the bottom of the creepy thing!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285600.jpg">
-
-23. Rare Mural - A mural by Keith Haring in the seventies was found in a home. It turns out that the home used to be a property of the Visual School of Art in Manhattan when Haring painted the mural.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285601.jpg">
-
-24. Nazi Christmas Decorations - These disgusting Nazi ornaments were found, some displaying the swastika others in the literal shape of Hitler's head.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285602.jpg">
-
-25. Stuffed Cat - A stuffed cat was found in an attic. From afar, it looks like a real live cat but up close it's possibly one of the scariest things I've ever seen.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285603.jpg">
-
-26. Baby Photo - Not sure if that kid is possessed or what, but you have to admit that is a creepy baby photo.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285604.jpg">
-
-27. Grim Reaper - A grim reaper costume was already put together and set up when it was found in a home. Makes you wonder what the previous home owners were into.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285605.jpg">
-
-28. Dead Chickens Stuffed Into Walls - The Bretzius family found chicken carcasses stuffed in their walls in Pennsylvania. A local historian proposed that the dead chickens were perhaps a part of some "Dutch magic" that was used to heal ailments and remove evil spirits. Clearing out the chickens for the Bretzius, however, was the real nightmare as it cost them about $20,000 and several years to finish the task.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285606.jpg">
-
-29. Gold Bars - The heir to a property in Normandy was in for a treat once he moved into his new land. He found a hidden treasure of gold coins, bars, and ingots inside the house. He ended up selling it all for over $3.5 million.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285607.jpg">
-
-30. 400 Barrels Of Toxic Waste - In February 2017, a man in Ontario discovered 400 barrels of toxic waste hidden behind the walls on his property. He had originally only discovered 400, but found an extra 400 barrels after knocking down the wall (making a total of 800 found barrels). John Currie, the building's past owner, was known for inappropriate waste disposal when he operated a tar product business there.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285608.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85176971.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85285578/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85176950/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">36 Fails Gifs That Will Bust Your Gut</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412990.gif">
+## <a href="#link11" id="link10">12 Of The Strangest Food Heist In History</a>
+1. It may come as a surprise, but cheese is one of the most stolen foods in the world. In 2013, an Illinois man by the name of Veniamin Balika stole close to 42,000 pounds of Muenster Cheese, valued at $200,000. He was a big rig driver, who through false paperwork, had his truck filled with the cheese in Wisconsin, then made an attempt to drive to the East Coast, to sell the cheese at a discount to vendors out there on the cheese black market (yep, it exists). He made it as far as New Jersey when he got caught. Wonder if they made him say ‘cheese’ for his mugshot.
+The shame of it all was that no one knew if he tampered with the cheese, so it was supposed to be donated to charity, but could have possibly also been destroyed. What a shame.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136795.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412991.gif">
+2. Even Canadians aren’t immune to some high stakes hijinks. Back in 2012, over 6 million pounds of Maple Syrup were missing from the Global Strategic Maple Syrup Reserve warehouse in Saint-Louis-de-Blandford, Quebec. This is the world largest stockpile of syrup and this became the largest heist in Canadian history, ever! Do you know why? Because the value of that missing syrup was over $18 Million. That’s a lot of loonies!
+When the RCMP investigated, they found that the thieves had rented a space within the warehouse and slowly siphoned the syrup from barrels while the guards weren’t looking. When it was all said and done, they arrested over 30 suspects and recovered 2/3rds of the stolen syrup, while the rest was all over pancakes, waffles and chunks of snow everywhere.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136799.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412992.gif">
+3. Not to be left out, there were some wily Italian thieves that ended up walking away with $875,000 worth of Parmigiano-Reggiano cheese. Over the span of 2 years, 11 men scoped out various warehouses and used complex tools, electronics to circumvent alarm systems and even weapons to steal over 2,039 wheels of cheese. In late 2015, they were caught, but it’s uncertain how much of the cheese was recovered.
+Imagine how much pasta that could garnish. Cheesus!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136797.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412993.gif">
+4. On New Year’s Eve in 2005, a robber in Moscow broke in to a Red Caviar distributors delivery vehicle and stole $470,000 worth of caviar. As the tradition on New Years in Russia is champagne and caviar at midnight, the loss of over 845 tins of the fish eggs was a huge blow to the affluent partiers in Russia’s capital. The caviar was never seen again.
+Guess no one was Russian to kiss at midnight; they were too sad about the caviar.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136800.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412994.gif">
+5. Back in 2013, one of the world most sought after whisky’s was stolen from the distillery. Pappy Van Winkle’s Reserve 20 year goes for thousands of dollars on the secondary market, after a 3 year waiting list. So they were pretty surprised that 65 cases went missing from a protected room in the distillery.
+When the finally found the culprits, they discovered only 20 of the cases, plus several cases of other rare whisky’s; only a fraction of the $100,000+ worth of liquor that they had stolen.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136801.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412995.gif">
+6. You’d be surprised, but nuts are a highly stolen and traded commodity on the black market. Back in 2012, 2 dudes stole $300,000 worth of walnuts from an orchard in California. They managed to last a week before getting caught, and the close to 140,000 pounds of nuts were returned back to the orchard.
+I’m definitely in the wrong line of work if that’s what nuts are going for.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136802.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412996.gif">
+7. You know how the French love their cheese? Some love it so much, they’ll find an elaborate way to steal it. Just last year, in 2015, thieves stole more than 8,000 pounds of Comté cheese from the Goux-les-Usiers region of France where Comté is produced. No trace was left, even though the heist required cutting through a barbed wire fence and breaking into a building. In case you’re wondering, that’s close to 2 tons of cheese, valued at $43,000.
+To this date, the culprits haven’t been found and the cheese (over 100 wheels of it) has most likely been distributed through the black market and is adorning some pretty tasty crackers right about now.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136796.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412997.gif">
+8. Don’t say you wouldn’t be tempted to to this, but in 2013 in Germany, thieves made off with 5 metric tons of Nutella chocolate-hazelnut spread from a parked trailer in the central German town of Bad Hersfeld. 5…Metric…Tons… of Chocolate Hazelnut spread? Hopefully, they stole some toast to go with it.
+The loot, valued at over $20,000 wasn’t the first example of things getting stolen in the city of Bad Hersfeld. The previous week, thieves made off with a trailer full of Red Bull.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136803.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413001.gif">
+9. Then, there’s the Smokey and the Bandit styles of highway beer thefts.
+In this case, someone went after our other national treasure – Beer! Back in 2004, a truck full of Moosehead Beer was ‘misplaced’ on it’s way to Mexico. The empty truck was later found in a New Brunswick McDonalds parking lot, while the driver was apprehended in Ontario.
+The Police began looking for the 60,000 cans of beer, which were easy to distinguish due to the Spanish labels. Cans were found all over New Brunswick; at campgrounds, in various pulled over trucks, at a weed grow op, and they even found some in the forest, empty with bear bite marks in them.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136804.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412998.gif">
+10. Ten years later, down in Orlando, something similar happened. An independent contractor, who’d purchased his truck rig 3 weeks prior, stopped at a truck stop for a drink. In the meantime, his truck full of $32,000 worth of Miller High Life was stolen. Weeks later the truck was found in Miami, with the majority of 44,000 pounds of beer still there.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136805.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85412999.gif">
+11. This past June, 2 flatbeds with over $90,000 worth of SweetWater beer went missing, but lucky for them, this is the age of GPS tracking. One hour later, they found 10 pallets of beer stashed in a warehouse near the Atlanta based brewery, and it took a private investigator less than 24 hours to find the remaining 30 pallets of beer.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136806.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413000.gif">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413002.gif">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413003.gif">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413004.gif">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413005.gif">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413006.gif">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413007.gif">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413008.gif">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413009.gif">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413010.gif">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413011.gif">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413012.gif">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413013.gif">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413014.gif">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413015.gif">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413016.gif">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413017.gif">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413018.gif">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413019.gif">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413020.gif">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413021.gif">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413022.gif">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413023.gif">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413024.gif">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/85413025.gif">
+12. How much soup does one man need? In October of 2013, Eusebio Diaz Acosta, from Florida stole a big rig loaded with $75,000 of Campbell’s soup and started booking it down the highway. 30 miles later, he got caught by police and forced to pull over, where he made a break for it, hopped a fence and started a foot chase.
+He got caught. He was charged with 2 counts of Grand Larceny, and the soup was returned to it’s rightful owner. As for the thief, he was in a lot of hot water and given the circumstances, he wasn’t able to afford a “mmm mmm good” lawyer.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85136798.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85412989/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85136794/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
