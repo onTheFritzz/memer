@@ -1,874 +1,941 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 03.05.2023-04:45:17<br>All credits to ebaumsworld.com
+Last Updated 03.05.2023-07:45:17<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">23 Work Memes For When You Hate Your Job</a>
-1. While you're making the presentation of a lifetime!
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044801/87297502/workmeme1.png">
+## <a href="#link1" id="link0">44 Amusing Picture To Get You Through The Day</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239980.jpg">
 
-2. Translation: "It's my mistake as a manager, so why don't you go and deal with the consequences?"
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044805/87297503/workmeme3.png">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239981.jpg">
 
-3. Am I supposed to be working here?
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044807/87297504/workmeme2.png">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239982.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044809/87297505/workmeme5.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239983.jpg">
 
-5. Time is definitely different in different places.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044811/87297506/workmeme6.png">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239984.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044813/87297507/workmeme4.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239986.jpg">
 
-7. But those 8 minutes were glorious.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044815/87297508/workmeme8.png">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239985.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044816/87297509/workmeme9.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239987.jpg">
 
-9. Meetings never need to be longer than 5 minutes.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044818/87297510/workmeme10.png">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239988.jpg">
 
-10. Buzzwords only exist so bosses feel like work is happening.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044822/87297511/workmeme7.png">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239989.jpg">
 
-11. That sick day is still in your back pocket...
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044823/87297512/workmeme12.png">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239990.jpg">
 
-12. Just go away!
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044824/87297513/workmeme11.png">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239991.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044826/87297514/workmeme13.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239992.jpg">
 
-14. I'm so close!
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044830/87297515/workmeme14.png">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239997.jpg">
 
-15. There are no greater bonds than those formed through times of hardship.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044831/87297516/workmeme15.png">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239993.jpg">
 
-16. See if I gaf.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044833/87297517/workmeme16.png">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239994.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044836/87297518/workmeme18.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239996.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044841/87297519/workmeme17.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239995.jpg">
 
-19. Do they even have work they're supposed to be doing?
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044842/87297520/workmeme19.png">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239998.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044847/87297521/workmeme20.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85239999.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044854/87297522/workmeme22.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240000.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044902/87297523/workmeme21.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240001.jpg">
 
-23. This list will now go up on my cork board.
-<img src="https://cdn.ebaumsworld.com/2022/10/31/044904/87297524/workmeme23.png">
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240002.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240003.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240004.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240005.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240006.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240007.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240008.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240009.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240010.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240011.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240012.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240013.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240014.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240015.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240016.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240017.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240018.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240019.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240020.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240021.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240022.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85240023.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87297501/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85239979/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">42 Funny Memes And Pics To Make You Laugh</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291665.jpg">
+## <a href="#link2" id="link1">The Best Female Porn Stars of 2017</a>
+1. 29. Cassidy Banks
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411675.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291666.jpg">
+2. 28. Samantha Rone
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411676.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291667.jpg">
+3. 27. Ron Jeremy
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411677.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291668.jpg">
+4. 26. Gigi Allens
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411678.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291669.gif">
+5. 25. Bonnie Rotten
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411679.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291670.png">
+6. 24. Hitomi Tanaka
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411680.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291671.jpg">
+7. 23. Jenny Blighe
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411681.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291672.png">
+8. 22. Sophie Dee
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411682.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291678.jpg">
+9. 21. Tori Black
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411683.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291673.jpg">
+10. 20. Malena Morgan
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411684.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291674.jpg">
+11. 19. Diamond Jackson
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411685.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291675.jpg">
+12. 18. Piper Perri
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411686.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291677.jpg">
+13. 17. Peta Jensen
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411687.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291679.jpg">
+14. 16. Sasha Grey
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411688.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291680.jpg">
+15. 15. Lana Rhoades
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411689.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291676.jpg">
+16. 14. Asa Akira
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411690.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291681.png">
+17. 13. August Ames
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411691.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291682.jpg">
+18. 12. Kendra Lust
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411692.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291683.jpg">
+19. 11. Nina Skye
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411693.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291685.jpg">
+20. 10. Kimmy Granger
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411694.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291686.jpg">
+21. 9. Madison Ivy
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411695.jpg">
 
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291687.jpg">
+22. 8. Alexis Texas
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411696.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291688.jpg">
+23. 7. Mia Malkova
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411697.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291689.jpg">
+24. 6. Nicole Aniston
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411698.jpg">
 
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291690.jpg">
+25. 5. Dillion Harper
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411699.jpg">
 
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291691.jpg">
+26. 4. Brandi Love
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411700.jpg">
 
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291693.jpg">
+27. 3. Lisa Ann
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411701.jpg">
 
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291694.jpg">
+28. 2. Mia Khalifa
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411702.jpg">
 
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291695.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291696.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291697.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291698.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291699.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291700.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291701.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291702.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291703.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291704.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291705.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291706.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291707.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85291708.jpg">
+29. 1. Riley Reid
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85411703.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85291664/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85411674/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">13 Fascinating Facts To Feed Your Brain </a>
-1. A Russian MIG Pilot defected during the cold war along with his aircraft. When he arrived in the USA he was convinced the CIA had specially stocked the grocery stores he went to because he couldn’t believe the vast array of products for sale.
-
-Q: Like what did you do, for example?
-Belenko: First of all American super-market, my first visit was under CIA supervision, and I thought it was set-up; I did not believe super-market was real one. I thought well I was unusual guest; they probably kicked everyone out. It’s such a nice, big place with incredible amount of produce, and no long lines! You’re accustomed to long lines in Russia. But later, when I discovered super-market was real one, I had real fun exploring new products. I would buy, everyday, a new thing and try to figure out its function. In Russia at that time (and even today) it’s hard to find canned food, good one. But everyday I would buy new cans with different food. Once I bought a can which said “dinner.” I cooked it with potatoes, onions, and garlic-it was delicious. Next morning my friends ask me, “Viktor, did you buy a cat?” It was a can of chicken-based cat food. But it was delicious! It was better than canned food for people in Russia today. And I did test it. Last year I brought four people from Russia for commercial project, and I set them up. I bought nibble sized human food. I installed a pâté, and it was cat food. I put it on crackers. And they did consume it, and they liked it. So the taste has not changed. By the way, for those who are not familiar with American cat food. It’s very safe; it’s delicious, and sometimes it’s better than human food, because of the Humane Society.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310218.jpg">
+## <a href="#link3" id="link2">How To Lose The Game Of Thrones In 5 Easy Steps</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85412506.png">
 
-2. The Nazis developed an experimental drug cocktail called D-IX in which the Nazi doctors found that equipment-laden test subjects who had taken the drug could march 55 miles without resting.
-
-Pharmacologist Gerhard Orzechowski and a group of other researchers were commissioned in Kiel to develop this drug, and by later in the year developed a formula which contained in each tablet: 5 mg of oxycodone (brand name Eukodal), 5 mg of cocaine and 3 mg of methamphetamine (then called Pervitin, now available under the brand name Desoxyn).
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310219.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85412505.png">
 
-3. The Canadian government established one of the most northern settlements in the world by tricking 8 families into living there and then not allowing them to leave.
-
-“The settlement (and Resolute) was created by the Canadian government in 1953, partly to assert sovereignty in the High Arctic during the Cold War. Eight Inuit families from Inukjuak, Quebec (on the Ungava Peninsula) were relocated after being promised homes and game to hunt, but the relocated people discovered no buildings and very little familiar wildlife. They were told that they would be returned home after a year if they wished, but this offer was later withdrawn as it would damage Canada’s claims to sovereignty in the area and the Inuit were forced to stay.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310220.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85412504.png">
 
-4. Even though he was a teenager during the Great Depression, John F. Kennedy confessed he really didn’t know about it until he read about it at Harvard. 
-
-Joe Kennedy never publicly revealed his wealth, but the New York Times estimated his net worth at $500,000,000 when he died in 1969
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310221.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85412503.png">
 
-5. A Man Stopped Growing At Six Months Old Is Now 21 And Only 23 Inches Tall
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310222.png">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85412502.png">
 
-6. During the Vietnam War Hugh Thompson Jr. order his men to turn their guns on American soldiers to protect Vietnamese civilians and helped put a stop to the My Lai Massacre (mass killing of between 347 and 504 unarmed civilians in South Vietnam)
-
-Realizing that the soldiers intended to murder the Vietnamese, Thompson landed his aircraft between them and the villagers. Thompson turned to Colburn and Andreotta and told them that if the Americans began shooting at the villagers or him, they should fire their M60 machine guns at the Americans: “Y’all cover me! If these bastards open up on me or these people, you open up on them. Promise me!”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310223.jpg">
-
-7. During WW2 Joe Medicine Crow, a native American, completed all four feats required to be a war chief: touching an enemy without killing him, taking an enemy’s weapon, leading a war party and stealing 50 horses from the SS, singing a Crow honour song as he rode away
-
-He touched a living enemy soldier and disarmed him after turning a corner and finding himself face to face with a young German soldier:
-The collision knocked the German’s weapon to the ground. Mr. Crow lowered his own weapon and the two fought hand-to-hand. In the end Mr. Crow got the best of the German, grabbing him by the neck and choking him. He was going to kill the German soldier on the spot when the man screamed out ‘momma.’ Mr. Crow then let him go.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310224.jpg">
-
-8. A man once tried to sue Pepsi because he found a mouse in his can of Mountain Dew, Pepsi defended the case by proving that Mountain Dew can dissolve a mouse in a few months
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310225.png">
-
-9. Stephen King’s formula on writing is “Read and write four to six hours a day. If you cannot find the time for that, you can’t expect to become a good writer.” He sets out each day with a quota of 2000 words and will not stop writing until it is met.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310226.jpg">
-
-10. Pepsi is being sued because of its Naked Juice marketing. While the juice is marketed as “healthy”, it actually has a higher sugar content than an equivalent amount of Pepsi Cola.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310227.jpg">
-
-11. Coke was sued for the “unwarranted health claims” on their product Vitaminwater. Coke’s defense was “no consumer could reasonably be misled into thinking vitamin water was a healthy beverage.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310228.jpg">
-
-12. Serial killer Javed Iqbal was sentenced to death by being strangled in front of his victims family’s, dismembered and then burned in a vat of acid, in the same way he killed over 100 16 year old boys. He was found dead in his cell before the execution could be carried out.
-
-He was only caught because he sent a confession letter to the police in which he gave his address and left the remains of 2 victims in his house.
-A placard in his home read: “All details of the murders are contained in the diary and the 32-page notebook that have been placed in the room and had also been sent to the authorities. This is my confessional statement.” Another placard read: “The bodies in the house have deliberately not been disposed of so that the authorities will find them after my suicide.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310229.jpg">
-
-13. One minute each night, skyscrapers, tugboats, hotels, a yacht club and police cruisers send a blinking goodnight message to sick kids inside Hasbro children’s hospital Providence. R.I.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85310230.png">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85412501.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85310217/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85412500/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">15 Fascinating Behind The Scenes Photos From Famous Movie Sets</a>
-1. James Bond Goldfinger
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385764.png">
+## <a href="#link4" id="link3">15 People Share The Moment They Knew They Were Officially Old</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400654.jpg">
 
-2. Road Warrior
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385765.png">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400655.jpg">
 
-3. Frankenstein
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385766.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400656.jpg">
 
-4. Tim Curry on the set of Rocky Horror
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385767.png">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400657.jpg">
 
-5. Emperor Skywalker
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385768.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400658.jpg">
 
-6. Indian Jones and The Temple of Doom
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385769.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400659.jpg">
 
-7. Star Wars Episode III
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385770.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400660.jpg">
 
-8. The Gladiator
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385771.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400661.jpg">
 
-9. Wonder Woman
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385772.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400662.jpg">
 
-10. Carrier Fisher on set of Star Wars
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385773.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400663.jpg">
 
-11. Batman
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385774.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400664.jpg">
 
-12. For Evil Dead: Army of Darkness
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385775.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400665.jpg">
 
-13. The Last Jedi
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385776.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400666.jpg">
 
-14. Freddy Kruger
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385777.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400667.jpg">
 
-15. I am Legend
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85385778.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85400668.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85385763/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85400653/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">14 of the Strangest Ways Women Have Hit On Men</a>
+## <a href="#link5" id="link4">30 Nostalgic Images That Will Take You Down Memory Lane</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470167.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306628.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470168.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306629.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470169.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306630.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470170.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306631.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470174.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306632.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470172.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306633.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470175.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306634.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470173.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306635.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470176.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306636.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470177.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306637.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470178.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306638.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470179.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306639.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470180.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306640.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85470181.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306641.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306642.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306643.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306644.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306645.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306646.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306647.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306648.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306649.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306650.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306651.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306652.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306653.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306654.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306655.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306656.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2414570/85306657.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85470166/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85306627/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">27 Reality Show Secrets Exposed by Insiders</a>
-1. An episode of Man vs Wild was partly shot in my town. The episode leads you to believe he is dropped in the middle of nowhere and takes a single path to find civilization. In reality, there were many shooting locations for this episode all around the island, 100s of kilometers apart. If you are familiar with the countryside you can tell from the way the terrain changes that he's magically teleporting around the country. In the part they filmed in my town, Bear happens to come across a steep ravine that he must navigate through. In reality, this ravine is part of a commercially run canyon tour.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262230.jpg">
+## <a href="#link6" id="link5">41 Pics and Memes For Your Daily Dose of Randoms</a>
+1. She knows exactly what she's doing.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024741/87255105/87254048.jpg">
 
-I know this because my housemate worked for the company, and when we watched it she recognized everything. I could certainly find photos for comparison if anyone's interested. Anyway, I still love Man vs Wild, Bear still does some crazy a*s stunts. I'm just now a little disillusioned with the whole process of the show. Whenever Bear happens to stumble upon a cave or lake or abandoned house or whatever, I now realize his location scouts actually probably stumbled upon it months ago before they even entered the area.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262231.jpg">
+2. Bats can't be cute and adora...
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253831.jpeg">
 
-2. Extreme Home Makeover redid a house in my neighborhood when I was in high school. The family had to move out a year or so later because they couldn’t afford to pay the upkeep and taxes on it.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262224.jpg">
+3. For the Male Karen in you.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253814.jpg">
 
-3. A friend of mine was on that old MTV show Next. One guy, four girls. She was the first "date" off the bus. She's really pretty, and a super cool girl. She and the guy hit it off, and he offered her the second date or whatever. She accepted. But then the producers asked her to get back on the bus because they didn't get a good shot of her coming out of the bus originally.She went back on, waited for "action". When she came off the second time, the guy yelled NEXT!!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262225.jpg">
+4. It's not bad in some soups though.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253816.jpg">
 
-4. Approximately 80% of reality shows are made in post production. Entire story lines are created literally from found footage mixed with what is called "frankenbites." Which is where interview lines are created from pieces of a bunch of different interviews, so we can make anyone say anything we want. Also, little fun fact, if a cast member is a d**k to the field producers while shooting, the editors will back up their team, and make that cast member look worse when it comes to editing. SOURCE: I'm a reality TV editor
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262226.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253821.jpg">
 
-5. Late to the game.Was on a TV show called Shipwrecked in the UK.It's like survivor, but for a teenage viewing audience, 90% of what was seen was genuine.People assumed we lived in cushty hotels off camera, no we slept in sleeping bags on the beach or in the hut.If it rained and we couldn't start a fire, we had raw and cold food.Somw things were organised as in 'BuxtonB, can we go do an interview down on back beach and talk about X' but that was pretty much the extent to which it was directed, no scripts, it was all our own thoughts and conversations.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262227.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024757/87255118/87254736.jpg">
 
-6. I worked on one for a week in one of those fake Ghost Hunters shows, this was about 4 years ago. The hunters invited a psychic (not sure if that was what he called himself). This guy was a big a**hole, and thought he was the sh*t. Big ego. Anyway they were hunting in a haunted house, and this guy was doing a walk through before taping. He went into the whole routine. Cameras were not rolling, it was just for staging an getting acclimated. During this time I was at video village and could see/hear what was going on. He was in an upstairs room and began to feel a cool breeze. He made a big deal about it and insisted we start rolling. We did, and he went on and on about thou room temperature drops mean a spirit. He started asking crew if they felt the breeze as well, they did. Finally the first AD (who was sick of this guy's sh*t) told the guy that the breeze was coming from the open window in the other room. The psychic threw a fit and stormed out saying we were all amateur.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262228.jpg">
+7. Gonna have a lot of people requesting a refund!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253818.jpg">
 
-7. My family was the subject of an episode of Paranormal State on A&E. Although the paranormal stuff they captured all really happened, everything was put out of order and was heavily edited to make it more dramatic than it actually was. They pretty much made my family seem completely crazy (which we're not) by filming us without our knowing and dubbing certain scenes with different audio. All in all, it was an interesting experience but I'm not sure if I would want to do something like it again.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262229.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253819.jpg">
 
-8. my cousin went on Canadian Idol, went all the way to the celebrity judges. the Judges liked her but the producers changed their minds. she didn't get to go on the show.talk about a let down.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262232.jpg">
+9. Way to call me out, Kevin.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253820.jpg">
 
-9. A friend of mine tried out for American Idol and she said it always seemed like the people wait then they get their big shot in front of the TV judges. In reality it's a ton of steps, and hours of waiting, to go through loads of intermediate judges who decide if your either TV material, the insane or terrible people, or actually good enough to move on.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262233.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253815.jpg">
 
-10. I was in a wedding TV show. They did the "surprise wedding reveal" was done take after take. There were paid extra dancers. There were tons of unpaid extras to fill the wedding and reception, all shot in one location but appeared different in the show. The extras were all obvious because they were white and the couple and actual wedding party were all black. The cake was fake, we did serve cake but from another cake, not the one they showed. The wedding was actually pretty cool and after midnight they got to play music they wanted to hear. It was very glamorous but not high quality, on t. The chairs seemed very high quality but in reality had glue showing and cheap Chinese jewels on em. But hey who would complain about a free wedding?!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262234.jpg">
+11. Making a Dad joke about your Dad, classic.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253822.jpg">
 
-11. I was an extra in one of those shows that take a failing restaurant and bring in a celebrity to fix all of its problems. It was not a fun experience; three things that stand out:* All of the restaurant's "problems", every one, were either made up or things that had been solved years ago but were re-created for the cameras.* The celebrity host had an earpiece and most of his lines, especially when he got all fired up, were fed to him.* If the Food Network promises you will get a free meal for two hours of shooting, what they mean is they might give you a granola bar for eight.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262235.jpg">
+12. The logic is infallable.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253823.jpg">
 
-12. I was almost on What Not to Wear and it was definitely a bit different than what you see on TV. It started at a punk show outside LA. I'm an east coaster and we like to get in the mood for punk/metal/whatever shows, but apparently, in Cali it's jeans and plaid shirts all the way. I was dressed a little unusual but nothing crazy (IMO). Was approached by a woman who said she worked for a reality show and thought I'd be great for it, could she get my info and send me the details. I got an email the next day explaining it was for "What Not to Wear". Apparently, the prize was a designer's wardrobe plus picking one prize worth up to $20k, but I had to find a bunch of friends to pretend like they "turned me in" for having a sh**ty wardrobe and also had to let them destroy all of my clothes. She asked me to come in for an official audition and wear my most outlandish outfit. I had a really hard time making the decision as to whether or not to audition.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262236.jpg">
+13. Not a bad idea.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253827.jpg">
 
-I have some self-respect and doubted I would anymore after filming something like that. Plus I'd be embarrassed in front of the entire nation and I'd have to destroy clothes that I love. Eventually, I decided "f**k it, $20k is $20k" and showed up. While some photographer was snapping photos of me, the head honcho producer lady happened to walk through. She took a look at me and dragged the photographer to the back. They came back a couple of minutes later and she said, "I'm sorry you got dragged into this. I think you look great. You should just go home." The whole thing was really bizarre.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262237.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253828.jpg">
 
-13. My friend went on a dance show. He was the favourite to win so they asked him to sign a contract midway that said he will give 50% of all of his earnings from dance to the network. He'd already created a very successful dance school prior to appearing so he refused to sign the contract. He was evicted that week in a "surprise eviction". Joke was on the network though because ratings dropped after his eviction and now they hire him to do more work for the network than the actual winner.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262238.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253830.jpeg">
 
-14. The Kardashians film at a restaurant I used to work at. There's no reality to it whatsoever.Their film crew gets there 4 hours early, and they make everyone sign waivers consenting to be on camera. They mic up the immediate wait staff, set up their equipment (boom mics, multiple cameras, lighting, etc.), and post security at the entrances. After that, the "stars" show up, usually about 2-3 hours late, order some food that they don't eat, and then leave 30 minutes later.It's all coordinated days to weeks in advance with the owner and the GM.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262239.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253835.jpg">
 
-15. I was on a weight loss show. They touted healthy diet and exercise but this is not what I was told off camera. The "trainer" advised me to fast/dehydrate myself prior to weigh ins to have a lower weight. The producer told me to use the "chew and spit" method (chew the food and spit it out instead of swallowing) to manage eating. Although there was not an explicit script - they would ask questions or direct you in such a way that there was only one answer (the one they wanted). We had to film the fitness events multiple times - to get all the angles and shots they needed. Where possible they would keep you exhausted and hungry so that you were more likely to have dramatic breakdowns. The producers tried to get between me and my husband- for drama purposes only - it was such an issue that I refused to allow any of my family/spouse be interviewed any more. The producer would berate me about this - presumably to generate more drama. Not a good experience but certainly an enlightening one.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262240.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253838.jpg">
 
-16. I worked for a bakery that was on, and won, CupCake Wars. The premise of the show is to surprise the bakers with a few, more often than not, odd ingredients and see what they're really made of. In reality, we found out the ingredients a few months before the show. Had we not known, there's no doubt we'd have lost.There are definitely people who thrive under pressure, both in performance and creativity, and they have better things to do with their time than crank out cupcakes for Food Network. Tell an unprepared contestant they have 40 minutes to make a delicious cupcake using tater tots and nine times out of ten you'll have a middle aged woman sobbing into her mixing bowl.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262241.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253839.jpg">
 
-17. Just remembered another one.... When I was in college in LA, Jay Leno came to my school to film a Jaywalking segment. It used to be one of my favorite segments - I loved laughing at all the idiots he would find.Turns out everyone is carefully screened for how well they can act like a bimbo/moron. I went to a small school so I knew several of the people who were chosen. One was my next door neighbor and she was a PoliSci major. The topic was politics. She was actually pretty smart and clearly knew the answers but played dumb for the camera.After realizing how fake it was, I can't even watch Jaywalking anymore. It is so stupid and all staged. People just act dumb so they can get on TV. I failed at acting dumb but got on TV anyway... by "casually walking past the camera wearing a pair of ridiculous rainbow socks."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262242.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253840.jpg">
 
-18. I have a friend who used to frequently see filming of *Jersey Shore* live because he was from Jersey. He says that they have scripts hanging above the camera and it's not really real.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262243.jpg">
+20. When you're right, you're right.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253845.png">
 
-19. I auditioned for The Voice last year and it is a horribly long process. I was at the audition site for more than 5 hours. But the strangest part is that they put you into rooms by genre, even if you don't sing that genre. So an incredibly talented "pop" singer won't get in because they were placed in a "country" genre room. It's pretty odd.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262244.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253848.jpg">
 
-20. A girl in my town was on My Super Sweet 16. Not only did the party apparently SUCK, but all my friends that went said that everyone had to be breathalyzed upon entering the venue. Also they had to redo her entrance multiple times.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262246.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024737/87255102/87254046.jpg">
 
-21. i don't/haven't worked on one. but one was done on a bar near my house that was supposedly haunted.Everything was based on falling/'flying' things (glasses falling off shelves. beverage hoses 'flying' off their places they're held). The crew 'proved' there were ghosts, by setting up a mock bar scene and putting salt around the bottom of all the glasses and left for the night with cameras.Sure enough, the footage showed all the glasses/cups moving around. and the salt barriers were all disrupted. it was like 100% of the glasses had moved in some shape of form.What the f**king show failed to mention is that the bar is literally under an overpass for a train, and at a train station. The 'moving' items are just because trains are coming by, and the building is about 50 ft from the train tracks.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262247.jpg">
+23. Not gonna lie this looks straight up delicious.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87253849.jpg">
 
-22. I was once a referee for WWE. All of the wrestling you see is staged. All of it.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262248.jpg">
+24. Choose your words very carefully.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024734/87255100/87254041.jpg">
 
-23. I was on the reality tv show wife swap almost 5 years ago. I was 11 at the time and my mom got switched to Arizona. Anyway there are really no behind the scene secrets, most of it is manipulated in editing. To make things more dramatic and twist our words around. But a behind the scene thing that is awesome is they buy you pretty much any food you want xD
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262249.jpg">
+25.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024735/87255101/87253053.jpg">
 
-24. My cousin went on Judge Judy once (sued her ex-bf for something or other), and the producers told her things like, "Make sure you tell her right away if the other person is lying, don't wait until she asks you" and "Don't make eye contact with her, it makes her mad". Having seen the show, she knew better and ignored everything they said. She won, but not after being berated by Judge Judy for being a liar even though she had all the evidence needed.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262251.jpg">
+26.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024739/87255103/87253055.jpg">
 
-25.  I was on Antiques Roadshow, which I suppose is a reality show of sorts. It's actually pretty legit but considering it's PBS that shouldn't be surprising. The main thing you don't realize is how long you wait in lines. Your ticket has a time on it to help control when you arrive so foot traffic isn't bad. You get there and wait for about an hour in line. At the front of the line, you get your items checked (each person gets two) and these tickets direct you to the next line you need to stand in. I had a watch and some art, so I had tickets for the timepiece and Asian Art line. After the first hour and a half of waiting, you wait in the main room. Basically how the set-up works is that there's a small circle of banners and tables in the middle of the room which obscures the outside where all of the lines are directed. Everything is filmed in the middle of that room.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87262253.jpg">
+27.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024740/87255104/87254055.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024742/87255106/87254061.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024743/87255107/87254066.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024745/87255108/87254519.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024746/87255109/87254526.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024747/87255110/87254522.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024749/87255111/87254552.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024750/87255112/87254619.png">
+
+35.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024751/87255113/87254626.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024753/87255114/87254631.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024754/87255115/87254725.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024755/87255116/87254635.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024756/87255117/87254735.jpg">
+
+40. Does Pizza Hut or Papa Johns do that?  I don't think so.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024759/87255119/87254749.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/2022/08/23/024800/87255120/87254754.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87262223/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87253813/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">Meet The Winner Of China's Best Natural Buttocks Contest</a>
-1. Gao Qian, 19, has been blessed with slender curves.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401491.jpg">
+## <a href="#link7" id="link6">24 Pics That Get Worse The Longer You Look</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355733.jpg">
 
-2. The 19-year-old says she can't wear tights because she has the best butt in China -- she just won the "most beautiful buttocks in China" contest.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401492.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355734.jpg">
 
-3. It was her curves that helped Qian beat out about 50 other women, rated by seven judges in June for the prestigious title.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401501.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355735.jpg">
 
-4. But, it wasn't easy. The 5'7" 132-pound stunner says she trained for months, sometimes for 6 hours a day.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401495.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355736.jpg">
 
-5. The contest, organized by fitness club Saipu inside a Shenyang shopping mall on June 24th, has been touted as China’s answer to Brazil’s Miss BumBum contest.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401502.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355737.jpg">
 
-6. She says she got plenty of support from her family.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401496.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355732.jpg">
 
-7. “My father gave me much encouragement after I signed up for the competition,” she says. “My family also think it’s a very positive thing to do.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401500.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355738.jpg">
 
-8. She also says having a fit behind is her passion, and even though the contest is over, she will continue to train.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401497.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355744.jpg">
 
-9. She revealed that hysteria over her shapely rear means she cannot wear tight clothes in public, because people would 'surround her and point' at her eye-catching rear.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401493.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355739.jpg">
 
-10. She reported that one couple fought on the street after a man praised her curves in front of his girlfriend.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401494.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355740.jpg">
 
-11. In daily life, Ms Gao is a part-time personal trainer and a popular vlogger who makes a living by broadcasting her daily activities online.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401498.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355741.jpg">
 
-12. She has earned additional social media fans since her impressive win. Gao now dreams of possibly joining Brazil’s “Miss BumBum” contest in the future.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85401499.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355742.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355747.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355743.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355745.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355746.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355748.png">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355749.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355750.png">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355751.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355752.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355753.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355754.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85355755.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85401490/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85355731/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">20 Perfect Tweets Shitting on Celebs to Start the Weekend off Right</a>
-1. Totally.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023720/87320751/IMG_8900.jpg">
+## <a href="#link8" id="link7">A Husband's Plea For Justice For His Fired Wife Goes Viral</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304505.jpg">
 
-2. They aren't who you think they are!
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023722/87320752/IMG_8899.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304506.jpg">
 
-3. I believe the term is pwnd.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023723/87320753/IMG_8902.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304507.jpg">
 
-4. Lost a legend.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023729/87320754/IMG_8903.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304508.jpg">
 
-5. Softest CEO ever.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023732/87320756/IMG_8906.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304509.jpg">
 
-6. I'm just glad this youtube comment went viral.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023736/87320757/IMG_8901.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304510.png">
 
-7. Apologize to this man!
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023730/87320755/IMG_8905.PNG">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304511.png">
 
-8. But free speech!
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023740/87320758/IMG_8908.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304512.png">
 
-9. Is this real? Anybody watch the doc?
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023742/87320759/IMG_8909.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304513.png">
 
-10. Truly witnessing the end of times.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023745/87320760/IMG_8907.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304514.jpg">
 
-11. Everything changed in 1994.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023751/87320762/IMG_8911.jpg">
-
-12. Learn how to give better compliments.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023756/87320763/IMG_8914.jpg">
-
-13. LMAO.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023800/87320764/IMG_8913.jpg">
-
-14. Oh no.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023801/87320765/IMG_8915.jpg">
-
-15. Bro bad news, she gone.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023747/87320761/IMG_8910.jpg">
-
-16. Clearly not a kids show.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023802/87320766/IMG_8916.jpg">
-
-17. I'd still clap those cheeks.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023804/87320767/IMG_8917.jpg">
-
-18. The original is the only one that matters.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023805/87320768/IMG_8918.jpg">
-
-19. Double burn.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023809/87320769/IMG_8912.jpg">
-
-20. Cinderella's gl(ass) slipper.
-<img src="https://cdn.ebaumsworld.com/2022/12/16/023811/87320770/IMG_8919.JPG">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85304515.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87320750/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85304504/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">17 Incredible Movie Transformations Of Hollywood Stars</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249359.jpg">
+## <a href="#link9" id="link8">52 Awesome And Rare Second Hand Finds</a>
+1. Sean and Ricky McAvoy visited a commission store in Asheville, New York in 2014 and came across a sweater with Lombardi written on it. It turned out to actually belong to coach Vince Lombardi and he had appeared on television wearing the sweater. In February, at auction, the sweater was sold for 43,020 dollars. And they paid only $0.58 for it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338630.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249360.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338631.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249361.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338632.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249362.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338633.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249363.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338634.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249364.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338635.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249365.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338636.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249370.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338637.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249366.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338638.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249367.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338639.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249368.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338640.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249369.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338641.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249371.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338642.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249372.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338643.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249373.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338644.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249374.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338645.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85249375.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338646.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338647.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338648.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338649.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338650.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338651.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338652.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338653.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338654.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338655.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338656.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338657.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338658.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338659.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338660.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338661.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338662.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338663.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338664.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338665.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338666.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338667.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338668.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338669.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338670.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338671.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338672.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338673.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338674.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338675.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338676.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338677.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338678.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338679.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2386814/85338680.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85249358/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85338629/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">25 Fresh Memes To Tickle Your Funny Bone</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275733.jpg">
+## <a href="#link10" id="link9">15 Of The Most Polarizing Double Standards In Western Society </a>
+1. “You get in before everyone else, no one notices and doesn’t care. But heaven forbid you also leave before everyone else, and you are lazy. Nope, I worked the same amount (likely more) hours than you did. Just because you weren’t here to see it, doesn’t mean I wasn’t here.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424858.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275734.jpg">
+2. “Women can have sex toys and it is fun and sexy. Men have sex toys and they are losers.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424859.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275735.jpg">
+3. “If I want to resign, I’m expected to give two weeks notice. If I get laid off, it’s effective immediately, no notice whatsoever.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424860.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275736.jpg">
+4. “I play video games in shifts longer than four hours at a time and I’m lazy. Someone watches the entire Stranger Things series in one day and no one bats an eye.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424861.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275737.jpg">
+5. “Abuse in a relationship. A couple weeks ago my now ex punched me in the face at a crowded bar and it was just a spectacle. If I (male) had been the one throwing punches, it would have been a different story. People can be awful at times.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424862.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275738.jpg">
+6. “Its easier to bring drugs into most music venues than clean water. I understand the notion behind making guests dump their bottles, but it really drives me crazy how backwards security can be at a show.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424863.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275739.jpg">
+7. “From when I was a kid: If I left my toys out and one of my parents stepped on them I got yelled at for not putting my toys away. But if my dad left his tools out and I stepped on one I got told to watch where I was stepping.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424864.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275740.jpg">
+8. “Fat shaming is SO MEAN AND INSENSITIVE, but it’s totally fine and acceptable to tell someone they’re “TOO SKINNY. GROSS.” And that “She’s not a REAL woman.””
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424865.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275741.jpg">
+9. “It’s not gender specific, but it’s common to see on dating profiles that the person requires that their partner be fit, athletic, slim, etc, while said person themselves look like the Michelin man. You should not demand your partner kill themselves at the gym on the daily while you get to be a blob.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424866.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275742.jpg">
+10. “Same Road Same Rules. This is a popular slogan in the cycling community where I live. Only problem is cyclists seem to break every damn rule on the road. Weaving, passing, going through reds/stop signs, riding on the sidewalk, etc.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424867.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275743.jpg">
+11. “Random women grabbed my ass so many times when I worked as a bouncer in bars. Tried to explain that this behavior is unacceptable and half the time they’d just laugh while saying I’m cute when I’m angry.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424868.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275744.jpg">
+12. “I have to pass yearly workplace harassment/sensitivity training and they make a big deal about age discrimination. Here’s the kicker, age discrimination only applies to old people not young. For instance, I could get in serious trouble/fired for calling someone a dinosaur, but yet every week people tell me I should grow a beard so I look old enough to work.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424869.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275745.jpg">
+13. “It’s viewed as a good thing if someone goes to bed early and get out of bed early. But if you go to bed late and therefore also wakes up later, you are a lazy bastard. But in the end, they sleep the same amount of time. And it’s always the early bird that makes comments and act like they’re Jesus because they got out of bed earlier.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424870.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275746.jpg">
+14. “If I show up five minutes late to a doctors appointment I have my Appt cancelled and can be charged for it, financially not criminally, yet I can be on time and wait 45 minutes to an hour to see the doctor without receiving so much as an apology. I have gone to appointments at the VA, before I could afford insurance, and had them cancelled after waiting 30 minutes because the doctor didn’t show. Fuck the whole of U.S. healthcare.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424871.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275747.png">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275748.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275749.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275750.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275751.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275752.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275753.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275754.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275755.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275756.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85275757.jpg">
+15. “No paternity leave! Like seriously? I can’t stay at home with the kid too?”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85424872.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85275732/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85424857/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">48 Choice Randoms For Your Daily Dose</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309395.jpg">
+## <a href="#link11" id="link10">15 People Reveal Secrets These Big Companies Don’t Want You to Know</a>
+1. “Printer ink cartridges are meant to signal that they’re empty after a certain number of pages, even if they still have some ink left.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465001.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309407.jpg">
+2. “A lot of people probably know that when a tv show goes into syndication that some scenes will be cut from episodes to make them slightly shorter, to fit in more commercials.What people don’t know is that the show can be slightly sped up as well, to squeeze in just a little more advertising.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465002.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309396.jpg">
+3. “You use too much dawn dish soap. That stuff is ridiculously concentrated.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465003.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309397.jpg">
+4. “Grocery store bakeries do not bake the cakes they decorate. That stuff comes in frozen. Stop asking me to bake you a carrot cake. On top of that most of the baking in grocery store bakeries is just pulling frozen pastries or muffins or whatever out of a box and panning it up, then putting it in the proofer /oven. We don’t really make things anymore.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465004.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309409.jpg">
+5. “At Subway my manager never once bought real mayonnaise. The Light Mayo and the Real Mayo are both Light Mayo. Investigate those fuckers.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465005.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309398.jpg">
+6. “In sofa/couch commercials they use smaller actors/models to make the sofas/couches look bigger.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465006.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309400.jpg">
+7. “Nearly every caller you hear on top 40 radio is either a intern or someone else close to the studio, everything is fake. Especially that war of the roses shit.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465007.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309401.jpg">
+8. “Every programmer in the world occasionally writes a very bad code that sticks with the app/program forever.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465008.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309402.jpg">
+9. “A bottle of Windex is basically 95% water 4% ammonia, and 1% blue dye / fragrance. The most expensive part of the product is the bottle.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465009.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309404.jpg">
+10. “As call center employee I can assure you that ALL of our calls are recorded not for training purposes, but to protect our own asses.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465010.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309408.jpg">
+11. “It feels like it shouldn’t be a secret, but a lot of people just don’t get it. If you find yourself waiting forever to be seen in the ER, that’s probably a very good thing. We get the serious stuff back there pretty dang quick.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465011.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309410.jpg">
+12. “I attended a songwriting workshop at berklee school of music, and Anna Wise (Grammy winning songwriter, Kendrick Lamar collaborator) told the audience during a presentation that whenever someone “magically” blows up on soundcloud or YouTube, that it’s not authentic. A label will sign the artist in secret, and then suddenly boost their viewership tremendously to make it look like the independent artist did it on their own.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465012.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309411.jpg">
+13. Ask to have the late fee waived. I literally cannot do anything with it until you specifically ask.
+“So you have a late fee of $30 on this.”
+“Gee that’s a lot. Why is it so much?”
+“That’s the late fee we have. I do apologize for that inconvenience.”
+“Well I guess I’ll have to pay it then…”
+“Ok, so your bill is $150.”
+“Do you realize how much that is?”
+“Yes, and I do apologize for the inconvenience.”
+“Well, can you do something about it?”
+Yes. Now I can because you asked. Please stop making me feel guilty that you paid your bill late.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465013.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309412.jpg">
+14. “My sister was on The Biggest Loser. Jillian and Bob were there two maybe three days a week. They make it seem like they live there.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465014.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309413.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309414.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309417.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309418.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309419.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309420.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309421.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309428.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309429.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309430.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309431.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309433.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309434.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309435.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309436.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87309437.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101053/87309752/87309520.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101057/87309753/87309528.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101102/87309754/87309531.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101103/87309755/87309532.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101107/87309756/87309543.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101111/87309757/87309535.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101115/87309758/87309521.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101117/87309759/87309549.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101118/87309760/87309556.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101119/87309761/87309557.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101123/87309762/87309558.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101127/87309763/87309560.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101129/87309764/87309563.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101130/87309765/87309562.jpg">
-
-45.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101134/87309766/87309565.jpg">
-
-46.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101135/87309767/87309564.jpg">
-
-47.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101139/87309768/87309567.jpg">
-
-48.
-<img src="https://cdn.ebaumsworld.com/2022/11/23/101143/87309769/87309566.jpg">
+15. “Merlin Entertainments, the company that runs a wide variety of midway attractions like Legoland Discovery Centers as well as Legoland itself, pays most of their American employees less than Walmart. Oftentimes, employees love the job, but ultimately can’t afford to keep it. This causes a near 90% turnover rate.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85465015.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87309394/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85465000/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
