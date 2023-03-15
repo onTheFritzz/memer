@@ -1,855 +1,885 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 03.15.2023-13:45:18<br>All credits to ebaumsworld.com
+Last Updated 03.15.2023-16:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">33 Heartwarming Pics That Will Hit You Right In The Feels</a>
+## <a href="#link1" id="link0">26 Funny Star Wars Pics To Brighten Your Day</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203086.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216345.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203087.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216346.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203088.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216347.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203089.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216348.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203090.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216349.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203091.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216350.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203092.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216351.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203093.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216352.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203094.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216353.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203095.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216362.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203096.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216354.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203097.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216355.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203098.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216356.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203099.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216357.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203100.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216358.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203101.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216360.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203102.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216361.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203103.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216363.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203104.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216364.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203105.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216365.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203106.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216366.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203107.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216367.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203108.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216368.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203109.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216369.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203110.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216370.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203111.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203112.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203113.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203114.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203115.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203116.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203117.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85203118.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85216371.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85203085/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85216341/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">Top 15 Ruthless And Evil Cult Leaders From History </a>
-1. Swami Premananda, Death Toll: at least 1. Swami Premananda was a Sri Lankan Guru who moved to India and started a major spiritual movement. His ashram included housing for refugees of the terrible Sri Lankan civil war, including many orphaned children, and appeared to be of a humanitarian bent.That is, until one of the orphan girls managed to run away from the guru's ashram, and revealed that she had been raped and impregnated by Premananda. It turned out that at least 13 of the girls at the Ashram, several below the age of consent, were being used as Premananda's sex slaves. It also turned out that at least one of his followers was murdered when he threatened to reveal the guru's wrongdoings. Premananda was sentenced to life, and died in jail. Incredibly, several of his followers continued to believe he was a god-man and are still running his movement
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127042.jpg">
+## <a href="#link2" id="link1">The New iPhone: A Sneak Peak At  Designs That Got Leaked</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85160775.png">
 
-2. Charles Manson, Death Toll: 9 murders,  plus inspired other killers. This guy is probably known to everyone reading this. But surprisingly, he has the second-lowest death toll of the article. Manson was an insane hippie cult leader who became popular in San Francisco during peak flower-power, teaching a weird mix of Christianity, Scientology, drug-mysticism and his own personal bullshit.  He thought that the Beatles' song "Helter Skelter" was a secret message about a coming race-war. He wanted his followers (the "Manson Family") to murder prominent people in order to start this war. He's been in prison ever since, and yet you could say his body count surpasses his actual victims, because he inspired a bunch of other sick freaks who see him as a twisted hero.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127043.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85160776.png">
 
-3. Valentina de Andrade, Death Toll: at least 11 young boys. Valentina de Andrade is the leader of a Brazilian cult named "Lineamiento Universal Superior". She taught a mixture of new-age psychic theosophy, fringe Christianity, and alien-message UFO fanaticism.  In the early 1990s it was revealed that her sect had been kidnapping young boys (mostly street-children) and then castrating, mutilating and killing them; this was discovered when one of their young victims managed to escape. The sect's motive for these atrocities was based on a vision Andrade said she had received from her alien teachers, that all male children born after 1981 were actually demons. The corpses of the boys she murdered were stripped of their organs which were then sold on the black market.  Andrade escaped capture for a time and fled to Argentina; and shockingly, when she was caught and tried she was acquitted of the crime, when several of her male followers claimed they were responsible.  She got away with her monstrous crimes and now lives in Buenos Aires where the most recent indications are she is still working as a supposed new-age teacher and 'healer'; her website describes her as having a "childlike personality".
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127044.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85160777.png">
 
-4. Yahweh Ben Yahweh, Death Toll: probably 14. Yahweh Ben Yahweh was the leader of a black-supremacist cult in the United States known as the "Nation of Yahweh". Like many black-supremacist cults, the Nation of Yahweh claimed that Jesus and all the major characters of the Bible were actually black, and that whites and Jews were 'oppressors' who had created a complex lie to hide the truth. He also claimed to be the promised Messiah. His movement had reached surprising levels of influence in the local community around Miami where they were based; just before he was arrested, the city council declared a "Yahweh Ben Yahweh Day" in his honor. But it turned out his sect's inner circle required that those who wanted to reach this highest level of the cult had to murder a white person and provide a body part from the corpse as proof of their loyalty to the "nation" and its leader. When the truth came out in 1990, Yahweh was charged for 14 murders, two attempted murders, and additional charges of extortion and arson. At least one of the killings was in fact of a former member of the sect who had defied him; Yahweh had his followers decapitate the dissenter. He was sentenced to 18 years for the crimes but only served 11, and died six years after his release, of prostate cancer. The Nation of Yahweh is still active to this day, although they claim to have renounced the killing of white people.  But their website still praises Yahweh Ben Yahweh as "the great light and rule and guide for faith".
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127045.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2016/10/09/030817/85161026/ass.jpg">
 
-5. Ervil Lebaron, Death Toll: at least 15, possibly as many as 40. If you ever watched "Big Love", you'll get the basics of what this guy's deal was. Lebaron was the leader of a breakaway Mormon Polygamist sect (he would eventually have 13 wives, several of whom he married when they were underage).  He wasn't originally meant to be the "prophet" of this church, however; that role was supposed to go to his older brother. But Ervil arranged to have him murdered, and he would later try to kill his younger brother (who was running a breakaway sect) as well as the leaders of various other Mormon Polygamist groups who refused to recognize his authority as "prophet". He also arranged the death of various members of his own sect when they defied him or attempted to leave the cult. He may even have killed his own teenage daughter when she tried to escape his church, she was pregnant at the time of her death.Ervil had been in hiding in Mexico but he was eventually extradited and sentenced to life in prison, where he died after less than a year. Two days after he died, his younger brother (the one he'd been trying to kill) died in a mysterious automobile accident; many suspect Ervil had arranged the 'accident' for beyond-the-grave revenge. He had also written a 'hit list' while in prison which he smuggled out in the guise of a religious tract to some of his followers. For up to a decade after LeBaron's death, people alleged to be on that list were murdered or died in mysterious circumstances; at least 4 deaths (including that of an 8 year old girl) were confirmed to have been carried out by followers of Ervil on his death-bed orders.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127046.jpg">
-
-6. Shoko Asahara, Death Toll: 32, at least. Shoko Asahara is the leader of the Aum Shinrikyo cult in Japan, which became infamous for a series of poison-gas attacks.   He is nearly blind from childhood glaucoma, but thanks to Japanese superstition this actually gained him some cachet as a traditional Asian healer, which was his early career. He expanded from this to create a cult based on a weird mix of Tibetan Buddhism, Indian Tantra, and Christianity.  He claimed that he could purify his followers of negative karma; he also preached that the world was secretly controlled by an evil conspiracy consisting of Jews, Freemasons, the British Royal Family, and (for some reason) the Dutch. He later expanded this enemies' list to include rival Japanese sects and mainstream Japanese religions. He claimed that a Nuclear War was going to happen soon and that only his followers would be spared. He made his followers practice a very extreme kind of self-made "Yoga" that included shock therapy.Shoko began to engage in attempted killings of critics of his sect. This quickly evolved into the plan to cause the sarin gas attacks, which he justified as an act that would bring back 'balance' to the world. There were eventually three different attacks that killed 28 people and injured about 1600 more. His group also killed or injured several enemies of the sect before or shortly after the attacks; by poison, stabbing or shooting, but in one particularly horrific case by cooking their victim in a giant microwave oven.Asahara and several members of his sect were imprisoned in 1995. His trial went on until 2004 when he was sentenced to death, but the execution has been delayed multiple times and as of this writing he remains in prison.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127047.jpg">
-
-7. Marshall Applewhite, Death Toll: 41. Marhsall Applewhite was the founder of the bizarre "Heaven's Gate" cult, one of the first 'computer cults'.  His teachings were based on a mix of theosophy, UFO/Alien mysticism, pseudo-science, and Christianity. He claimed to be the reincarnation of Jesus, and that he and his wife were actually 'highly evolved' beings in contact with extra-terrestrials.  He demanded that his followers operate at a 'higher level' of consciousness by completely avoiding all sexual activity, and encouraged several of his male members to castrate themselves to achieve this higher state. In his teaching, higher level beings were asexual, and only inferior "luciferan" humans had genders and sexual lust. His group did not recruit massively like many other cults; he wanted a group that was exclusive, and his membership were mostly high-IQ highly-educated individuals.  They lived communally and in the later years of the cult the group mostly made their money by working in computing and website design.When the Hale-Bopp comet was due to arrive, Applewhite (then calling himself "Do") claimed that this was actually an 'escape pod' sent by extraterrestrials for his followers to be rescued from the impending destruction of the world. The group, including Applewhite and 38 followers, committed mass suicide by overdose and asphyxiation. They were wearing Nike sneakers and black uniforms with patches identifying themselves as the "Heaven's Gate Away Team", a Star Trek reference. Ironically, one of the victims of the cult was the younger brother of Star Trek actress Nichelle Nichols (Uhura in the original series). Over the next couple of years, two other followers who had not been at the compound at the time of the suicide also killed themselves.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127048.jpg">
-
-8. Joseph Di Mambro & Luc Jouret - Solar Temple, Death Toll: about 90. Di Mambro and Jouret were the co-rulers of a cult called the Order of the Solar Temple. It was based in Switzerland but its organization also had adherents in other parts of Europe, as well as in the French-speaking parts of Canada.  They were a pseudo-templar group that claimed to have the true teachings of the Rosicrucians, an ancient secret-society. Their practices were based on various 'degrees' of initiations in a model somewhat similar to that of Masonic groups. It's known that the group would dress up as templar knights and venerated a sword which Di Mambro claimed was an original ancient Templar sword that had belonged to him when he himself was a Templar knight in a past life.In 1994, the group ritually murdered the three-month-old son of one of their members in Quebec, which Di Mambro had claimed was the incarnation of the anti-Christ; both parents of the baby were also murdered. Shortly thereafter, the sect leaders ordered the mass-suicide of the membership, claiming that the Earth was about to be destroyed by humanity's environmental damage, and that by ritual suicide the group's membership would be reincarnated on a planet in the Sirius solar system. The majority of the members were shot dead while wearing their ceremonial templar-robes, and then the cult's "temples" were burned by pre-set incendiary devices. Di Mambro and Jouret were among the suicides. More of the membership who did not participate in the first mass-suicide would kill themselves a year later in France, and again in 1997 in Quebec.  Yet another group tried to commit mass-suicide in the Canary Islands in 1998 but their plot was thwarted. A surviving remnant of the group was still known to be operating in the early part of this century.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127049.jpg">
-
-9. David Koresh, Death Toll: 90. Here's another one most readers will likely remember: the ATF raid on Koresh's compound proved to be pretty controversial and sparked anti-government sentiment, but we can't pretend that Koresh wasn't a cult leader, and a pretty nasty one. He didn't actually start the Branch Davidian sect; he joined it in 1982, and was originally just a musician and singer in the sect's church. The cult way then being run by the 65-year-old widow of the Davidians' founder; and apparently Koresh (who was in his mid-20s) started to have an affair with her. He also claimed he was now a prophet. The founder's son, George Roden, was not happy that his mom was shacking up with Koresh and looked likely to try to steal his place as heir, so he staged a kind of coup and kicked Koresh and his followers out.  After a few years (when the founder's wife was dead) Koresh actually went into the Waco compound with armed followers and fought a gun battle to try to retake it. He was arrested and charged with attempted murder but he got off on a mistrial. Meanwhile, George Roden ended up murdering someone with an axe, and went off to jail. Koresh and his followers took possession of the Davidian compound.Once he was in full power over the Branch Davidians, Koresh ruled with an iron fist, full of looniness and child abuse. Children were beaten nearly to death, Koresh claimed any woman he wanted to as his own, married a 13 year old and raped a 10 year old.When the ATF raid happened, Koresh made sure that as many of his followers as possible would die in the 'apocalypse' of his own making, including the compound's children.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127050.jpg">
-
-10. Moses of Crete, Death Toll: probably over a hundred. That picture is the original Moses, not Moses of Crete, of whom no picture exists.  Moses of Crete was a 5th Century Jewish teacher and would-be Messiah, living at a time when the Jewish people had been forced out of the Holy Land (by the Romans) and had little prospect of returning to it anytime soon. Some Talmudic experts of the time believed that old prophecies indicated that the Messiah would reveal himself sometime in the second half of the 5th century, and Moses of Crete claimed he was that Messiah.He told his followers that God had chosen him to restore the Jewish State, and that like his biblical namesake, he had the power to allow them to march through the waters (in this case, of the Mediterranean) to return to the Promised Land.  His followers sold all their properties, packed up for the journey and followed Moses to a bluff on the coastline; he ordered them to believe, and charge off the promontory. They jumped, and of course fell into the sea and drowned. We don't know if Moses was a con-artist of some kind, or just insane; we're also not totally sure what happened to him. One account claims he too jumped into the sea and died, but the another claims that he just disappeared after the terrible events, possibly fleeing with his ill-gotten gains.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127051.jpg">
-
-11. Jim Jones, Death Toll: 923. Another famous and bloody cult-leader, Jim Jones was the leader of  "The People's Temple", and their mass-suicide was the biggest single loss of non-military American lives before 9/11. Jones was a classic megalomaniac psychopath, in some ways the very stereotype of the 'evil cult leader'.  In the 1950s he became an ardent communist, and was even personally persecuted during the McCarthey hearings.  In  the late 1950s he started the People's Temple as a charismatic church with leftist leanings (preaching what he called "Apostolic Socialism"). He was in fact a strong advocate for integration and civil rights in the 1960s; his church attracted a large number of African-Americans as a result.  But he often referred to himself as an atheist; he admitted he was using religion to try to promote a new type of Marxist society. He soon started implying to his followers that he, and not Jesus, should be seen as their Savior, and then as their God.His leftist politics earned him the praise of certain media, and of left-wing political stars of the era like Governor Jerry Brown, Harvey Milk, Walter Mondale, and then First Lady Rosalyn Carter. But when some of the dirtier aspects of his operation were starting to come out in the press, Jones moved his whole church to a commune he named "Jonestown" in Guyana, South America. He ran his sect with demands of absolute obedience, mind control, and there were credible allegations of torture. Based on reports of abuse, a congressman named Leo Ryan went to Jonestown to investigate, and he found out things that confirmed most of these claims, as well as 15 members of the sect that desperately wanted to leave.  One of Jones' followers attacked the congressman with a knife, but the attack was thwarted; the congressman decided to leave (along with the church members who wished to go with him), but Jones sent armed men to the airstrip as they were boarding their plane to murder them. Ryan and four others died. Jones then told his followers at the commune that they had to "commit revolutionary suicide" to stop American forces from coming in and killing the adults and taking the children to be brainwashed into capitalist zombies.  Church members were then made (some of them by force) to drink cyanide-laced kool-aid; Jones himself died of a self-inflicted gunshot wound. 909 people died at the commune, 304 of these were children.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127052.jpg">
-
-12. Credonia Mwerinde, Death Toll: probably over 1000. Credonia Mwerinde was a Ugandan former prostitute who founded the "Movement for the Restoration of the Ten Commandments of God". She claimed that Virgin Mary had appeared to her in a vision and told her to found her cult. The sect was an ultra-conservative pseudo-Catholic group that managed to recruit a large number of former priests and nuns, claiming an impending apocalypse and preaching religious restoration through devotion to Mary.  At their peak, they may have had as many as 5000 followers. They were based on a family farm that Credonia inherited after the mysterious death of her three brothers, who she may have poisoned one by one.  Members were expected to sell their property and possessions and give all their wealth to the cult.  Critics of the cult were attacked, their houses or farms burned down with arson attacks, and some may have been murdered. Life in the cult was extremely strict, with members who did not perform to Credonia's expectations receiving vicious beatings (and possibly worse) for their "sins".Mwerinde claimed that the apocalypse would come on January 1st, 2000. When this didn't happen, large numbers of followers began to demand their money back. Mwerinde called a meeting of disaffected followers in a church, locked them in, and set fire to the building; 738 people died. In the official investigation that followed, police found hundreds more bodies in the various compounds of cult, the victims had been stabbed, strangled and poisoned, and were likely cult members who had defied Mwerinde or attempted to leave the sect.Mwerinde did not die with her sect; she fled and has been in hiding ever since. As of this writing, she is still at large.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127053.jpg">
-
-13. Hassan Al-Sabah, Death Toll: maybe thousands. The Assassins were one of history's famous death cults. It was founded by Hassan Al-Sabah, the "old man of the mountain", who ran his sect from the mountain fortress of Alamut. His cult was properly called the "Hashshashin", and they belonged to a particular sect of Islam known as the Ismailis, a subset of Shia Islam. This is a particularly esoteric and mystical sect of Islam, and today they're known as being relatively moderate, and their modern leader (the Aga Khan) is known for his charity work and promotion of secular pluralism. But in the 11th century, the Ismailis were religious warriors engaged in a struggle with their Sunni Muslim rivals (as well as with Christian crusaders) for control of the Middle East.  The Assassins were dedicated to targeting and killing enemies of Ismailism, particularly prominent Sunni commanders, scholars, and political leaders. Legend has it that Assassins were brought into the order at a young age, trained in religious doctrine, subterfuge, combat and assassination techniques, and received special initiations that may have involved the consumption of hashish to receive visions of paradise. From his base on the mountain, the Old Man would send his assassins to terrorize and murder anyone who threatened the Ismaili cause.In fact, the Assassins outlived Hassan, and there was more than one "old man of the mountain", as the successive leaders of the order took on that title, giving the leadership of the assassins the appearance of immortality. The Assassins met their doom when they tried to murder an invading Mongol Khan; the assassination attempt failed, and the Mongols besieged the Assassin's mountain fortress, killing all those inside.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127054.jpg">
-
-14. Muhammad Ahmad: "the Mahdi", Death toll: Probably hundreds of thousands.The title "Mahdi" in Islam is similar to that of "Messiah" in Christianity or Judaism: the Mahdi is a prophesied chosen one who will rid the world of evil, and rule the world (by Islamic law) for several years before the Day of Judgment. Throughout history, there were several Islamic cults whose leader claimed to be the Mahdi or to be making way for the appearance of the Mahdi (this includes modern-day ISIS). But probably history's bloodiest Mahdi was Muhammad Ahmad.Ahmad was a 19th century claimant to that title, who rose up against the Egyptian/Ottoman authorities that ruled the Sudan at that time, and later waged war against the British interests in the region. He quickly amassed an army of 40000 faithful, originally armed only with primitive weapons, who rapidly defeated incompetent Egyptian troops and took possession of a large cache of modern guns. He went on to defeat Ottoman forces under the command of British soldiers-of-fortune. He then went up against British-controlled Sudan, where the famed General Gordon held up resistance as the Mahdi besieged Khartoum for a year.  By the time the British army sent a relief force, it was too late, they arrived only days after the city had been taken and Gordon had been killed. The Mahdi's armies kept sweeping across Sudan, taking almost all the British territory.The Mahdi's military victories, backed up by Islamic prophecies and the support of various different Islamic religious leaders in the region, made him rise to enormous fame and prestige.  Originally, the British had been reluctant to engage in full-scale war, but the heroic death of Gordon (who in the year of the siege had become a household name and popular hero to the British public) left the government no choice but to launch a major expedition to stop the "Mad Mahdi and his Dervishes". Ahmad had set up a regime in his territory based on Sharia law, but with the addendum that all Muslims in his lands had to swear allegiance to him as Mahdi, and acknowledge him (and not Islamic tradition) as the supreme judge of Islamic law.  Anyone, Muslim or not, who defied his authority was put to death.  But just six months after the capture of Khartoum, the Mahdi died of typhus, which was not very good for his image, given that the Islamic prophecies kind of depended on the Mahdi not dying. Even so, it took another 14 years for the British to decisively defeat the Mahdist forces, after which they destroyed his tomb and threw his bones into the Nile river (except for his skull, which was kept as a prize by the victorious British General Kitchener).
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127055.jpg">
-
-15. Hong Xiuquan, Death Toll: at least 20 Million. The number one winner of "bloodiest cult leader of all time" is someone most modern westerners have never heard of: Hong Xiuquan.  Hong was a 19th Century Chinese schoolteacher from a peasant family. He tried to pass the difficult Imperial exams to get a job in the bureaucracy, but when he failed he had a kind of nervous breakdown; during his breakdown he claimed to have a series of visions that put it into his head that he was the son of God and younger brother of Jesus Christ. He began to preach in his local area that God had given him a vision for the restoration of China, which involved the destruction of Confucian and Buddhist idols.  He started vandalizing local temples with his followers, wielding a huge sword he'd had specially made that he called the "Demon-Slayer Sword".  The local Imperial authorities persecuted him but he amassed a large number of followers from disaffected local peasants and ethnic minorities. In less than a decade he got about 30000 followers, and they rose up and beheaded the local Imperial governor, declaring the founding of a new "Heavenly Kingdom of Transcendent Peace", beginning what would come to be known as the Taiping Rebellion. His territory was considerable, and his army came to number half a million fanatics.  In his Kingdom, Hong outlawed opium, gave women certain rights, banned polygamy (except for Hong and his chief lieutenants) and outlawed most forms of commerce, while promoting communal land-ownership. Between the war and badly-planned communal farming policies, starvation eventually became widespread in his territory. Even so, it took 15 years for the Imperial Chinese forces to finally defeat the sect.Hong committed suicide by poison to avoid capture, and his body was burned by the authorities. Between the war, executions and starvation, the death toll of the Taiping Rebellion is estimated at around 20 million people, a level only 20th-century secular maniacs like Hitler, Stalin, and China's own Chairman Mao managed to beat.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85127056.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85160779.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85127041/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85160774/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">32 Badass Pics For Your Entertainment </a>
+## <a href="#link3" id="link2">50 Savage Memes That Speak The Truth</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377891.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225966.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377892.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225967.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377893.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225968.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377894.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225969.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377895.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225970.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377896.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225971.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377897.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225972.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377898.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225973.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377899.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225974.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377900.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225975.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377901.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225976.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377902.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225977.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377903.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225978.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377904.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225979.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377905.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225980.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377906.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225981.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377907.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225982.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377908.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225983.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377909.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225984.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377910.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225985.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377911.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225986.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377912.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225987.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377913.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225988.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377914.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225989.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377915.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225990.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377916.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225991.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377917.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225992.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377918.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225993.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377919.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225994.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377920.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225995.jpg">
 
 31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377921.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225996.jpg">
 
 32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85377922.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225997.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225998.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225999.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226000.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226002.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226003.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226004.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226005.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226006.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226007.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226008.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226009.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226010.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226011.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226012.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226013.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226014.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226015.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226016.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85377890/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85225965/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">25 Hilarious Memes That Pretty Much Sum Up 2016</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225662.png">
+## <a href="#link4" id="link3">25 Fresh Pics And Memes to Get You Out of Bed</a>
+1. Start early, end early, no hangover.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308490.jpeg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225663.png">
+2. Well they just came right out and said it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308492.jpeg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225664.jpg">
+3. Well that's some cowabunga if I've ever seen it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308494.png">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225665.jpg">
+4. We were all insane.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308495.jpeg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225666.jpg">
+5. It really takes so much energy to have energy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308498.jpeg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225667.jpg">
+6. C'mon caffeine, do your thing!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308499.jpeg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225668.jpg">
+7. That fastball was still coming out 90+ though.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308502.jpeg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225669.png">
+8. Why do you need an off-road focused Jeep when you live in the suburbs?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308503.jpeg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225670.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308504.jpeg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225671.png">
+10. It's obvious who his real true love is.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308505.png">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225672.jpg">
+11. It's in there somewhere!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308506.jpeg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225673.jpg">
+12. Still worth more than the dollar.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308507.jpeg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225674.png">
+13. You're supposed to know these things!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308508.jpeg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225675.png">
+14. Living the suburban dream.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308509.jpeg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225676.jpg">
+15. And most us still probably wouldn't look at the instructions for it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308491.jpeg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225677.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308510.jpeg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225678.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308511.jpeg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225679.png">
+18. Just look at my hair and you have the answer.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308513.jpeg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225680.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308514.jpeg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225681.jpg">
+20. You have to pay the meter.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308515.jpeg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225682.jpg">
+21. Why do what you don'y have to do?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308497.jpeg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225683.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308516.jpeg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225684.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308517.jpeg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225685.png">
+24. I want to mug whoever made that joke.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308518.jpeg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85225686.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87308519.jpeg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85225661/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87308489/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">21 Unlucky Design Fails That Will Make Your Day</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443931.jpg">
+## <a href="#link5" id="link4">19 Fascinating Photos Collected From History</a>
+1. German POWs forced to watch footage of concentration camps 1945.
+
+This forced process was part of the Allied policy of postwar denazification, meant to purge Germany of the remnants of Nazi rule and rebuild its civil society, infrastructure, and economy. The program included compulsory visits to nearby concentration camps, posters displaying dead bodies of prisoners hung in public places, and forcing German prisoners of war to view films documenting the Nazis’ treatment of “inferior” people.
+The footage came from a newsreel shown in the US that was seen by millions and millions of people at the time. Seeing is believing. Often the only thing capable of denting humanity’s monumental ability to bunker down in a state of denial is indisputable, visual evidence. When cruel things take place on a massive and institutionalized scale behind closed doors and out of sight in societies, only jarring confrontation can shatter the delusions. If the ear won’t listen, tell it to the eye.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365255.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443932.jpg">
+2. A dead U.S Marine still clutches the knife he used to kill a Japanese soldier, in the background, in a duel. He was killed by a sniper’s bullet moments later.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365256.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443933.jpg">
+3. 106-year old Armenian woman protecting her home with an AK-47, 1990
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365257.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443934.jpg">
+4. A “two penny hangover” sleeping arrangement in a Victorian poorhouse circa 1900.
+
+These shelters charged the clients different amounts depending on the amenities offered. At the low end was a penny sit-up,  where a homeless client could get food and shelter from the cold in exchange for a penny. He was allowed to sit on a bench all night, but was not allowed to sleep. For an additional penny, there was the “two penny hangover”. It was like a penny sit-up except that a rope was placed in front of the bench. The client was allowed to sleep when he leaned on (or hung over) the rope during the night. He was not allowed to lie down flat on his back and sleep. The rope was cut at daybreak in order to encourage the clients to wake up early and leave. For four pennies, a homeless client could stay at a coffin house.  He received food and shelter. Moreover, he was allowed to lie down flat on his back and sleep in a coffin shaped wooden box. A client was given a tarpaulin for covering. What made this unique is that it was the cheapest homeless shelter in London at that time that allowed its clients to lie down on their back and sleep. The Salvation Army also offered shelters that allowed its clients to sleep on a bed for a much higher price. Hence, the coffin house was popular because it offered an economical and midrange solution for homeless clients looking for relief from the cold.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365258.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443935.jpg">
+5. A Penny Sit-Up
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365259.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443936.jpg">
+6. Coffin House
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365260.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443937.jpg">
+7. A hired reader reads to cigar makers hard at work in Cuban cigar factory, ca. 1900-1910.
+
+Workers in Cuban cigar factories would employ a “Lector” who would read newspapers, political treatises and classical literature to break the monotony of the cigar-rollers’ work, so even illiterate cigar-rollers would be well-informed and familiar with great literature
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365261.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443938.jpg">
+8. American soldier poses with captured German weaponry, 1944-45.
+
+Every weapon has a signature, and using an enemy weapon can invite friendly fire. Prior to D-Day, American paratroops conducted mechanical training on German weapons (there was insufficient ammo for live fire training). With many men separated from their leg bags and weapons thanks to high-speed drops (which led to violent parachute openings), picking up a German weapon was fairly common. In the well-documented E company of the 2/506th PIR, Lt. Dick Winters briefly carried a German Mauser until he could recover an M1 from an American casualty (this is described in Steven Ambrose’s book and depicted in the TV miniseries). That had no consequences for him, but Sergeant Bill Guarnere had problems when he picked up an MG42. In his own words:
+I went looking for a gun, and found a Thompson submachine gun. I also took a German MG-42 off a dead Kraut and started shooting it, but the gun made a noise that was distinctly German. The German guns went brrrrrrrrrrt! The American guns went bap-bap-bap-bap-bap. Every time I started shooting it, the Americans started shooting at me! I got shot at by a dozen or so of our own men. I threw it the hell away. You learn fast or you get killed. I grabbed an M1 instead.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365262.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443939.jpg">
+9. A Wehrmacht veteran teaches Hitler Youth boys how to use a Panzerfaust. The badges on his sleeve represent enemy tanks destroyed.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365263.jpg">
 
-10. Asbestos Amanagement? They did asbestos they could I guess...
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443946.jpg">
+10. Ruth Lee, a hostess at a Chinese restaurant, flies a Chinese flag so she isn’t mistaken for Japanese when she sunbathes on her days off in Miami, in the wake of the attack on Pearl Harbor, Dec. 15, 1941
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365264.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443941.jpg">
+11. Annie Oakley shooting over her shoulder using a hand mirror, 1888. 
+
+Annie Oakley was an American sharpshooter and exhibition shooter. Her amazing talent first came to light when the then-15-year-old won a shooting match with traveling-show marksman Frank E. Butler (whom she married). The couple joined Buffalo Bill’s Wild West show a few years later. Oakley became a renowned international star, performing before royalty and heads of state.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365265.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443942.jpg">
+12. Annie shooting an apple off her dog’s head
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365266.jpg">
 
-13. Yeah, write it in Braille in case someone will reach that high.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443947.jpg">
+13. Masks made for men with disfigured faces from war wounds. Original caption: Mrs. Ladd coloring one of the masks after adjusting on a wounded Poilu’s face, 1917
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365267.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443943.jpg">
+14. During World War 2, the British captured Germans and put them in a bugged mansion where they served them wine and food and thus they were able to gather important intelligence from casual conversations between the ‘prisoners’ that helped them greatly win the war
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365268.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443944.jpg">
+15. The German counterpart to this probably belongs to Hanns Scharff, who was an interrogator for the Luftwaffe and specialized in questioning American pilots.
+
+Unlike many other German interrogators, Scharff avoided physical means and torture to acquire information. He instead chose mind games and played to his subjects vulnerability of desiring hope and reprieve from life as a POW. He was know for his forest walks where he’d take his prisoner on a walk and asked casual questions about the soldiers life and his day to day living. Scharff would often exchange jokes and food to build a relation with the person he desired information from so they’d be more willing to share secrets with someone they considered to be a friend in a place where peace of the mind was scarce. For those who proved reluctant to succumb to Scharff’s charm, he would conduct detailed research from Luftwaffe files to get people to be more participatory. Scharff took advantage of the Gestapo’s fearsome reputation, offering himself as the prisoners only escape from being dragged away by the infamous group. He would ask questions he already knew the answer to, if the prisoner refused to talk he’d provide the answer assuring that he already knew everything. Tricked into a false sense of security that nothing could be divulged that he already didn’t know, they’d begin to answer questions for him without his que, often unaware of the significance of what they were saying.
+After the war, Scharff emigrated to the US where he shared the secret of his craft with the military and law enforcement, and quickly were adopted by numerous governments across the world. His techniques proved revolutionary and those same tricks were later used in another high profile case decades later. In the early 2000s a lowly American FBI agent named George Piro used those same techniques proposed by Scharff to uncover the secrets of Saddam Hussein. In his several month long interogation, Saddam revealed the infamous claims that Iraq was linked to weapons of mass destruction and to Al Queda were unsubstantiated.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365269.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443945.jpg">
+16. On August 14 1945, more than 1,000 Japanese officers raided the Imperial palace to destroy the recording of the Emperor’s speech of surrender. Confused by the layout of the palace, the rebels never found the recording. It was later smuggled outside in basket of women’s underwear for broadcast
+
+The speech was probably the first time that an Emperor of Japan had spoken (albeit via a phonograph record) to the common people. It was delivered in the formal, classical Japanese that few ordinary people could easily understand. It made no direct reference to a surrender of Japan, instead stating that the government had been instructed to accept the terms of the Potsdam Declaration fully.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365270.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443948.jpg">
+17. There were enough discrepancies in famous outlaw John Dillinger’s autopsy and oddities in the events leading up to his death to suggest that the FBI killed the wrong man and simply claimed otherwise to escape embarrassment.
+
+“FBI agents claimed to have seen Dillinger reach for a weapon before he set off running into the side alleyway. The FBI even showcased in their headquarters the gun that was supposedly on Dillinger’s body the night he was killed. It turns out, however, that the small Colt semi-automatic pistol on display at the FBI was only manufactured after Dillinger’s death, making it impossible to have been the one he was allegedly carrying. Forensic analysis of the victim showed that he had stippling patterns on his neck, which is due to close range fire, and when writer Jay Robert Nash conducted his reconstruction of the crime scene in 1970 it showed that Dillinger had to have been in a prone position when he was shot. This would suggest that Dillinger was somehow tackled to the ground and was defenseless. Several physical discrepancies also existed. The scar on Dillinger’s face was not present at autopsy, which could have been the result of successful plastic surgery, but upon viewing the victim, Dillinger’s father exclaimed that it was not his son. A close up of the corpse face showed a full set of front teeth, however, it was known through various documented photographs and dental records that Dillinger was missing his front right incisor. The corpse’s brown eyes also did not match that of Dillinger, who supposedly had grey eyes. Finally, the body showed signs of certain illnesses and heart conditions that were inconsistent with prior medical records and Dillinger’s level of activity.“
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365271.jpg">
 
-18. Fap employee assist? These guys will do anything so the employees are satisfied!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443950.jpg">
+18. Oil well fire on Signal Hill, California. 1931
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365272.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/2017/08/22/105544/85444108/8c0.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443949.jpg">
-
-21. "Oh, no! She's sucking me in! HELP!"- the dress probably.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85443951.jpg">
+19. One of South Dakota’s “Black Blizzards” – 1934.
+
+In North America, the term “Dust Bowl” was first used to describe a series of dust storms that hit the prairies of Canada and the United States during the 1930s, and later to describe the area in the United States that was most affected by the storms, including western Kansas, eastern Colorado, northeastern New Mexico, and the Oklahoma and Texas panhandles.
+The “black blizzards” started in the Eastern states in 1930, affecting agriculture from Maine to Arkansas. By 1934 they had reached the Great Plains, stretching from North Dakota to Texas, and from the Mississippi River Valley to the Rocky Mountains. “The Dust Bowl” (as an area) received its name following the disastrous “Black Sunday” storm in April 1935, when reporter Robert L. Geiger referred to the region as “The Dust Bowl” in his account of the storm.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365273.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85443930/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85365254/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">18 Times Parents Were Savage AF</a>
+## <a href="#link6" id="link5">15 Images Full Of Beans That Will Make You Say WTF</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283038.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316257.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283039.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316258.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283040.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316259.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283041.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316260.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283042.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316261.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283043.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316262.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283044.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316263.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283045.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316264.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283046.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316265.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283047.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316266.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283048.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316267.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283049.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316268.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283050.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316269.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283051.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316270.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283052.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283053.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283054.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85283055.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85316271.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85283037/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85316256/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">Sadistic Artists Creates Real-Life SpongeBob And Patrick, And It's Horrifying</a>
+## <a href="#link7" id="link6">44 Funny Memes To Kick Off The Weekend</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85385153.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376438.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85385151.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376439.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85385150.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376441.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85385152.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376442.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85385148.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376443.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1015945/85385149.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376444.jpg">
+
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376445.jpg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376446.jpg">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376447.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376450.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376454.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376459.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376460.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376461.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376464.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376465.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376466.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376467.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376468.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376469.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376470.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376471.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376473.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376474.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376475.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376476.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376477.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376478.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376479.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376482.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376483.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376484.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376487.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376490.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376491.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376492.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376493.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376494.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376495.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376496.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376497.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376498.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376499.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85376500.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85385147/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85376437/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">25 Funny AF Fall Memes</a>
+## <a href="#link8" id="link7">Some Seriously Brutal Memes To End Your Week</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134814.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124080.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134815.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124082.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134816.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124087.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134817.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124088.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134818.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124081.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134819.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124094.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134820.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124096.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134821.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124097.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134822.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124098.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134823.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124099.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134824.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124102.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134834.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124103.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134826.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124104.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134813.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124105.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134827.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124106.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134828.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124107.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134829.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124108.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134830.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124109.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134832.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124112.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134833.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124115.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134835.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124111.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134836.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124089.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134837.png">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134838.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85134839.jpg">
+23. Thanks For Checking it out!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2196124/85124113.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85134812/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85124079/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">44 Random Pics And Gifs For You To Enjoy</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419429.gif">
+## <a href="#link9" id="link8">The Funniest and Most Savage Tweets of the Week </a>
+1. Anyone else here living their childhood dreams of eating ice cream before dinner and stuffing your face with all the sweets you want? No? Just us?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255386.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419430.gif">
+2. Pay them? You gotta be kidding me.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255387.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419431.jpg">
+3. Books are a real danger to society, I mean have you ever read a book? They are so boring!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255388.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419433.jpg">
+4. I'm not sure what is going on here but I like the energy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255389.jpeg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419439.jpg">
+5. LMAO, if you know you know. Only NY angels wear Timbs.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255392.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419440.jpg">
+6. Say it louder so the people in the back can hear you.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255393.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419441.jpg">
+7. Draw your sword, you dirty scoundrel.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255395.jpeg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419442.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255397.jpeg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419434.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255398.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419443.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255399.jpeg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419446.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255400.png">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419447.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255401.jpeg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419448.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255402.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419459.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255403.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419450.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255404.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419451.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255405.jpeg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419452.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255406.jpeg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419453.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255407.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419454.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255408.jpeg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419455.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255409.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419456.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255410.jpeg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419457.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255411.jpeg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419445.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255412.jpeg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419458.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255413.jpeg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419460.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255414.jpeg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419461.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255415.jpeg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419462.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419463.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419464.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419466.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419467.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419468.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419469.gif">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419470.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419471.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419472.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419473.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419474.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419475.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419476.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419477.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419478.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419479.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85419480.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87255416.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85419428/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87255385/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">12 Interesting Facts To Entertain Your Brain</a>
-1. The voice of South Park’s “Chef,” Isaac Hayes, did not personally quit the show as Stone and Parker had thought. They later found out that his Scientologist assistants resigned on his behalf after Hayes had a stroke, possibly without his knowledge, according to Hayes’ son.
-
-In a 2016 oral history of South Park in The Hollywood Reporter, Isaac Hayes III confirmed that the decision to leave the show was made by Hayes’ entourage, all of whom were ardent Scientologists. The decision was made after Hayes suffered a stroke leaving him vulnerable to outside influence and unable to make such decisions on his own
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324025.jpg">
+## <a href="#link10" id="link9">Arborist Gets Revenge On The Man Who Cut Down His 30 Year Old Tree</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85386800.jpg">
 
-2. There’s a festival in Japan called ‘Kanamara Matsuri’ or ‘festival of the steel phallus’. Legend has it a woman with a demonic vagina destroyed all this towns penis’s until a blacksmith made a steel penis that destroyed the vaginas teeth. Now once a year they celebrate everything penis like.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324026.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85386799.jpg">
 
-3. In 1994 the CEOs of the seven biggest tobacco firms testified before Congress that “nicotine was not addictive” despite overwhelming scientific evidence
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324027.png">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85386798.jpg">
 
-4. The September 11 terror attacks on the WTC released a dust cloud of toxic asbestos fibers across Manhattan. An estimated 410,000 people have been exposed. It is believed lung cancer and mesothelioma cases in the city will reach a peak in the year 2041 (four decades after 9/11)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324028.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85386797.jpg">
 
-5. In 2005, Sony used music CDs to illegally install a rootkit virus on 22 million computers; and when caught, they released an uninstaller that failed to remove the rootkit, installed further programs and illegally collected user information.
-
-Thomas Hesse, president of Sony BMG’s Global Digital Business, went on National Public Radio to say that “most people, I think, don’t even know what a rootkit is, so why should they care about it?”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324029.gif">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85386796.jpg">
 
-6. Argos, Odysseus’s dog in the works of Homer. After 20 years of waiting for Odysseus to return home, the dog is the only one to recognize him, he wags his tail and Odysseus sheds a tear, and Argos dies after meeting him one last time. 
-
-Argos was whelped and trained to be the finest hunting dog of his Lord’s estate, and just before he was old enough to go hunting with Odysseus, our hero left on his journey, only returning when Argos was too old to do aught but lift his head in recognition of his master.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324030.jpg">
-
-7. Mick Foley and Jeff Hardy agreed to donate their brains for concussion research after their deaths
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324031.png">
-
-8. A study titled “Where Are They Now?” in 1978 followed up on 515 people who were prevented from attempting suicide using the Golden Gate Bridge from 1937 to 1971. About 90% were either alive or had died of natural causes, concluding “suicidal behavior is crisis-oriented” rather than inexorable
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324032.jpg">
-
-9. There is an 87 year old woman in Japan who owns a restaurant by day and spins techno at a local club in Tokyo by night. They call her DJ Dumpling
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324033.png">
-
-10. As we age, we perceive time faster because “adulthood is accompanied by fewer and fewer memorable events” (firsts), our biological clocks slows down along with a few other affecting factors.
-
-This is why you need to take up new things as you get older. Learn how to sail, travel to new places, learn new sports, read new books, meet new people. It’s easy to get into a rut but much more rewarding to continue expanding your life experiences.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324034.jpg">
-
-11. An $80 worth of coca leaves, from a Colombian peasant, can sell for $800 as coca paste, $2,147 as pure cocaine in Colombian ports, $34,000 just over the US border, and $120,000 on the streets of New York
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324035.png">
-
-12. Mark Whalberg served 45 days for attempted murder after beating a middle-aged Vietnamese man unconscious while calling him “Vietnamese f**king sh*t”. 
-
-By age 13, Wahlberg had developed an addiction to cocaine and other substances. At 15, civil action was filed against him for his involvement in two separate incidents of harassing African-American children (the first were siblings of each other, and the second incident was a group of black school children on a field trip), by throwing rocks and shouting racial epithets. At 16, Wahlberg approached a middle-aged Vietnamese man named Thanh Lam on the street, and using a large wooden stick, knocked him unconscious while calling him a “Vietnam fucking shit”. That same day, Wahlberg also attacked a second Vietnamese man named Hoa “Johnny” Trinh, punching him in the face. He believed he had left his victim permanently blind in one eye. Trinh was interviewed in December 2014 by the Daily Mail; he revealed that he had already lost that eye during the Vietnam War, and did not know the identity of his assailant prior to being contacted by the media. According to court documents regarding these crimes, when Wahlberg was arrested later that night and returned to the scene of the first assault, he stated to police officers: “You don’t have to let him identify me, I’ll tell you now that’s the motherfucker who’s (sic) head I split open.” Investigators also noted that he “made numerous unsolicited racial statements about ‘gooks’ and ‘slant-eyed gooks’.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85324036.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85386795.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85324024/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85386794/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">21 Cringey Pics That Make Us Squirm</a>
-1. Now that fact is a real bag-slapper.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053842/87298050/cringephotos5.png">
+## <a href="#link11" id="link10">18 Memes Adding a Bit of Realism to Inspirational Quote Pics</a>
+1.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122729/87239765/dog.jpg">
 
-2. This just hurts on every single level. Nobody is innocent of the cringe.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053850/87298053/cringephotos8.png">
+2.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122730/87239770/bridge.jpg">
 
-3. Hey Elon, his offer still stands. I'm sure you're clambering to partner with a random Twitter dude.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053837/87298047/cringephotos3.png">
+3.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122731/87239771/dream.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053912/87298061/cringephotos15.png">
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122732/87239772/drown.jpg">
 
-5. You can't handle the truth!
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053841/87298049/cringephotos4.png">
+5.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122745/87239774/ferris.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053846/87298052/cringephotos7.png">
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122711/87239761/bed.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053852/87298054/cringephotos6.png">
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122747/87239776/jaw.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053857/87298055/cringephotos10.png">
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122802/87239777/lamp.jpg">
 
-9. This one hurts to read. That guy, really?
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053901/87298056/cringephotos9.png">
+9.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122813/87239778/pants.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053906/87298057/cringephotos11.png">
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122814/87239779/road.jpg">
 
-11. If everyone is special... then nobody is.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053839/87298048/cringephotos1.png">
+11.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122818/87239780/sea.jpg">
 
-12. Sounds like you didn't get hairspray actually. Although it was definitely sprayed on the hair.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053907/87298058/cringephotos13.png">
+12.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122837/87239783/stab.jpg">
 
-13. He could have just payed her the money normally if he wanted her to have it so bad.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053844/87298051/cringephotos2.png">
+13.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122838/87239784/tape.jpg">
 
-14. I think I actually have a pretty good idea of what this one is capable of.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053910/87298059/cringephotos12.png">
+14.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/123719/87239822/elbow.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053911/87298060/cringephotos14.png">
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122839/87239785/water.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053917/87298062/cringephotos16.png">
+<img src="https://cdn.ebaumsworld.com/2022/08/11/122842/87239786/spine.jpg">
 
-17. But how can they all be the alpha if they're together at the same convention?
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053918/87298063/cringephotos17.png">
+17.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/123717/87239820/car.jpg">
 
-18. We need school for whoever just made this.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053926/87298064/cringephotos19.png">
-
-19. Father and daughter tattoo.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053927/87298065/cringephotos18.png">
-
-20.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053929/87298066/cringephotos20.png">
-
-21.
-<img src="https://cdn.ebaumsworld.com/2022/11/01/053930/87298067/cringephotos21.png">
+18.
+<img src="https://cdn.ebaumsworld.com/2022/08/11/123718/87239821/sit.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87298046/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87239748/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
