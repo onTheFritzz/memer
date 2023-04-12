@@ -1,1220 +1,873 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 04.12.2023-01:45:18<br>All credits to ebaumsworld.com
+Last Updated 04.12.2023-04:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">14 Roasts That Are Downright Brutal</a>
+## <a href="#link1" id="link0">38 Awkward Thanksgiving Fails To Make You Feel Better</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445419.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198723.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445420.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198724.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445421.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198725.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445422.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198726.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445423.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198727.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445424.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198729.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445425.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198730.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445426.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198731.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445427.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198732.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445428.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198728.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445429.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198733.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445430.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198734.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445431.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198735.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85445432.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198736.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198737.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198738.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198739.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198740.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198741.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198742.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198743.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198744.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198745.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198746.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198747.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198748.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198749.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198750.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198751.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198752.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198753.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198754.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198755.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198756.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198757.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198758.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85198759.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85445418/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85198722/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">31 of the Best Memes To Make You Laugh</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225889.jpg">
+## <a href="#link2" id="link1">13 Interesting Facts For Your Day</a>
+1. Elvis Presley once asked his limo driver, “Do you own this limo or do you work for the company?” He responded, “I work for the company.” Elvis said “Well, you own it now.” The limo driver’s tip was the limo.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036722.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225890.png">
+2. A man created an armored bulldozer in secret, and used it to exact revenge on a town before killing himself. It cost the town $7M in damages.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036723.png">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225891.jpg">
+3. More United States troops have died from suicide than have been killed in Afghanistan since 2001.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036724.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225892.jpg">
+4. Julian Lennon had to buy the letters he wrote to his father (John Lennon) at an auction, because Yoko Ono wouldn’t give them to him.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036725.png">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225893.jpg">
+5. Squirrels plant thousands of new trees each year simply by forgetting where they put their acorns.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036726.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225894.jpg">
+6. Dr. Yoni Freedhoff, an assistant professor at the University of Ottawa, was dropped from delivering a speech on “what the food industry could do to improve public health” – because he exposed the deceptive marketing used by top brands. So he released it on YouTube and got 300,000 views.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036727.png">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225895.jpg">
+7. Indianapolis has a volunteer program called ‘no one dies alone’ (NODA). Their volunteers keep a continuous bedside vigil for dying people who do not have family members to visit them.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036728.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225896.png">
+8. Mick Foley became a fan of Tori Amos in 1993. After meeting her in 2008, he got involved in a group she started to aid abused women. He has volunteered extensively, fielding calls from women in difficult circumstances, and logged over 550 hours on the phone over an 18-month period.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036729.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225897.jpg">
+9. Conservationists in South Africa are infusing a special red dye into the horns of live rhinos. The mixture renders the horn completely useless to poachers trying to sell it commercially, and is also toxic for human consumption.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036730.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225898.jpg">
+10. There was a Jewish boxer named Salamo Arouch imprisoned at Auschwitz. He was forced to fight fellow prisoners. The losers were sent to the gas chambers or shot. He survived more than 2 years and 200 fights, eventually being released when the camp was liberated.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036731.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225899.jpg">
+11. A cat named Artful Dodger, regularly catches the bus by himself in his hometown of Bridport, UK. He waits at the station for the bus to arrive, and travels the 10 mile round trip to neighboring Charmouth so often, that the drivers bring in tins of cat food and know what stop to let him off at.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036732.png">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225900.png">
+12. North Korean dictator Kim Jong Un was elected with 100% of the votes. The ballot listed only him. Citizens are allowed to cross out his name and write in a new one, but they must step outside the election booth to do so, and write down the new name in front of election officials.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036733.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225902.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225901.png">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225903.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225904.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225905.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225906.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225907.png">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225908.png">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225909.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225910.png">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225911.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225912.png">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225913.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225914.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225915.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225916.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225917.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225918.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85225919.jpg">
+13. Arnold Schwarzenegger used to participate in orgies with other bodybuilders in the 70’s as “having chicks around is the kind of thing that breaks up the intense training .. afterward you go back to the serious stuff.” He was anti-homophobic, claiming that gays and bodybuilders faced stereotyping.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85036734.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85225888/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85036721/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">41 Savage Memes That Will Give You Guilty Pleasure</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371537.jpg">
+## <a href="#link3" id="link2">21 Celebrities That Went Broke For Dumb Reasons </a>
+1. Terrell Owens.
+T.O. could have one of the NFL’s most endearing stars, but instead, he’s now on the outside trying to find his way back in. For over 15 years, he was known for his lavish touchdown celebrations and made more than $80 Million.
+Now, he’s got very little to show for it. Between child support payments, numerous fines and some bad investments, he’s broke. His biggest mistake was investing in a large entertainment complex in Alabama that was not only illegal in the state, it violated the NFL’s policy on players investing in gambling. That mistake cleaned him (and numerous other NFL players) out. He should have checked the rules first.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339981.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051129/85393510/17.png">
+2. Mischa Barton.
+From her creepy turn in The Sixth Sense as the girl under the bed, to her breakout role in The O.C., Barton was going to go places. But like her contemporaries – Lindsay Lohan, Nicole Richie and Paris Hilton, she lost her mind to drugs, alcohol and weed.
+After some DUI’s, being hospitalized in a psychiatric ward and general irresponsibility, she blew the rest of her money on a false accusation against her mom and manger for mismanagement of funds, and lost everything.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339982.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051156/85393512/15.jpg">
+3. Toni Braxton.
+Anyone else remember her from their 90’s childhood? I do. Despite the fact that she was huge once upon a time, making $170 Million, she ended up with a mere $1,972 from all her record sales.
+Ever hear of the term ‘Debt Millionaire?’ It’s when a record label gives you millions in advance of your next record, then the next and the next and when the record sells, the label gets paid back. Braxton spent her money on designer clothes, jewelry, homes, etc.. but stopped producing hits. She ended up spending money that wasn’t hers, and in the end, went broke.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339983.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051455/85393526/1.jpg">
+4. Gary Coleman.
+Known for his role on Diff’rent Strokes, in real life, he wasn’t the cute and genial guy he portrayed. The show helped him amass $18 Million, but at his death, he only had $75K to his name, something that he attributed to a misappropriation of funds by his adoptive parents and financial advisors when he was a minor. He was awarded a settlement of $1.2 Million, and never spoke to them again.
+On top of all that, once his acting career dried up, Coleman had a series of legal battles due to issues with fans and domestic abuse, on top of his medical problems and mounting medical bills.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339984.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371547.jpg">
+5. Mark Twain.
+Known for his writing talents, he’s the reason we got The Adventures of Tom Sawyer and The Adventures of Huckleberry Finn to read in grade school. Although this books gave him a fair fortune to lay with, he wasn’t the smartest of businessmen.
+He lost most of his fortune in failed inventions, including investing close to $300,000 ($6 Million in today’s dollars) on a product known as the Paige Compositor, which was supposed to be automated type-setting machine, but was error prone and kept on breaking. He lost everything, including his trademark wit, and died penniless at 59.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339987.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371549.jpg">
+6. Scott Storch.
+I’ve never heard of the guy, but I’ve heard stuff he’s produced. Storch is a music producer, known for coming up with the iconic piano riff from Dr. Dre’s “Still D.R.E” and writing Fat Joe’s “Lean Back” and was once worth $70 Million. At one point he was producing songs for Beyonce, Justin Timberlake and Christina Aguilera, but threw it all away once he found the magical white powder called cocaine.
+His most notable achievement is spending close to $30 Million on cocaine in less than 6 months, and also gave Lindsay Lohan jewelry worth $1 Million as a PR Stunt. Now he’s declared bankruptcy and has been in and out of rehab.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339988.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051117/85393509/18.jpg">
+7. Courtney Love.
+When her husband, Kurt Cobain, committed suicide in 1994, Love inherited a $150 Million fortune as a part of his stake in Nirvana. She ended up selling those publishing rights ($27 Million worth) to pay off several lawsuits, most notably a Twitter defamation suit.
+Back in 2009, she was in a battle with a fashion designer, over a spat about a $4K price for clothing. That spiralled into a twitter rant that cost her $430,000 to settle out of court. Then she said some things on The Howard Stern Show, and was forced to pay another $350,000.
+Then she tweeted out that her former attorney was bought off through the whole Twitter defamation trial, and was sued for millions by the lawyer.
+Best to not say anything at all on Twitter.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339989.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371551.jpg">
+8. Leif Garrett.
+Back in the 70’s, Leif Garrett was that decade’s version of the Biebs and One Direction – as in girls wanted inside his tight pants desperately. But of course, it went to his head and he started on the drugs.
+After blowing his fortune on cocaine, heroin and marijuana, he got sucked into Scientology, which took the rest of his money. On top of that, he’s had multiple arrests for possession and even ended up paralyzing his best friend in the 80’s after driving under the influence and having to agree to a million dollar settlement in court.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339990.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371556.jpg">
+9. Thomas Jefferson.
+I bet it’s surprising to find America’s third president on this list, but he did make some boneheaded moves. Even though he was one of the principle authors of the Declaration of Independence, and was relatively popular in his time, he died poor and miserable, with creditors howling at the door.
+You see, Jefferson loved expensive wines that could only be imported from France. He also had the habit of constantly renovating his home. Living his life with the mantra of “There’s no tomorrow,” he did things and spent money not worrying about the future and one day woke up to find he had no cash left.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339985.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371545.jpg">
+10. Janice Dickinson.
+Dickinson was probably one of the hottest models in the 80’s and was credited with being the first supermodel. But as age happens and we try to stay relevant, Janice tried too hard to keep herself looking young, ending up with a $1 Million plastic surgery debt, and looking like a strange hybrid of Steven Tyler and a cat. While she’s still got an active fashion photography career and running her own modelling agency, she’s still trying to get out her hole.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339986.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371561.jpg">
+11. Marvin Gaye.
+In the mid-70’s, Marvin Gaye had an impressive fortune to his name, thanks to almost 70 hit songs that he had written and performed. Even though he was super talented, he wasn’t very good at tracking his spending habits and ended up living beyond his means, and racked up a huge debt.
+This was all on the down low, until he was ordered to court to record a new album and give all the royalties to his ex-wife Anna Gordy as alimony for their divorce in 1977. That album ended up with dismal sales and he ended up owing what the court and label thought the royalties should have been, and not what they were.
+Ironically enough, they remained friends.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339994.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371557.jpg">
+12. Pamela Anderson.
+It should come as no surprise, but Pamela Anderson doesn’t make the best choices in life. Sure, she made it big on Baywatch and her multiple Playboy appearances, but other than that, things haven’t gone well financially for her.
+She’s had issues with the IRS and the State of California for unpaid taxes, she’s had heavily contested divorces and most of all, she spent money like it was going out of style on the dumbest things, like drugs, Tommy Lee and most of all, she once spent $3 Million on tiling a pool in platinum, for a house she wasn’t planning to live in.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339993.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371559.jpg">
+13. Dave Foley.
+At the height of his career, Dave Foley had it all. He was on Kids In The Hall and NewsRadio, not to mention tons of voice work. He used to claim that in his heyday he’d throw parties that made the Playboy mansion look boring, so there’s that.
+What cleaned him out, however, was the lack of a steady gig. When NewsRadio was cancelled, he hit hard times and couldn’t pay child support for his wife and kids, which amounted to $10K a month. By 2011 he owed $500,000 in child support and is legally barred from coming home to Canada, or else he’d be arrested. Yikes.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339995.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051015/85393504/23.png">
+14. MC Hammer.
+Growing up in the 90’s, you couldn’t miss MC Hammer. Can’t Touch This was on the radio, his trademark pants were in the stores and he even had a Saturday morning cartoon called Hammerman. The man was a legend, and he lost it all due to overspending.
+At one time, he had a staff of 200 people in his $30 Million mansion, had an entourage of 40 people and spent $500,000 a month to support them all. On top of that, he owned 19 thoroughbred racehorses, 2 private helicopters, a private jet, a Lambo, a stretch limo and gold plated gates to his house. Took no time to run out.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339999.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371562.jpg">
+15. Antoine Walker.
+Walker was a three-time, all-star power forward for the Boston Celtics and Miami Heat and had a pretty decent career, that netted him $108 Million. Then he blew it all on gambling, cars and a personal wizard.
+Within two years of retirement he started buying homes in Chicago, filling them with expensive cars and racking up a gambling debt of $822K. Now, he doesn’t have a car and lives on a modest salary as a NBA analyst for an internet sports channel.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339996.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371564.jpg">
+16. Sinbad.
+It’s probably not too surprising that Sinbad went broke. I mean, he didn’t have the best taste in films. Movies like Goodburger, First Kid & Jingle All the Way weren’t examples of great movies. But that’s not why he went broke.
+Sinbad ended up filing for bankruptcy twice, once in 2009 and once again in 2013, due to his messed up lending habits. He’d invest and give money to people he didn’t even recognize, then he wouldn’t pay is personal income tax. At one point, he ended up owing the IRS $2.5 Million dollars.
+There’s no profit in being a nice guy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339991.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371565.jpg">
+17. Dennis Rodman.
+Like most professional athletes, this Hall of Famer lost his fortune to overspending, gambling and his flashy lifestyle, not to mention child support payments and multiple divorces (prenups are the worst sometimes). If you had all of these issues, you’d be deep in debt too. But that’s not the clincher.
+We all know Rodman for his flamboyant style choices, and the thing is, he really dropped a lot of coin on his piercings. All of them are high carat gold, jewels and precious metals.
+Dude really wanted the best stuff for his nips, navel and god-knows what else.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339992.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371569.jpg">
+18. Allen Iverson.
+This 11-time NBA all-star reportedly earned over $160 Million in salary alone, and that doesn’t take into account his endorsements from Reebok ($50 Million), and other sources. It took only 3 years to get rid of it all.
+There’s the usual reasons, gambling, flashy cars, strip clubs and houses, what he hated most was luggage. He never carried any, and just bought himself and his entire entourage whatever they needed, wherever they were. Now, as a super talented athlete, he spend half his year on the road, and the other half partying, so it adds up. He also spent $10K a month on groceries and another $10K on restaurants. Who was eating all that food?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339997.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051027/85393505/22.png">
+19. Michael Jackson.
+The King of Pop once had the most lucrative recording contract in the world. By 1991, it seemed like he had more cash than he, his kids, their kids and their grandkids couldn’t even spend it. But somehow, he did. Estimates vary around how much he was worth, but it’s somewhere between $750 Million and $1 Billion. Between all of his records, shows, endorsements and his ownership of The Beatles catalogue, he was supposedly set.
+But when he died, he died in incredible debt – close to $500 Million. On top of his plastic surgery, love of drugs and his other legal troubles, what really drained his account was his irresistible love of crazy projects, from the Neverland Ranch to a theme park for cows.
+The irony was that at the time of his death, he had a plan to get out of debt, and since then his estate’s been amassing close to $8 Million dollars a year.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85339998.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051041/85393506/21.png">
+20. Mike Tyson.
+The story of Mike Tyson has the makings of a great movie; dude rises up from poverty in the ghettos of NYC to become the worlds youngest heavyweight champion at the age of 20. As one of the most famous boxers of all time, he raked in a fortune of more than $400 Million. Then he found a way to lose it all.
+Between 1986 and 2006, he was arrested over 38 times for pretty much everything. Throw on to that his costly divorces, alimony and his bite of Holyfield’s ear, and you’re looking at legal fees in excess of $20 Million. Then there’s the personal stuff.
+At one point, he had 110 cars, bought a $2 Million bathtub for a hook-up, owned 3 white Bengal tigers, and had a crazy mansion for just him. Maybe the tub was a hair too much.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85340000.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051053/85393507/20.png">
-
-22.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051105/85393508/19.png">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371541.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371539.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371546.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051143/85393511/16.png">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371536.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051207/85393513/14.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85371542.png">
-
-30.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051222/85393514/13.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051236/85393515/12.png">
-
-32.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051249/85393516/11.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051301/85393517/10.png">
-
-34.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051314/85393518/9.png">
-
-35.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051327/85393519/8.png">
-
-36.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051339/85393520/7.png">
-
-37.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051351/85393521/6.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051403/85393522/5.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051417/85393523/4.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051429/85393524/3.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/2017/06/28/051441/85393525/2.jpg">
+21. Nicholas Cage.
+Then there’s this gem. I actually enjoy Cage’s acting and most will maintain that he’s still one hell of a talented actor. But it’s no secret that he’s found a way to blow a $150 Million fortune and make it look easy.
+At one point, he was earning $40 Million a year, but he was addicted to insane purchases. For example, he owns tons of properties around the world – castles, houses, islands, but he’s never spent a night in some, or any, of them. He also has a private jet to fly off to those locations at a whim. Then there’s the super creepy stuff.
+In his lifetime, he’s purchased two albino king cobras, pygmy shrunken heads, a pyramid tombstone, an octopus, a crocodile, a shark, a haunted mansion, a comic book collection worth over $1.6 Million and even bought a 67-million -year old dinosaur skull, that cost him some serious cash when it was discovered that it was a black market purchase.
+But man, is he entertaining.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85340001.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85371534/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85339980/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">20 Cool Things People Found While Using Metal Detectors</a>
-1. I've found a meteorite in Kansas. There is an area outside of Greensburg that is known to have had a meteor explode in the air before hitting the earth and dozens of smaller fragments are scattered over many miles. They are very deep and a lot of work to dig up, but my dad and I dug a 7 foot hole and extracted a nearly 30 pound stony-iron pallasite meteorite, which is worth nearly $2,000 a pound.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257740.jpg">
+## <a href="#link4" id="link3">37 Fantastic Photos That Will Surely Pique Your Interest</a>
+1. When you boss asks you to come in early:
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354893.jpg">
 
-2. My buddy and I bought metal detectors during lockdown and went to the local lake to hunt. I s**t you not he found a silver grill. Not a barbeque, a set of silver teeth in the sand of the local beach. We quit metal detecting right then and there lol
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257750.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354870.jpg">
 
-3. Literally only did it once with a friend when I was a teenager at a beach with a friend (he and his dad were really into it). We found a $20k watch in 1995 dollars. Wasn’t a Rolex, but can’t remember the maker. We took it to a jeweler who made a few calls and found out it was in a registry and the owner was called. He was elated as it was a gift from his wife. He sent us each a check for $1,000. The jeweler gave us each a bitchin fake gold chain on the spot. Jean shorts and high tops need the perfect neck accessory and we got it!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257739.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354871.jpg">
 
-4. I have found quite a few musketballs! Someone clearly did lots of shooting on our land back in the day
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257753.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354869.jpg">
 
-5. Some German metal detecting / WWII enthusiasts actually found pieces of my grandfather’s B-24 Liberator that he was shot down in. They were able to ID the plane by its serial numbers. Miraculously, my uncle was on the same forum they were posting their finds on and connected. They sent my grandfather the pieces of his plane.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257741.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354864.jpg">
 
-6. Not my thing, but my brother was detecting just downstream from a popular swimming hole on the American River in California a couple of years ago, looking for dropped watches, phones, go pros, etc. Got a hit, flipped a rock, and found an 11.5-ounce gold nugget underneath. Miners tore the hell out of those rivers back in the 1849 Gold Rush, and amateurs have been panning it ever since, so it was pretty freaking incredible to find something that big.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257743.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354879.jpg">
 
-7. Bit of a cheat as was working a site on a uni course in Northern England. Discovered the end of a Roman Dagger and a relatively intact boot replete with nails. Also found a beautiful fragment of a glass bangle; beautiful turquoise blue glass with a bright yellow wave pattern painted on it. Fellow student found and urn full of silver coins. Jammy git.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257742.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354865.jpg">
 
-8. Work on a farm - a metal detector found a coin under a tree which was 600 years old and in almost perfect condition- as if it had fallen out of someone's pocket as they sat and had lunch after planting the tree.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257744.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354892.jpg">
 
-9. Found an old roman coin, they're are a ton of them so not very valuable, but as someone who loves roman history its really cool
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257745.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354867.jpg">
 
-10. 15 years ago, me and my siblings found a bomb from World War II in the Belgian Ardennes, using a $30 toy metal detector.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257746.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354877.jpg">
 
-I remember walking off-road in the woods for hours until we found a spot that looked like nobody has been there in ages. We quickly found a couple of bullets and, while I was inspecting the bullets, my younger brother age 9 saw something sticking out of the dirt.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257747.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354868.jpg">
 
-At first, we thought it was a rusty metal can, but when he pulled it out, it took us a moment to realize that he was holding a bomb. We didn’t know whether it was still intact so I instructed him to slowly put it down in a way that it could not roll off the hill and hit something.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257748.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354872.jpg">
 
-We didn’t have any mobile phones so we rushed to the nearest road which we followed to get to a village to get help. We marked the trees so we would remember where we had hidden the bomb.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257749.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354876.jpg">
 
-When we arrived at the village, we explained what happened. Luckily, they believed our story and called the local police. When he arrived, we couldn’t understand a word he said (he was speaking French, we only spoke Dutch) — but eventually he would follow us deep into the woods.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257751.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354873.jpg">
 
-When we arrived, the bomb was luckily still there, and after an inspection by the police officer we were instructed to leave as apparently it was too dangerous and had to be picked up by the bomb squad — but not before we snapped a picture for the local press, posing with the bomb next to us. I still have that picture.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257752.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354878.jpg">
 
-11. I found a blacksmith’s shop in the middle of a farmers field. I was detecting for a historical society and their local expert told me to detect a certain spot that he calculated where the blacksmith shop would be. I did a 10x10 foot area with only finding small pieces of slag. I wasn’t convinced that the shop was there, but the expert wouldn’t have it. While everyone took a break at noon. I started a spiral pattern going farther and farther from his calculations. About 30 minutes later and 100 feet away, I got good strong signals and large slag pieces. I even found a single clay brick. One of the society members started an excavation at my spot. They eventually hit the corner of the shops foundation. They found a hammer and tools for the anvil and the rest of the blacksmith shop.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257754.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354880.jpg">
 
-12. A few weeks ago I was driving on a country road near my house. There was a car pulled over to the side and a young couple was walking around obviously looking for something. I stopped and asked if they needed help. The girl told me, "We were arguing and I threw a ring out of the window." Seeing the guy was beyond pissed, I told them good luck and I drove off. A few days later I got to thinking to borrow a metal detector from a friend who is into that. Went back and searched for about an hour, getting ready to call it quits when I found the ring. Sadly, I have no idea who the couple was and just hope they are OK now.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257755.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354882.jpg">
 
-13. I took a metal detector to my grandparents’ garden when I was 10 and found some Civil War canister shot. Goddamned if it didn’t get lost in a move a few years later. Never found anything as cool as that since then.
-
-To make up for that, I spent the next ten years poring over war-era battle maps showing the positions of each regiment and battery over the course of a particular major battle that basically crisscrossed the whole area, comparing with modern topo maps, doing serious deep dives into primary sources, etc. Eventually, I figured out the exact hill the grapeshot had likely been fired from, and the side that fired it.
-
-I’m glad I got to experience finding it, at least, even though it got lost. It played a big role in my turning into a big history nerd early on.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257738.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354889.jpg">
 
-14. I used to live near the railroad tracks near an airport and an old industrial area. They used to have a local station for the workers to shuttle into the area (late 1800's, early 1900's). They eventually tore down the station in the 30's/40's when the highways got built nearby.
-My dad used to take me with metal detectors and we would find railroad spikes, pocket watches, wrist watches, old silver
-​dollars and other coins. Best haul by far was a gold locket with a picture of someone's wife/girlfriend ensribed "All My Love, Annie". It wasn't the prettiest locket, but you bet your bottom dollar someone was kicking themselves for losing that precious treasure.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257756.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354881.jpg">
 
-15. Usually just found lose change people lost at the beach. However, I did have to go find a diamond ring once. Wife of a friend who was currently deployed CLAIMS she lost it while at the beach with her GIRLFRIENDS. It took me a day, but I was able to find it. She was appreciative. It wasn't until he got back that I found out that she lost it because she was taking it off while dating other men. I hated her ever since for playing me like that.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87257757.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354883.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354884.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354885.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354886.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354890.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354888.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354891.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354875.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354894.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354895.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354896.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354897.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354898.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354899.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354900.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354901.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354902.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85354903.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87257737/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85354863/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">The Best Twitter Reactions To Last Nights Episode Of Game Of Thrones</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418031.jpg">
+## <a href="#link5" id="link4">This Girl’s Brag On Facebook Ended Up Costing Her Family $80,000</a>
+1. Most social media users are aware that the things you post can come back to haunt you. They don't disappear, and they're difficult to take back, as anyone who's posted sensitive information or an inflammatory opinion knows.But in the instance of Dana Snay and her family, her bragging on social media (standard behavior for many kids her age) ended up having very real effects that cost her family a staggering amount of money.
+
+See how her questionable judgment became a legal matter below…
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202400.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418017.jpg">
+2. These are Dana's parents. Her dad was the headmaster at a prestigious prep school (Gulliver Prep) in Miami, and wanted to continue to work until the age of 69, but the school decided not to renew his contract.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202401.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418020.jpg">
+3. He sued the school, claiming that the decision was based on his age, which is illegal. The courts agreed and awarded him not only an $80,000 payout, but an additional $60,000 for his attorney and $10,000 in back pay.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202402.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418018.jpg">
+4. His daughter, Dana, had attended Gulliver herself and attended Boston College after graduating.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202403.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418021.jpg">
+5. She was an accomplished student, but what she did as a result of the settlement demonstrates a certain shortsightedness that many kids have. Only this decision would have effects more profound than most.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202404.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418023.jpg">
+6. Included in the father's award was a confidentiality clause, which keeps both parties from publicly disclosing the terms of the awards, settlement or transaction. It's pretty standard language that keeps a private dispute from becoming public, even after it's resolved.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202405.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418027.jpg">
+7. Mr. Snay was aware of the terms of the settlement and abided by them. That included even the general outcome of the dispute, not just dollar amounts.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202406.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418024.jpg">
+8. It's not clear if Dana was familiar with the language in the settlement. One would assume she wasn't, because what she did next was a pretty clear violation of the terms. She took to Facebook and bluntly posted on her wall, "Mama and Papa Snay won the case against Gulliver."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202407.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418025.jpg">
+9. As though that wasn't flagrant enough, she cracked a joke about the settlement paying for her trip to Europe. Not exactly smart or classy, but kids do these types of things. She posted, "Gulliver is now officially paying for my vacation to Europe this summer. SUCK IT."It didn’t take long for the school’s lawyers to learn that she was discussing things that she was legally bound from discussing.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202408.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418016.jpg">
+10. The court didn't hesitate to reverse the decision after what they deemed to be a clear breach of the terms. The judge of the case wrote, "His daughter then did precisely what the confidentiality agreement was designed to prevent."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202409.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418026.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418032.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418019.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418028.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418029.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418030.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418034.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418022.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418033.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418035.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418036.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418043.gif">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418037.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418038.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418039.gif">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418041.gif">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418040.gif">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418042.gif">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85418044.gif">
+11. So with a couple innocuous (if not tasteless) online comments, the Snay family was out their entire settlement. Fortunately, he's found new employment, but that surely didn't stop the fallout from his daughter's thoughtless comments from stinging!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85202410.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85418015/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85202399/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">34 Hilarious Snapchats Of Kids That Prove They're The Absolute Best</a>
+## <a href="#link6" id="link5">24 Pics and Images That Are Technically the Truth</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240960.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051112/87257538/TNW6.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240961.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051122/87257545/TNW12.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240962.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051104/87257534/TNW1.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240963.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051106/87257535/TNW2.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240964.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051108/87257536/TNW3.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240967.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051110/87257537/TNW5.png">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240965.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051115/87257540/TNW8.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240966.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051117/87257541/TNW4.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240968.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051138/87257556/TNW23.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240969.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051118/87257542/TNW9.png">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240959.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051139/87257557/TNW24.png">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240971.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051119/87257543/TNW10.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240977.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051121/87257544/TNW11.png">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240974.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051124/87257546/TNW13.png">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240978.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051114/87257539/TNW7.png">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240976.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051125/87257547/TNW14.png">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240975.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051127/87257548/TNW15.png">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240970.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051128/87257549/TNW16.png">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240973.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051130/87257550/TNW18.png">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240972.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051131/87257551/TNW17.png">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240979.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051133/87257552/TNW20.png">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240980.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051134/87257553/TNW19.png">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240981.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051136/87257554/TNW22.png">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240982.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240988.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240983.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240984.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240985.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240986.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240987.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240989.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240990.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240991.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85240992.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/08/26/051137/87257555/TNW21.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85240958/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87257533/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">36 Hysterical Pics and Gifs to Provide You With Side-Splitting Laughter</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181240.jpg">
+## <a href="#link7" id="link6">30 Of The Strangest Things People Found On Their Property</a>
+1. Gravestones - A woman found old headstones from the 1800's underneath her stepping stones in her backyard while she was gardening.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285579.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181241.jpg">
+2. Old Coin - An interesting old coin that someone found in their backyard while cutting grass.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285580.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181242.gif">
+3. Treasure Trove - Andreas K. from Wiener Neustadt, Austria found a treasure-trove of 650-year-old jewels while digging to expand a small pond in his backyard. It contained over 200 rings, brooches, ornate belt buckles, gold-plated silver plates and other pieces or fragments.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285581.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181243.gif">
+4. The Long Lost Audio Tapes of Martin Luther King, Jr. - Steven Tull found audio tapes of a conversation between his father and Martin Luther King, Jr. It turns out his father interviewed King in 1960 for a book about the Civil Rights movement that never came out.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285582.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181244.jpg">
+5. Golf Ball - An interesting golf ball from 1899 dug up and found in the Bronx. Perhaps once upon a time it was actually white.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285583.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181245.jpg">
+6. A Live Korean Missile - A couple in St. Francis, Wisconsin found a live 20-inch-long Korean missile with a 5-inch explosive head inside of their bathroom wall while they were remodeling. The couple carefully carried the missile outside and left it there for the bomb squad to detonate. The neighbors claimed that the home's previous owner was a man that served in both World War II and the Korean War.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285584.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181246.jpg">
+7.  A Masive Gold Nugget - A man from California used a metal detector in his backyard to find a 8.2 pound lump of gold in 2011. He was able to sell the gold at an auction for $460,000 but remained anonymous so that no one would go digging around for gold on his property. Geologists claimed there was a 100% chance that there's more gold on that land.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285585.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181247.jpg">
+8. A $5 Million Figurine - A random figurine of a former Russian czar was found in someone's home that ended up being worth $5 million at an auction.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285586.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181248.jpg">
+9. 400 Year Old Church Bells. - A man from Czech Republic found two large church bells while he was digging up dirt in his backyard to install pipes. He later found out that the bells were actually stolen 11 years prior from a church nearby.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285587.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181249.jpg">
+10. Cheetah - A nine-year-old boy from Hamerton, Cambridgeshire, U.K., found a cheetah in his house's garden. The predator had actually broke free from a nearby animal sanctuary.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285588.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181250.png">
+11. Fully Equiped Bomb Shelter - Chris and Colleen Otcasek bought a house in California that had a fallout shelter in the backyard. It turns out the shelter was a time capsule built in 1961 during the Cold War by nuclear engineer Alvin Kaufman.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285589.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181251.jpg">
+12. Hidden Safe - A couple found a bottle of bourbon from 1960, a copy of the book "A Guide for the Perplexed" by E.F. Schumacher, and $51,080 in a 50-year-old safe that was hidden in behind their kitchen wall.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285590.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181252.jpg">
+13. Mummy - Ten-year-old Alexander Kettler discovered a mummy in his grandmother's attic. The mummy was encased inside a sarcophagus with hieroglyphic adornments. It was actually obtained by Kettler's grandfather as a souvenir from a trip to North Africa in the 1950's. The mummy was taken to a hospital in Hamburg, Germany for testing to find out whether or not it's a real mummy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285591.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181253.gif">
+14. 200 Pound Alligator - The massive alligator was found in someone's basement. If I saw that thing in my home, I'd run out the door screaming and never come back.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285592.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181254.gif">
+15. Van Gogh Painting - A very fortunate Norwegian family found an unsigned Van Gogh painting in their attic. If you found such a painting, would you keep it or sell it?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285593.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181255.jpg">
+16. A Hidden Kitchen For Servants - An entire servants' kitchen was found in a home's basement. The home was in the family for generations but the kitchen had been hidden behind a door behind a bunch of old junk.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285594.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181256.jpg">
+17. A $175,000 Comic - After a wall was demolished in a home, a copy of the first issue of Action Comics was found. It ended up selling for $175,000 later at an auction.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285595.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181257.gif">
+18. Creepy Ancient Chapel - A family found an ancient chapel underneath their house. Depending on your perspective, this chapel could come off either terrifyingly creepy or amazing.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285596.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181258.jpg">
+19. The Head of a King - A journalist found the head of King Henry IV (dead since 1610) in the attic of dead notorious French tax collector, Jacques Bellanger, after he heard rumors that Bellanger collected and kept odd things.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285597.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181259.jpg">
+20. A Stolen Stradivarius - The violin (worth $5 million) was found and recovered in an attic thanks to a tip from a local weapons shop. The violin was originally stolen from top first violinist for the Milwaukee Symphony Orchestra, Frank Almond, by an assailant with a taser gun.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285598.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181260.gif">
+21. WWII Tank - A wealthy German man in the suburb of Heikendorf, was found to own several WWII arms, including a WWII-era Panzer tank (tucked away in his basement), German cannon and torpedo.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285599.jpg">
 
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181261.png">
+22. Creepy Well - A well was found at the bottom of someone's home. Who knows what's at the bottom of the creepy thing!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285600.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181262.jpg">
+23. Rare Mural - A mural by Keith Haring in the seventies was found in a home. It turns out that the home used to be a property of the Visual School of Art in Manhattan when Haring painted the mural.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285601.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181263.jpg">
+24. Nazi Christmas Decorations - These disgusting Nazi ornaments were found, some displaying the swastika others in the literal shape of Hitler's head.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285602.jpg">
 
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181264.gif">
+25. Stuffed Cat - A stuffed cat was found in an attic. From afar, it looks like a real live cat but up close it's possibly one of the scariest things I've ever seen.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285603.jpg">
 
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181265.jpg">
+26. Baby Photo - Not sure if that kid is possessed or what, but you have to admit that is a creepy baby photo.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285604.jpg">
 
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181266.gif">
+27. Grim Reaper - A grim reaper costume was already put together and set up when it was found in a home. Makes you wonder what the previous home owners were into.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285605.jpg">
 
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181267.png">
+28. Dead Chickens Stuffed Into Walls - The Bretzius family found chicken carcasses stuffed in their walls in Pennsylvania. A local historian proposed that the dead chickens were perhaps a part of some "Dutch magic" that was used to heal ailments and remove evil spirits. Clearing out the chickens for the Bretzius, however, was the real nightmare as it cost them about $20,000 and several years to finish the task.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285606.jpg">
 
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181268.jpg">
+29. Gold Bars - The heir to a property in Normandy was in for a treat once he moved into his new land. He found a hidden treasure of gold coins, bars, and ingots inside the house. He ended up selling it all for over $3.5 million.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285607.jpg">
 
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181269.png">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181270.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181271.png">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181272.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181273.png">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181274.png">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2406856/85181275.gif">
+30. 400 Barrels Of Toxic Waste - In February 2017, a man in Ontario discovered 400 barrels of toxic waste hidden behind the walls on his property. He had originally only discovered 400, but found an extra 400 barrels after knocking down the wall (making a total of 800 found barrels). John Currie, the building's past owner, was known for inappropriate waste disposal when he operated a tar product business there.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85285608.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85181239/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85285578/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">25 Hilarious Parents Who Have Mastered The Art Of Trolling</a>
+## <a href="#link8" id="link7">28 Fails, Facepalms, and People That Will Make You Cringe</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050947.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156671.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050948.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156672.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050949.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156673.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050950.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156674.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050951.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156675.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050952.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156676.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050953.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156680.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050954.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156678.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050957.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156679.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050955.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156682.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050956.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156683.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050958.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156684.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050959.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156685.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050960.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156686.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050961.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156687.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050962.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156688.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050963.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156689.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050964.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156690.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050965.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156694.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050966.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156695.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050967.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156696.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050968.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156697.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050969.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156698.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050970.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156699.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85050971.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156700.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156701.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156704.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85156705.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85050946/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85156670/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">50 Nifty Pics for Your Daily Dose of Randoms</a>
+## <a href="#link9" id="link8">Girl Has Vibrator Surgically Removed From Her Ass</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111431/87264866/87264129.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85155944.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262934.jpg">
-
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262941.jpg">
-
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262939.jpg">
-
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262980.jpg">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262944.jpg">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262945.jpg">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262946.jpg">
-
-9.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111430/87264865/87264126.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111443/87264875/87264567.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262948.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111438/87264872/87264164.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262949.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262950.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262951.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262952.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262955.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262936.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262943.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262958.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262960.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262961.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262962.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262966.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262967.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262968.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262969.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262970.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262973.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262974.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262975.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262978.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262981.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262982.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262983.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111420/87264859/87263836.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111422/87264860/87263821.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111424/87264861/87263838.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111425/87264862/87263848.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111427/87264863/87263849.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111428/87264864/87263864.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111432/87264867/87263820.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111433/87264868/87264137.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111434/87264869/87264152.jpg">
-
-45.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111435/87264870/87264163.jpg">
-
-46.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111437/87264871/87264172.jpg">
-
-47.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111439/87264873/87264539.jpg">
-
-48.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87262937.jpg">
-
-49.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111441/87264874/87264560.jpg">
-
-50.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111444/87264876/87264557.jpg">
-
-51.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111445/87264877/87264577.jpg">
-
-52.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111446/87264878/87264571.jpg">
-
-53.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111448/87264879/87264736.jpg">
-
-54.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111453/87264880/87264735.jpg">
-
-55.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111454/87264881/87264748.jpg">
-
-56.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111455/87264882/87264740.jpg">
-
-57.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111456/87264883/87264761.jpg">
-
-58.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111458/87264884/87264768.jpg">
-
-59.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111500/87264885/87264773.jpg">
-
-60.
-<img src="https://cdn.ebaumsworld.com/2022/09/07/111502/87264886/87264762.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85155943.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87262933/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85155942/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">52 Awesome Random Pics To Help Begin Your Day</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307346.jpg">
+## <a href="#link10" id="link9">30 Charts Filled With Random Knowledge</a>
+1. Different Electrical Outlets Per Countries
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224141.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307347.jpg">
+2. How to pack your backpack efficiently.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224140.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307348.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224142.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307349.jpg">
+4. Most Popular Tourist Scams To Avoid When Traveling
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224143.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307350.jpg">
+5. AKA Europe's (mostly) cool with ding-dong-ditching.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224144.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307351.jpg">
+6. A handy checklist so you don't have to facepalm halfway to the airport.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224145.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307352.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224146.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307353.jpg">
+8. Backpacking Tip
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224147.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307357.jpg">
+9. Never presume.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224148.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307354.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224149.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307358.jpg">
+11. The Essential Travel Guide To Rome
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224150.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307359.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224151.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307360.jpg">
+13. A quick guide on where the tap water's mostly okay. Just make sure you trust the local pipes too.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224152.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307361.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224153.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307362.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224154.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307363.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224155.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307364.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224156.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307365.jpg">
+18. Canadian Travel Advisory Country Safety Ratings
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224157.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307366.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224158.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307367.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224159.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307368.jpg">
+21. A hyper-specific guide to enjoying Paris.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224160.jpg">
 
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307369.jpg">
+22. A solid checklist to keep in mind.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224161.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307370.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224162.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307371.jpg">
+24. Regions Considered Safe To Travel To By The French Ministry Of Foreign Affairs
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224163.jpg">
 
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307372.jpg">
+25. Which Side Of The Road Should You Drive On In Each Country?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224164.jpg">
 
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307373.jpg">
+26. The cheat-sheet to a better flying experience.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224165.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307374.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224166.jpg">
 
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307375.jpg">
+28. The Eurovelo Is A Net Of Cycleways With More Than 70000 Kilometres Of Extension Which Crosses The Whole European Continent
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224167.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307376.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224168.jpg">
 
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307377.png">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307378.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307379.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307380.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307381.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307382.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307383.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307385.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307386.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307387.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307388.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307389.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307390.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307391.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307392.jpg">
-
-45.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307393.jpg">
-
-46.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307394.jpg">
-
-47.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307395.jpg">
-
-48.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307396.jpg">
-
-49.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307397.jpg">
-
-50.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307398.jpg">
-
-51.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307399.jpg">
-
-52. 5 star the hypnotoads!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85307400.jpg">
+30. A guide to staying green on the road for eco-minded travelers.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87224169.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85307345/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87224139/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">Craigslist Has Some Crazy Shit Happen On It</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410860.jpg">
+## <a href="#link11" id="link10">Artist Giles Clement Uses 19th Century Technique To Create Awesome Portraits</a>
+1. Giles Clement uses actual equipment from 19th century. The photos take some time but are clearly unique.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241104.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410865.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241105.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410866.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241106.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410867.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241107.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410869.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241108.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410870.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241109.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410871.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241110.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410868.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241111.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410872.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241112.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410877.jpg">
+10. Wouldn't you love to have such a photo?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85241113.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410873.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410874.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410875.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410876.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410879.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410880.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410878.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410881.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410882.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410884.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410883.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410885.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410886.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410887.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410889.jpg">
-
-26. 4 Page Bonus Post!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410861.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410890.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410891.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410892.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410888.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410862.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410863.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85410864.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/01/15/052347/85241344/85241112.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85410859/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85241103/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
