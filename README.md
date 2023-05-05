@@ -1,812 +1,1158 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 05.04.2023-19:45:18<br>All credits to ebaumsworld.com
+Last Updated 05.04.2023-22:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">19 Killer Facts About John Wick</a>
+## <a href="#link1" id="link0">16 Amazing Tattoos That Are Living Works Of Art</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336378.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430697.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336379.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430685.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336380.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430686.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336382.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430694.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336385.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430690.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336386.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430687.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336390.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430688.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336381.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430691.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336387.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430684.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336384.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430683.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336383.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430689.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336388.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430695.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336389.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430682.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336391.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430693.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336392.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85430696.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336393.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336394.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336395.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2453621/85336396.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/08/07/111332/85430740/T44.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85336377/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85430680/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">Guy Leaves Incredible Amazon Review For Stun Gun</a>
+## <a href="#link2" id="link1">37 Instances Of Exceptional Cosplayers </a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2421030/85292276.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455304.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2421030/85292277.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455305.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2421030/85292278.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455306.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2421030/85292279.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455307.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2421030/85292280.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455308.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2421030/85292281.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455309.png">
+
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455310.png">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455311.png">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455312.png">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455313.png">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455314.png">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455315.png">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455316.png">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455317.png">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455318.png">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455319.png">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455320.png">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455321.png">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455322.png">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455323.png">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455324.png">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455325.png">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455326.png">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455327.png">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455328.png">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455329.png">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455330.png">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455331.png">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455332.png">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455333.png">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455334.png">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455335.png">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455336.png">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455337.png">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455338.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455339.png">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85455340.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85292275/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85455303/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">22 WTF Pictures That Will Ruin Your Weekend</a>
+## <a href="#link3" id="link2">50 Dankest Memes Of The Week</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2017/06/24/115414/85390171/84535096.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322342.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2017/06/24/115437/85390173/84535101.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322343.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2017/06/24/115514/85390176/84535110.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322344.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2017/06/24/122950/85390178/ada.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322345.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389946.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322346.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/2017/06/24/115502/85390175/84535108.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322347.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389970.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322348.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/2017/06/24/115526/85390177/84535116.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322349.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389967.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322350.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389945.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322351.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/2017/06/24/115425/85390172/84535098.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322353.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389952.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322354.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389950.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322352.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/2017/06/24/115449/85390174/84535105.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322355.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389953.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322356.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389954.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322357.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389956.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322358.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389958.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322359.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389961.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322360.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389965.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322361.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389944.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322362.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85389973.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322363.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322364.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322365.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322366.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322367.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322368.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322369.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322370.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322371.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322372.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322373.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322374.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322375.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322376.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322377.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322378.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322379.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322380.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322381.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322382.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322383.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322384.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322385.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322386.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322387.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322388.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322389.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322390.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85322391.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85389943/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85322341/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">14 Choice PC Gamer Memes That Will Make You Laugh</a>
+## <a href="#link4" id="link3">33 Prime "Only In Russia" pics</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187849.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234332.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187850.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234333.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187851.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234335.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187852.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234336.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187855.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234337.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187853.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234338.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187854.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234339.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187856.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234340.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187857.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234342.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187858.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234343.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187860.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234345.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187859.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234346.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187861.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234347.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85187862.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234348.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234344.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234350.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234349.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234351.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234352.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234353.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234354.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234355.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234361.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234356.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234357.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234358.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234360.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234362.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234363.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234364.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234365.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234366.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85234367.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85187848/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85234330/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">Fantastic Friday Photos To Get You Through The Day</a>
+## <a href="#link5" id="link4">31 Great Pics And Memes to Improve Your Mood</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105635/85233831/85233561.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235131.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233513.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235132.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105611/85233829/85233544.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235133.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233504.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235134.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105520/85233825/85233266.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235135.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233505.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235136.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105533/85233826/85233540.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235137.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233506.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235138.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105546/85233827/85233541.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235139.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233507.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235140.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233509.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235141.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233511.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235142.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105558/85233828/85233543.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235143.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233502.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235144.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233517.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235145.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233518.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235146.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105433/85233821/85233260.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235147.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233520.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235148.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233521.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235149.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233526.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235150.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233527.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235151.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233524.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235152.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105507/85233824/85233265.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235153.png">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233528.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235154.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233529.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235155.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233530.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235156.png">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233533.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235157.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233535.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235158.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233536.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235159.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105445/85233822/85233261.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235160.jpg">
 
 31.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105455/85233823/85233262.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/2017/01/06/105623/85233830/85233549.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85233503.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85235161.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85233501/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85235130/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">10 Childhood Crushes Of The 80's Then And Now</a>
-1. Winnie Cooper from The Wonder Years (Danica McKellar)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269584.jpg">
+## <a href="#link6" id="link5"> A Super-Sized Hump Day Gallery That Will Brighten Your Day</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254905.jpg">
 
-2. Danica Mckellar Now (age 39)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269585.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113502/85255361/FjXnaWB.jpg">
 
-3. Punky Brewster (Soleil Moon Frye)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269576.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254911.jpg">
 
-4. Soleil Moon Frye Now (age 38)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269577.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113545/85255364/ISKNzPrg.jpg">
 
-5. Lisa from Weird Science (Kelly LeBrock)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269578.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254899.jpg">
 
-6. Kelly LeBrock Now (age 54)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269579.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113450/85255360/FBkVV4Z.jpg">
 
-7. The Childlike Empress from The Never Ending Story (Tami Stronach)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269580.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254924.png">
 
-8. Tami Stronach Now (age 42)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269581.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254898.jpg">
 
-9. Linda from Fast Times At Ridgemont High (Phoebe Cates)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269582.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113612/85255366/lxx6YUWg.jpg">
 
-10. Phoebe Cates Now (age 51)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269583.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/115918/85255381/pic_093_clean_790.jpg">
 
-11. Darlene from Head of the Class (Robin Givens)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269588.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254901.jpg">
 
-12. Robin Givens Now (age 49)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269589.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113336/85255354/2H2wsr7.jpg">
 
-13. Samantha from Who's The Boss? (Alyssa Milano)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269586.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254902.jpg">
 
-14. Alyssa Milano Now (age 41)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269587.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254903.jpg">
 
-15. Lainie from Dream a Little Dream (Meredith Salenger)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269590.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254893.jpg">
 
-16. Meredith Salenger Now (age 44)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269591.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113514/85255362/g32geSu.jpg">
 
-17. Ferrari Girl from National Lampoon's Vacation (Christie Brinkley)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269592.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254904.jpg">
 
-18. Christie Brinkley Now (age 60)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269593.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254894.gif">
 
-19. Lydia from Beetlejuice (Winona Ryder)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269594.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254906.jpg">
 
-20. Winona Ryder Now (age 42)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/697157/84269595.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254908.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254910.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254912.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254913.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254914.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254915.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254917.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254892.png">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254919.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113348/85255355/3ygYeND.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254920.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254923.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254895.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113400/85255356/4CcxxOm.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113414/85255357/aAXIzlhg.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113426/85255358/cLQiofn.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85254900.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113438/85255359/eYFSAM9.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113531/85255363/hyWh8KO.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113558/85255365/lFevZIb.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113633/85255367/qMSwyNR.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113646/85255368/RMm4BGn.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113659/85255369/sQ21ieM.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113712/85255370/u8JKPuM.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113724/85255371/utl52EH.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113738/85255372/ZBhngGf.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/113750/85255373/ZvoYCSM.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/115846/85255378/85254786.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/115856/85255379/85254789.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/115907/85255380/85254795.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/2017/02/01/121755/85255383/GOldz.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/84269575/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85254891/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">33 Fascinating Photos to Tickle Your Curiosity </a>
-1. Men in Black (1997) – All the work that goes into capturing a shot of Will Smith sitting on a bench.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213652.jpg">
+## <a href="#link7" id="link6">50 Savage Memes That Speak The Truth</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225966.jpg">
 
-2. Glastonbury Festival 2022, 220,000 thousand attendees
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213653.png">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225967.jpg">
 
-3. Cool Design For A Handrail
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213654.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225968.jpg">
 
-4. La cueva de las manos (Cave of hands) Artist unknown 8000 B.C.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213655.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225969.jpg">
 
-5. Lake Mead 1983 vs 2021
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213656.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225970.jpg">
 
-6. This is where queen Elizabeth II will be buried
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213657.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225971.jpg">
 
-7. Jeff Bezos riding Space Mountain alone
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213658.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225972.jpg">
 
-8. Gas Prices In Beverly Hills, CA
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213659.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225973.jpg">
 
-9. Swimmer being rescued by her coach after fainting
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213660.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225974.jpg">
 
-10. Identical twin brothers Josh and Jeremy married identical twin sisters Brittany and Briana. Both couples gave birth to male babies at the same time. Although technically they are cousins, children are genetically brothers. It gets weirder: both families live together in the same house.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213661.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225975.jpg">
 
-11. Anna Nicole Smith marrying her 89 year old husband in 1994, who would die the next year
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213662.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225976.jpg">
 
-12. Cloudflare has a wall full of lava lamps they feed into a camera as a way to generate randomness to create cryptographic keys
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213664.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225977.jpg">
 
-13. MLM losses
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213665.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225978.jpg">
 
-14. “Possum observing at my wife’s lab, Australia.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213666.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225979.jpg">
 
-15. Over $2 Million Dollars Worth Of Crypto Locked Inside A Celsius Account With No Way To Withdraw
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213651.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225980.jpg">
 
-16. “This newborn fawn was left by its mother next to my wife’s freshly bloomed peonies!”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213667.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225981.jpg">
 
-17. “A stranger noticed that my wife and I have a cat art wall and left us a new piece.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213668.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225982.jpg">
 
-18. “This carpet is all alligators.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213669.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225983.jpg">
 
-19. “All the different colors in gumtree leaves during the winter in Australia.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213670.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225984.jpg">
 
-20. “In that case, I won’t have 2 slices, I think I’ll just have 1 slice twice.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213671.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225985.jpg">
 
-21. “My hotel room floor is made of eye floaters.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213672.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225986.jpg">
 
-22. “My cousin’s Samurai sword shift knob.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213673.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225987.jpg">
 
-23. “I found a pink grasshopper.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213674.jpg">
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225988.jpg">
 
-24. “The parking lines at this dentist’s office in Dublin are toothbrushes with some toothpaste.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213675.jpg">
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225989.jpg">
 
-25. “This rose flower grew inside out.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213676.jpg">
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225990.jpg">
 
-26. The state of the housing market in LA. A tent in someone’s backyard for $600/mo
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213663.jpg">
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225991.jpg">
 
-27. “The birds used zip ties to help build a nest.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213677.jpg">
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225992.jpg">
 
-28. “My local pastry shop misspelled donut on their boxes.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213678.jpg">
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225993.jpg">
 
-29. “The way this railing’s shadow perfectly zigzags on the stairs.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213679.jpg">
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225994.jpg">
 
-30. “I’m in the ER at night and this oximeter is making my hand look like E.T.’s.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213680.jpg">
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225995.jpg">
 
-31. “There was a peacock standing on the roof of my neighbor’s mini-van.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213681.jpg">
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225996.jpg">
 
-32. “My toothpaste has ‘love’ listed as an additional ingredient.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213682.jpg">
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225997.jpg">
 
-33. “The phenomenon known as the running tree in Bulgaria.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87213683.jpg">
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225998.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85225999.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226000.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226002.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226003.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226004.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226005.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226006.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226007.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226008.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226009.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226010.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226011.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226012.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226013.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226014.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226015.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85226016.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87213650/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85225965/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">A Day In The Life Of A Porn Movie Shoot</a>
+## <a href="#link8" id="link7">41 Great  Memes To Get You Through The Day</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376161.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303753.jpg">
 
-2. 9 a.m.: The crew starts unloading film equipment at a rented home in the Valley, where most adult content is made for the entire world.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376159.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303754.jpg">
 
-3. Adult performers Briana Banks and Melissa Moore
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376160.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303755.png">
 
-4. 9:15 am: Two makeup artists (who also work in fashion and mainstream films) work on the actresses. This is Reena Sky, who will be playing the role of "Step-Mother."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376162.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303756.jpg">
 
-5. 9:20 a.m.: Briana Banks is getting her hair done. Hair and makeup for adult shoots takes as much time as for any other production — that is, a lot.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376163.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303757.png">
 
-6. 9:25 a.m.: While the makeup artists work on Reena and Briana, newcomer Melissa Moore waits for her turn in the chair.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376164.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303758.jpg">
 
-7. 10 a.m.: The crew has finished placing lights in what's going to be the main set (of several) for this shoot: the bedroom.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376165.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303759.jpg">
 
-8. 10:30 a.m.: While Melissa is getting her makeup done, director Alan decides to do "Pretty Girls" with Briana. That's is the industry term for glamour stills that are used as slideshows and to promote the videos. Since this is the first time Briana has worked with Girlsway, Alan decides to get her Pretty Girls out of the way.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376166.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303760.jpg">
 
-9. 10:45 a.m.: Alan takes Briana to the bedroom to shoot her in a variety of sexy poses.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376167.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303761.jpg">
 
-10. 10:45 a.m.: Since this shoot involves MILFs but none of the actresses is married, Alan has brought a variety of prop wedding rings for them to wear as part of their costumes.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376168.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303763.png">
 
-11. 10:45 a.m.: Briana's character is a conservative wife — this was one of the details included in the members' fantasies, to which Girlsway pays close attention.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376169.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303764.jpg">
 
-12. 10:50 a.m.: Alan and Briana continue with the Pretty Girls shoot.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376170.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303765.jpg">
 
-13. 10:55 a.m.: Briana's Pretty Girls shoot continues.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376171.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303766.jpg">
 
-14. 11 a.m.: Briana's Pretty Girls shoot
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376173.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303767.jpg">
 
-15. 11:05 a.m.: Briana's Pretty Girls shoot
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376172.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303768.png">
 
-16. 11:05 a.m.: Briana's Pretty Girls shoot
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376174.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303769.jpg">
 
-17. 11:10 a.m.: Briana's Pretty Girls shoot
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376175.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303770.jpg">
 
-18. 11:30 am: While Alan and Briana are wrapping up the Pretty Girls in the bedroom set upstairs, the makeup artist has started working on 20-year-old Melissa Moore, a fast-rising newcomer starlet in the industry.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376176.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303772.jpg">
 
-19. 11:45 a.m.: Meanwhile, a crew member is outside interviewing Reena Sky for "extras" that Girlsway includes with its video content. These interviews are identical to the extra material that is shot for mainstream productions for DVD use.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376177.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303773.jpg">
 
-20. 12:15 p.m.: Melissa Moore is almost done with her hair and makeup.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376178.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303774.jpg">
 
-21. 12:30 pm: Melissa Moore is now made up for camera. She's still wearing her street-clothes. Both Reena Sky and Melissa Moore are Mexican-American, but they don't necessarily play those roles when they're performing.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376179.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303775.jpg">
 
-22. 12:45 p.m.: Reena is waiting for Alan and the crew to finish setting up cameras and lights. The kitchen of the rented home serves as a center of operations.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376180.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303777.jpg">
 
-23. 12:45 p.m.: The production assistant has procured a lot of snacks for the cast and crew. A lot of sugar was consumed on-set, with straight-from-the-box cereal being a popular choice.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376181.jpg">
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303778.jpg">
 
-24. 1 p.m.: Briana has decided on this blue dress to play the conservative nosy neighbor. The actresses brought their own wardrobe for this production, and they offered Alan several choices.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376182.jpg">
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303779.png">
 
-25. 1:05 p.m.: Alan begins telling the actresses about the script they are going to shoot, their characters and the specific things they can and cannot say. Since this is a Step-Mother/Step-Daughter fantasy, he is very precise about when the characters should refer to each other as "stepmother" and "stepdaughter" (at first, to establish the relationship) versus "mom" and "daughter" (the rest of the time).
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376183.jpg">
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303780.png">
 
-26. 1:10 p.m.: Melissa has decided on the Step-Daughter costume.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376184.jpg">
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303781.jpg">
 
-27. 1:15 p.m.: Alan and his director of photography, Craven Moorehead, explain the setups to the actresses. Moorehead is a former adult performer who has transitioned to a behind-the-camera role, and he's being groomed by Alan to begin directing projects for Girlsway.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376185.jpg">
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303782.jpg">
 
-28. 1:20 p.m.: Melissa packs away the alternative choices for her costume
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376186.jpg">
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303783.jpg">
 
-29. 1:30 p.m.: Today's stars: Briana Banks, Melissa Moore and Reena Sky.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376187.jpg">
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303784.jpg">
 
-30. 1:35 p.m.: Alan is splitting duties with Craven. While Alan will shoot some exteriors of Briana as the nosy neighbor snooping around the house, Craven will go with Melissa in her car to shoot the Step-Daughter's arrival at her Step-Mother's house from college.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376188.jpg">
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303785.jpg">
 
-31. 1:50 p.m.: While Craven and Melissa are out shooting the arrival scene, a crew member shoots Briana being interviewed for the extra content.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376189.jpg">
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303786.jpg">
 
-32. 2:10 p.m.: The provisional title for this set of scenes is "The Peeper," as the clapper points out. Jokes about "clapper" and "who's got the clap?" are part of the workplace humor that everyone uses throughout the day to fend off on-set boredom.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376190.jpg">
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303787.jpg">
 
-33. 2:!5 p.m.: Reena has decided to wear lingerie and a robe, which would make disrobing easier later in the bedroom.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376191.jpg">
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303788.jpg">
 
-34. 2:25 p.m.: Melissa and Reena begin getting comfortable with each other. This will be their first makeout scene.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376192.jpg">
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303789.png">
 
-35. 2:30 p.m.: Melissa and Reena goof around and play with each other before the cameras are ready to roll.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376193.jpg">
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303790.jpg">
 
-36. 2:40 p.m.: Alan gives the actresses some last notes.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376194.jpg">
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303791.jpg">
 
-37. 2:50 p.m.: While the crew moves the cameras and lights outside for countershots, Reena takes some selfies for social media. The actresses run their own social media and have to keep posting content for demanding fans.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376195.jpg">
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303792.jpg">
 
-38. 3 p.m.: This is the day's first moment of intimacy being shot on video. Cast and crew have been on set since 9 a.m.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376196.jpg">
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303793.jpg">
 
-39. 3:15 p.m.: Starlet Tiffany Watson has arrived and starts getting in makeup. She will shoot a later scene with Briana. The scene is scheduled for after 5 p.m. but won't start shooting until much later. Briana, who's in all the scenes being shot today, will have an extremely long workday. "And tomorrow morning at 10 I'm doing anal," she tells us. Briana is working extra hard on her comeback to prove to the industry that she's still a bankable star.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376197.jpg">
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303794.jpg">
 
-40. 3:30 p.m. : More problems with the reflections. They're everywhere.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376198.jpg">
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303795.jpg">
 
-41. 3:35 p.m.: Finally, Alan is getting the shot he wanted.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376199.png">
-
-42. 3:45 p.m.: A little break between takes.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376200.png">
-
-43. 4 p.m.: Meanwhile, the makeup artist is putting the finishing touches on Tiffany Watson. She will then have to sit around for a couple of hours in full makeup until the previous scene is completed.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376201.jpg">
-
-44. 4 .p.m: The makeup artist touches up Reena after her bathroom tryst.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376202.jpg">
-
-45. 4:05 p.m.: Oops — Alan had forgotten to give Reena her "wedding ring." Hopefully this won't distract continuity freaks watching the bathroom scene.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376203.jpg">
-
-46. 4:05 p.m.: A newly "married" Reena gets her potassium on.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376204.jpg">
-
-47. 4:10 p.m.: Alan shoots a variety of "plot" setups, with the Step-Mother and Step-Daughter miming expressions when found by the disapproving Neighbor.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376205.gif">
-
-48. 4:10 p.m.: "Why, I'm shocked at all the lesbianism in this neighborhood..."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376206.gif">
-
-49. 4:15 p.m.: The actresses getting direction
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376207.png">
-
-50. 4:30 p.m.: Alan makes some adjustments.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376208.gif">
-
-51. 4:40 p.m.: OK, time to shoot the sex scene for real. (Reminder: Everyone's been here since 9 a.m.). Melissa puts her costume back on. Everyone rests for a minute. The sex scene will be shot in real time, with no cuts.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376209.jpg">
-
-52. 4:45 p.m.: Reena and Melissa begin having sex. Briana is out of the frame, still snooping.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376210.jpg">
-
-53. 4:50 p.m.: Briana comes in and... cut! Alan steps in to remind the actresses that a) they shouldn't say anything that would make the fantasy illegal or inappropriate due to the age of Melissa's character, b) they should talk about "Mom" and "Daughter" without saying "Step" more than necessary, and c) when they turn Briana on to lesbianism, Briana should present some resistance but NEVER say "no" or "stop," which would make the scene rapey. "Oh — I really shouldn't do this! It's so wrong!," on the other hand, is OK.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376211.gif">
-
-54. 4:55 p.m.: "Oh — I really shouldn't do this! It's so wrong!"
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376212.gif">
-
-55. 5:20 p.m.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376213.jpg">
-
-56. 5:30 p.m.: And it's a wrap!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376214.gif">
-
-57. 5:45 p.m.: Are we punching the clock yet? It's been a long day. Time to hit the shower and go home or go party. Tomorrow? Another day, another scene. That's the way it is in the world capital of adult dreams, the Valley.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85376215.gif">
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2165744/85303796.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85376158/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85303752/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">13 Funny Memes On The Rough Side Of Comedy </a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193549.jpg">
+## <a href="#link9" id="link8">20 Most Valuable Trading Cards in Their Own Arena</a>
+1. 1952 Mickey Mantle - $12.6 million.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033228/87264426/mick.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193552.jpg">
+2. Yu-Gi-Oh! Black Luster Soldier Stainless Steel - $10 million.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/035657/87264439/yugioh.png">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193554.jpg">
+3. 1909 Honus Wagner - $6.9 million.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033219/87264419/honus.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193555.jpg">
+4. 2003 LeBron James Rookie Patch & Autograph - $5.4 million.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033223/87264422/lebron.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193559.jpg">
+5. Pokémon Pikachu Illustrator - $5.275 million.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033231/87264428/pikachu.png">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193561.jpg">
+6. 2018 Luka Dončić Autograph - $4.6 million.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033222/87264421/luka.png">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193562.jpg">
+7. 2009 Mike Trout Draft Picks Autograph - $4.1 million.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033236/87264431/trout.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193566.jpg">
+8. 2000 Tom Brady Rookie Ticket Autograph - $2.25 millon.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033238/87264432/tom.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193567.jpg">
+9. 1997 Kobe Bryant Green Precious Metal Gems - $2 million.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033220/87264420/kobe.png">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193569.jpg">
+10. 1979 Wayne Gretzky Rookie - $1.29 million.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033239/87264433/wayne.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193570.jpg">
+11. 2017 Patrick Mahomes Rookie Patch & Autograph - $840,000.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033227/87264425/mahomes.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193571.jpg">
+12. 1993 Magic the Gathering Black Lotus Autographed Alpha - $511,100.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033224/87264423/magic.png">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/917335/85193572.jpg">
+13. 1999 Pokémon First Edition Shadowless Holographic Charizard $420,000.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033215/87264416/charizard.png">
+
+14. Pokémon Blastoise Commissioned Presentation Galaxy Star Hologram - $360,000.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033218/87264418/blastoise.jpg">
+
+15. 2001 Tiger Woods Rookie Autograph - $336,000.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033235/87264430/tiger.jpg">
+
+16. 1966 Bobby Orr Rookie - $205,000.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033213/87264415/bobby.jpg">
+
+17. 1965 Joe Namath Rookie - $150,000.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/035450/87264438/joe.jpg">
+
+18. Magic the Gathering Ancestral Recall Alpha and Beta - $20,000.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033226/87264424/magic3.jpg">
+
+19. Magic the Gathering Mox Sapphire Alpha - $18,000.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033233/87264429/magic2.png">
+
+20. Final Fantasy TCG Tifa Full Art - $1,668.
+<img src="https://cdn.ebaumsworld.com/2022/09/06/033216/87264417/finalfantasy.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85193548/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87264414/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">5 of The Most Hated People On The Internet</a>
-1. Anita Sarkeesian hosts a channel called "Feminist Frequency". The problem people have with her is her vids contain gross misinformation. The biggest being her post on video games, where she includes a section on "Hitman: Absolution". She argues that games like Hitman cater to sexless nerds by allowing them to beat and murder prostitutes and gain points for hiding or disposing of their bodies. Except Hitman's system deducts points for your killing of innocent people. Sarkeesian also shuts off the comment and rating system for her uploads and began a kickstarter campaign in which she raked in over $160,000 with no word on why she wanted the money or what she plans to do with it.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329812.jpg">
+## <a href="#link10" id="link9">19 Fascinating Photos Collected From History</a>
+1. German POWs forced to watch footage of concentration camps 1945.
+
+This forced process was part of the Allied policy of postwar denazification, meant to purge Germany of the remnants of Nazi rule and rebuild its civil society, infrastructure, and economy. The program included compulsory visits to nearby concentration camps, posters displaying dead bodies of prisoners hung in public places, and forcing German prisoners of war to view films documenting the Nazis’ treatment of “inferior” people.
+The footage came from a newsreel shown in the US that was seen by millions and millions of people at the time. Seeing is believing. Often the only thing capable of denting humanity’s monumental ability to bunker down in a state of denial is indisputable, visual evidence. When cruel things take place on a massive and institutionalized scale behind closed doors and out of sight in societies, only jarring confrontation can shatter the delusions. If the ear won’t listen, tell it to the eye.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365255.jpg">
 
-2. LionMaker is the name of a user specializing in Minecraft vids and other content for children. He has amassed millions of viewers and followers of his content - until the mother of one young Minecraft player reported that LionMaker requested nude photos from her child. LionMaker immediately responded his "account/computer was hacked". The mother did not believe him, seeing as how his Twitter account also included shady messages bragging about sex with a 15-year-old. Then, another 15-year-old boy reported that LionMaker offered him $500 for nude photos. LionMaker now disables all comments and ratings while continuing to post.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329815.jpg">
+2. A dead U.S Marine still clutches the knife he used to kill a Japanese soldier, in the background, in a duel. He was killed by a sniper’s bullet moments later.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365256.jpg">
 
-3. These two assholes created a channel involving reaction videos, such as "Kids React", "Teens React", "Old People React", etc. It went all fine until they decided to actually copyright those terms, their format, and even the word "React". This would bar anyone from using those titles or descriptions on their own uploaded videos unless they either paid the Fine brothers 50% for every use or 60% of any ad revenue they earned from their videos. Youtube and Reddit didn't like the idea of two guys attempting to lay claim to words or formats that were around long before their channel existed, so the Fine brothers lost over half of their subscribers and had to issue an apology.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329814.jpg">
+3. 106-year old Armenian woman protecting her home with an AK-47, 1990
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365257.jpg">
 
-4. Roosh V and his group promote "neo-masculinity", with his videos espousing hateful views on women, including the idea rape should be legal and female worth should solely be based on fertility or attraction. For a self-proclaimed model of male virtue, he sure is a pussy. All his attempts at meet-ups are quickly canceled, since he and his subscribers become fearful of retaliation and refuse to gather in public.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329813.jpg">
+4. A “two penny hangover” sleeping arrangement in a Victorian poorhouse circa 1900.
+
+These shelters charged the clients different amounts depending on the amenities offered. At the low end was a penny sit-up,  where a homeless client could get food and shelter from the cold in exchange for a penny. He was allowed to sit on a bench all night, but was not allowed to sleep. For an additional penny, there was the “two penny hangover”. It was like a penny sit-up except that a rope was placed in front of the bench. The client was allowed to sleep when he leaned on (or hung over) the rope during the night. He was not allowed to lie down flat on his back and sleep. The rope was cut at daybreak in order to encourage the clients to wake up early and leave. For four pennies, a homeless client could stay at a coffin house.  He received food and shelter. Moreover, he was allowed to lie down flat on his back and sleep in a coffin shaped wooden box. A client was given a tarpaulin for covering. What made this unique is that it was the cheapest homeless shelter in London at that time that allowed its clients to lie down on their back and sleep. The Salvation Army also offered shelters that allowed its clients to sleep on a bed for a much higher price. Hence, the coffin house was popular because it offered an economical and midrange solution for homeless clients looking for relief from the cold.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365258.jpg">
 
-5. Martin Shkreli is the king of assholes. He purchased the rights to a drug called Daraprim, used in the treatment of both adult HIV patients and infants. Daraprim was originally $13.50 a script. Thanks to Shkreli, the cost is now $750 a pill. He was arrested on securities fraud, but easily made bail. Then he purchased the rights to Wu Tang Clan's "Once Upon a Time in Shaolin", which pissed off GhostFace Killa. But neither Killa, nor the FDA with Daraprim, can do shit about it. Being called "The Most Hated Man in America" means nothing to Shkreli, as America's deregulation acts protect him. This is what results when you make it legal for rich and greedy individuals to buy literally anything, from others' intellectual content to life-saving medicines and treatments. Shkreli now has a yt channel he uploads to nearly every day to brag about his wealth.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329811.jpg">
+5. A Penny Sit-Up
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365259.jpg">
+
+6. Coffin House
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365260.jpg">
+
+7. A hired reader reads to cigar makers hard at work in Cuban cigar factory, ca. 1900-1910.
+
+Workers in Cuban cigar factories would employ a “Lector” who would read newspapers, political treatises and classical literature to break the monotony of the cigar-rollers’ work, so even illiterate cigar-rollers would be well-informed and familiar with great literature
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365261.jpg">
+
+8. American soldier poses with captured German weaponry, 1944-45.
+
+Every weapon has a signature, and using an enemy weapon can invite friendly fire. Prior to D-Day, American paratroops conducted mechanical training on German weapons (there was insufficient ammo for live fire training). With many men separated from their leg bags and weapons thanks to high-speed drops (which led to violent parachute openings), picking up a German weapon was fairly common. In the well-documented E company of the 2/506th PIR, Lt. Dick Winters briefly carried a German Mauser until he could recover an M1 from an American casualty (this is described in Steven Ambrose’s book and depicted in the TV miniseries). That had no consequences for him, but Sergeant Bill Guarnere had problems when he picked up an MG42. In his own words:
+I went looking for a gun, and found a Thompson submachine gun. I also took a German MG-42 off a dead Kraut and started shooting it, but the gun made a noise that was distinctly German. The German guns went brrrrrrrrrrt! The American guns went bap-bap-bap-bap-bap. Every time I started shooting it, the Americans started shooting at me! I got shot at by a dozen or so of our own men. I threw it the hell away. You learn fast or you get killed. I grabbed an M1 instead.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365262.jpg">
+
+9. A Wehrmacht veteran teaches Hitler Youth boys how to use a Panzerfaust. The badges on his sleeve represent enemy tanks destroyed.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365263.jpg">
+
+10. Ruth Lee, a hostess at a Chinese restaurant, flies a Chinese flag so she isn’t mistaken for Japanese when she sunbathes on her days off in Miami, in the wake of the attack on Pearl Harbor, Dec. 15, 1941
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365264.jpg">
+
+11. Annie Oakley shooting over her shoulder using a hand mirror, 1888. 
+
+Annie Oakley was an American sharpshooter and exhibition shooter. Her amazing talent first came to light when the then-15-year-old won a shooting match with traveling-show marksman Frank E. Butler (whom she married). The couple joined Buffalo Bill’s Wild West show a few years later. Oakley became a renowned international star, performing before royalty and heads of state.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365265.jpg">
+
+12. Annie shooting an apple off her dog’s head
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365266.jpg">
+
+13. Masks made for men with disfigured faces from war wounds. Original caption: Mrs. Ladd coloring one of the masks after adjusting on a wounded Poilu’s face, 1917
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365267.jpg">
+
+14. During World War 2, the British captured Germans and put them in a bugged mansion where they served them wine and food and thus they were able to gather important intelligence from casual conversations between the ‘prisoners’ that helped them greatly win the war
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365268.jpg">
+
+15. The German counterpart to this probably belongs to Hanns Scharff, who was an interrogator for the Luftwaffe and specialized in questioning American pilots.
+
+Unlike many other German interrogators, Scharff avoided physical means and torture to acquire information. He instead chose mind games and played to his subjects vulnerability of desiring hope and reprieve from life as a POW. He was know for his forest walks where he’d take his prisoner on a walk and asked casual questions about the soldiers life and his day to day living. Scharff would often exchange jokes and food to build a relation with the person he desired information from so they’d be more willing to share secrets with someone they considered to be a friend in a place where peace of the mind was scarce. For those who proved reluctant to succumb to Scharff’s charm, he would conduct detailed research from Luftwaffe files to get people to be more participatory. Scharff took advantage of the Gestapo’s fearsome reputation, offering himself as the prisoners only escape from being dragged away by the infamous group. He would ask questions he already knew the answer to, if the prisoner refused to talk he’d provide the answer assuring that he already knew everything. Tricked into a false sense of security that nothing could be divulged that he already didn’t know, they’d begin to answer questions for him without his que, often unaware of the significance of what they were saying.
+After the war, Scharff emigrated to the US where he shared the secret of his craft with the military and law enforcement, and quickly were adopted by numerous governments across the world. His techniques proved revolutionary and those same tricks were later used in another high profile case decades later. In the early 2000s a lowly American FBI agent named George Piro used those same techniques proposed by Scharff to uncover the secrets of Saddam Hussein. In his several month long interogation, Saddam revealed the infamous claims that Iraq was linked to weapons of mass destruction and to Al Queda were unsubstantiated.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365269.jpg">
+
+16. On August 14 1945, more than 1,000 Japanese officers raided the Imperial palace to destroy the recording of the Emperor’s speech of surrender. Confused by the layout of the palace, the rebels never found the recording. It was later smuggled outside in basket of women’s underwear for broadcast
+
+The speech was probably the first time that an Emperor of Japan had spoken (albeit via a phonograph record) to the common people. It was delivered in the formal, classical Japanese that few ordinary people could easily understand. It made no direct reference to a surrender of Japan, instead stating that the government had been instructed to accept the terms of the Potsdam Declaration fully.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365270.jpg">
+
+17. There were enough discrepancies in famous outlaw John Dillinger’s autopsy and oddities in the events leading up to his death to suggest that the FBI killed the wrong man and simply claimed otherwise to escape embarrassment.
+
+“FBI agents claimed to have seen Dillinger reach for a weapon before he set off running into the side alleyway. The FBI even showcased in their headquarters the gun that was supposedly on Dillinger’s body the night he was killed. It turns out, however, that the small Colt semi-automatic pistol on display at the FBI was only manufactured after Dillinger’s death, making it impossible to have been the one he was allegedly carrying. Forensic analysis of the victim showed that he had stippling patterns on his neck, which is due to close range fire, and when writer Jay Robert Nash conducted his reconstruction of the crime scene in 1970 it showed that Dillinger had to have been in a prone position when he was shot. This would suggest that Dillinger was somehow tackled to the ground and was defenseless. Several physical discrepancies also existed. The scar on Dillinger’s face was not present at autopsy, which could have been the result of successful plastic surgery, but upon viewing the victim, Dillinger’s father exclaimed that it was not his son. A close up of the corpse face showed a full set of front teeth, however, it was known through various documented photographs and dental records that Dillinger was missing his front right incisor. The corpse’s brown eyes also did not match that of Dillinger, who supposedly had grey eyes. Finally, the body showed signs of certain illnesses and heart conditions that were inconsistent with prior medical records and Dillinger’s level of activity.“
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365271.jpg">
+
+18. Oil well fire on Signal Hill, California. 1931
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365272.jpg">
+
+19. One of South Dakota’s “Black Blizzards” – 1934.
+
+In North America, the term “Dust Bowl” was first used to describe a series of dust storms that hit the prairies of Canada and the United States during the 1930s, and later to describe the area in the United States that was most affected by the storms, including western Kansas, eastern Colorado, northeastern New Mexico, and the Oklahoma and Texas panhandles.
+The “black blizzards” started in the Eastern states in 1930, affecting agriculture from Maine to Arkansas. By 1934 they had reached the Great Plains, stretching from North Dakota to Texas, and from the Mississippi River Valley to the Rocky Mountains. “The Dust Bowl” (as an area) received its name following the disastrous “Black Sunday” storm in April 1935, when reporter Robert L. Geiger referred to the region as “The Dust Bowl” in his account of the storm.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85365273.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85329810/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85365254/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">19 Fun Facts To Kill Your Boredom </a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271124.png">
+## <a href="#link11" id="link10">This Sheriff Trolled People With Notices To Appear</a>
+1. The invitation he sent to friends and family nearly gave everyone a heart attack.   No one likes dealing with the courts, but luckily this wasn't what they were expecting.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85296226.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271125.jpg">
-
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271126.jpg">
-
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271127.jpg">
-
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271129.png">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271130.png">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271131.png">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271132.png">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271133.png">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271137.png">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271128.png">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271139.png">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271134.png">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271135.png">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271136.png">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271138.png">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271140.png">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271141.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85271142.jpg">
+2. A wedding invitation in clever disguise!  Hopefully no one threw it away thinking it was a ticket or summons!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85296227.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85271123/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85296225/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
