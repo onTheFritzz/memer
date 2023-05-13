@@ -1,950 +1,1001 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 05.12.2023-22:45:18<br>All credits to ebaumsworld.com
+Last Updated 05.13.2023-01:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">22 Servings Of Nope That Will Make You Cringe</a>
+## <a href="#link1" id="link0">21 Funny Posts From 'Black People Twitter'</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193044.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432182.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193045.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432190.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193046.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432191.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193047.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432188.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193048.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432183.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193049.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432185.png">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193050.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432176.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193051.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432180.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193052.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432177.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193054.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432178.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193055.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432179.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193056.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432181.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193057.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432184.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193060.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432186.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193061.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432187.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193062.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432189.png">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193063.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432192.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193064.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432193.png">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193068.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85432194.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193065.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/08/08/051559/85432228/qWmeQAnLnTwQNrj98LK5OuZsegRsORv7T78v3yiNNP4.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193066.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2392797/85193067.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/08/08/051612/85432229/WfV8KAhDI1nhU_SlG0Z8VrJYhB4duxrhH5pejBL_teQ.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85193042/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85432175/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">WTF Pictures From History That'll Make Your Jaw Drop</a>
+## <a href="#link2" id="link1">18 Spot-On Starter Packs That Will Make You Facepalm</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149047.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301758.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149048.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301759.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149049.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301760.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149050.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301761.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149051.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301762.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149052.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301763.png">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149053.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301764.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149054.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301765.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149055.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301766.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149056.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301767.png">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149057.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301768.png">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149058.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301769.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149059.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301770.png">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149060.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301771.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149061.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301772.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149062.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301773.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149063.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301774.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2435386/85149064.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85301775.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85149046/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85301757/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">71 Celebrity Deaths of 2016 in Chronological Order</a>
-1. Pat Harrington Jr., 86, the actor and comedian who in the 1950s got attention as a member of Steve Allen's fabled TV comic troupe and decades later as Dwayne Schneider, the cocky handyman on the long-running sitcom "One Day at a Time," died on Jan. 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226819.jpg">
+## <a href="#link3" id="link2">Monday Morning Randomness: 72 Choice Randoms and Memes For Bored Minds</a>
+1.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095320/87296660/87296468.jpg">
 
-2. David Bowie, 69, the other-worldly musician who broke pop and rock boundaries with his creative musicianship that spanned six decades, striking visuals and a genre-spanning persona he christened Ziggy Stardust, died on Jan. 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226879.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/102137/87296672/87271354.jpg">
 
-3. Alan Rickman, 69, the classically-trained British stage star and sensual screen villain in the "Harry Potter" saga, "Die Hard" and other films, died on Jan. 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226820.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095755/87296668/87281244.jpg">
 
-4. Dan Haggerty, 74, the rugged, bearded actor who starred in the film and TV series "The Life and Times of Grizzly Adams," died on Jan. 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226821.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296418.jpg">
 
-5. Maurice White, 74, the Earth, Wind & Fire founder whose horn-driven band sold more than 90 million albums, died on Feb. 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226866.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095336/87296663/87296483.jpg">
 
-6. Dave Mirra, 41, a legend of BMX racing who held the record for the most career medals in the X Games for many years and hosted MTV's "Real World/Road Rules Challenge" for two seasons, died on Feb 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226824.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296420.jpg">
 
-7. George Gaynes, 89, who portrayed an irritable foster parent on the '80s sitcom "Punky Brewster," the bewildered commandant in seven "Police Academy" films and a soap opera star with a crush on Dustin Hoffman's character in drag, in the hit feature comedy "Tootsie," died on Feb. 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226826.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296424.jpg">
 
-8. Angela "Big Ang" Raiola, 55, the raspy-voiced bar owner who gained fame on the reality TV series "Mob Wives," died on Feb. 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226867.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296425.jpg">
 
-9. Abe Vigoda, 94, the character actor whose leathery, sad-eyed face made him ideal for playing the over-the-hill detective Phil Fish in the 1970s TV series "Barney Miller" and the doomed Mafia soldier in "The Godfather," died on Jan. 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226823.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/102201/87296678/87271378.jpg">
 
-10. Tony Burton, 78, who played Apollo Creed's inspirational boxing trainer in the "Rocky" franchise after his own glory days as a young prizefighter, died on Feb. 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226869.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095257/87296653/87294694.jpg">
 
-11. Glenn Frey, 67, the rock 'n' roll rebel who co-founded the Eagles and helped write such hits as "Hotel California" and "Life in the Fast Lane," died on Jan. 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226822.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296426.jpg">
 
-12. Vanity - Denise Katrina Matthews, 57, better known as Prince protege Vanity who sang in girl band Vanity 6 and appeared in the films "The Last Dragon" and "Action Jackson," died on Feb. 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226825.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296427.jpg">
 
-13. Rob Ford, 46, the pugnacious, populist former mayor of Toronto whose career crashed in a drug-driven, obscenity-laced debacle, died on March 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226817.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095754/87296667/87281231.jpg">
 
-14. Antonin Scalia, 79, an influential conservative and most provocative member of the U.S. Supreme Court, died on Feb. 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226856.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296428.jpg">
 
-15. George Kennedy, 91, the hulking, tough-guy actor who won an Oscar for his portrayal of a savage chain-gang convict in the 1960s classic "Cool Hand Luke," died on Feb. 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226827.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095315/87296659/87295964.jpg">
 
-16. Lee Reherman, 49, the former Ivy League football star who shot to fame as the towering, muscular Hawk on the popular 1990s television show "American Gladiators," died on March 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226828.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296429.jpg">
 
-17. Nancy Reagan, 94, an actress who became one of the most high-profile and influential first ladies of the 20th century as the wife of President Ronald Reagan, died on March 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226878.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296430.jpg">
 
-18. Joe Garagiola, 90, the former former TODAY anchor and baseball player for the St. Louis Cardinals, Pittsburgh Pirates, Chicago Cubs and New York Giants, died on March 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226873.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296431.jpg">
 
-19. Garry Shandling, 66, the actor and comedian who masterminded a brand of phony docudrama with "The Larry Sanders Show," died on March 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226832.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095253/87296652/87294698.jpg">
 
-20. Mother Mary Angelica, 92, the folksy Roman Catholic nun who used a monastery garage to begin the Catholic TV powerhouse EWTN, died on March 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226833.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296432.jpg">
 
-21. Pat Conroy, 70, the author of "The Great Santini," ''The Prince of Tides" and other best-sellers, whose novels drew upon his bruising childhood and the vistas of South Carolina, died on March 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226874.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296433.jpg">
 
-22. Phife Dawg, 45, the lyricist whose witty wordplay was a linchpin of the groundbreaking hip-hop group A Tribe Called Quest, died on March 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226831.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296434.jpg">
 
-23. Keith Emerson, 71, founder and keyboardist of the progressive-rock band Emerson, Lake and Palmer, died on March 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226829.jpg">
+23.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095302/87296655/87295956.jpg">
 
-24. Frank Sinatra Jr., 72, who carried on his father's legacy with his own music career and whose kidnapping as a young man added a bizarre chapter to his father's legendary life, died on March 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226830.jpg">
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296435.jpg">
 
-25. Patty Duke, 69, who won an Oscar as a teen for playing Helen Keller in "The Miracle Worker," then maintained a long career while battling personal demons, died on March 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226834.jpg">
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296436.jpg">
 
-26. Erik Bauersfeld, 93, who turned three words from a minor acting role — "It's a trap!" — into one of the most beloved lines of the "Star Wars" series, died on April 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226870.jpg">
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296437.jpg">
 
-27. Merle Haggard, 79, the country giant who rose from poverty and prison to international fame through his songs about outlaws, underdogs and an abiding sense of national pride in such hits as "Okie From Muskogee" and "Sing Me Back Home," died on April 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226835.jpg">
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296438.jpg">
 
-28. David Gest, 62, a music producer, reality TV star and former husband of Liza Minnelli, died on April 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226836.jpg">
+28.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095308/87296657/87295960.jpg">
 
-29. Chyna, 46, the tall, muscle-bound, raven-haired pro-wrestler who rocketed to popularity in the 1990s and later made the rounds on reality TV, died on April 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226838.jpg">
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296440.jpg">
 
-30. Prince, 57, one of the most inventive and influential musicians of modern times with hits including "Little Red Corvette," ''Let's Go Crazy" and "When Doves Cry," died on April 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226880.jpg">
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296441.jpg">
 
-31. Kimbo Slice, 42, the bearded street fighter who parlayed his Internet popularity into a mixed martial arts career, died on June 6.
-<img src="https://cdn.ebaumsworld.com/2016/12/29/092802/85226944/ddw.jpg">
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296442.jpg">
 
-32. Theresa Saldana, 61, the "Raging Bull" actress who survived a stalker's brutal attack to become a crime victims' advocate and reclaimed her entertainment career with "The Commish" and other TV shows, died on June 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226865.jpg">
+32.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095307/87296656/87295957.jpg">
 
-33. Gordie Howe, 88, known as "Mr. Hockey," the rough-and-tumble Canadian farm boy whose blend of talent and toughness made him the NHL's quintessential star, died on June 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226818.jpg">
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296443.jpg">
 
-34. Christina Grimmie, 22, the singer-songwriter and YouTuber who gained greater popularity on "The Voice," died on June 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226871.jpg">
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296444.jpg">
 
-35. Doris Roberts, 90, who played the tart-tongued, endlessly meddling mother on "Everybody Loves Raymond," died on April 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226837.jpg">
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296445.jpg">
 
-36. Ron Lester, 45, who played no. 69 — the oversized offensive guard Billy Bob — in the 1999 high school football flick "Varsity Blues," died on June 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226840.jpg">
+36.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095340/87296664/87296477.jpg">
 
-37. Muhammad Ali, 74, the silver-tongued boxer and civil rights champion who famously proclaimed himself "The Greatest" and then spent a lifetime living up to the billing, died on June 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226881.jpg">
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296446.jpg">
 
-38. Nick Menza, 51, former drummer for the influential metal band Megadeth, died on May 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226839.jpg">
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296447.jpg">
 
-39. Anton Yelchin, 27, charismatic and rising actor best known for playing Chekov in the new "Star Trek" films, died on June 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226885.jpg">
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296448.jpg">
 
-40. Garry Marshall, 81, the legendary writer and director who created the wildly popular television programs "Happy Days," "The Odd Couple," "Laverne & Shirley" and "Mork & Mindy," died on July 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226841.jpg">
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296449.jpg">
 
-41. David Huddleston, 85, a character actor best known for portraying titular roles in "The Big Lebowski" and "Santa Claus: The Movie," died on Aug. 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226861.jpg">
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296450.jpg">
 
-42. Barry Jenner, 75, the veteran character actor who rocketed into space as an admiral on "Star Trek: Deep Space Nine" and made dozens of other TV appearances during a 40-plus year career, died on Aug. 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226843.jpg">
+42.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/102138/87296673/87274558.jpg">
 
-43. Kenny Baker, 81, who played the lovable droid R2-D2 in the "Star Wars" films, achieving cult status and fans' adulation without showing his face or speaking any lines, died on Aug. 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226844.jpg">
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296451.jpg">
 
-44. John McLaughlin, 89, the conservative commentator and host of a long-running television show that pioneered hollering-heads discussions of Washington politics, died on Aug. 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226845.jpg">
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296452.jpg">
 
-45. Pat Summitt, 64, the winningest coach in Division I college basketball history who uplifted the women's game from obscurity to national prominence during her 38-year career at Tennessee, died on June 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226882.jpg">
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296453.jpg">
 
-46. Lou Pearlman, 62, the band boy mogul who launched the hit groups Backstreet Boys and 'NSync but was later sentenced to prison for a $300 million Ponzi and bank fraud scheme, died on Aug. 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226864.jpg">
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296454.jpg">
 
-47. Youree Del Cleomill Harris, 53, an actress who became famous playing the Jamaican psychic Miss Cleo, claiming to know callers' futures in ubiquitous TV infomercials and commercials, died on July 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226842.jpg">
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296415.jpg">
 
-48. Michael Cimino, 77, the Oscar-winning director whose film "The Deer Hunter" became one of the great triumphs of Hollywood's 1970s heyday and whose disastrous "Heaven's Gate" helped bring that era to a close, died on July 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226862.jpg">
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296455.jpg">
 
-49. Matt Roberts, a guitarist and founding member of the rock band 3 Doors Down, died on Aug. 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226846.jpg">
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296456.jpg">
 
-50. Toots Thielemans, 94, the Belgian harmonica player whose career included playing with jazz greats like Miles Davis and whose solos have figured on numerous film scores, died on Aug. 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226847.jpg">
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296457.jpg">
 
-51. Gene Wilder, 83, the frizzy-haired actor who brought his deft comedic touch to such unforgettable roles as the neurotic accountant in "The Producers," the mad scientist of "Young Frankenstein," and the title character in "Willy Wonka and the Chocolate Factory," died on Aug. 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226848.jpg">
+51.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/102146/87296675/87274560.jpg">
 
-52. Florence Henderson, 82, the Broadway star who became one of America's most beloved television moms in "The Brady Bunch," died on Nov. 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226816.jpg">
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296458.jpg">
 
-53. Jon Polito, 65, the raspy-voiced actor whose 200-plus credits ranged from "Homicide: Life on the Street" and "Modern Family" to the films "Barton Fink" and "The Big Lebowski," died on Sept. 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226849.jpg">
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296459.jpg">
 
-54. Greta Zimmer Friedman, 92, the woman in an iconic photo shown kissing an ecstatic sailor celebrating the end of World War II by smooching a nurse in Times Square, died on Sept. 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226850.jpg">
+54.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296460.jpg">
 
-55. Alexis Arquette, 47, the pioneering transgender actress and member of the prominent Hollywood family, died on Sept. 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226851.jpg">
+55.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296461.jpg">
 
-56. Arnold Palmer, 87, the golfing great who brought a country-club sport to the masses with a hard-charging style, charisma and a commoner's touch, died on Sept. 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226852.jpg">
+56.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296462.jpg">
 
-57. Tommy Mykal Ford, 52, best known for his role as Tommy on the hit '90s sitcom "Martin," died on Oct. 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226853.jpg">
+57.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296463.jpg">
 
-58. Janet Reno, 78, the first woman to serve as U.S. attorney general and the epicenter of several political storms during the Clinton administration, including the seizure of Elian Gonzalez, died on Nov. 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226854.jpg">
+58.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296464.jpg">
 
-59. Robert Vaughn, 83, the debonair, Oscar-nominated actor whose many film roles were eclipsed by his hugely popular turn in television's "The Man From U.N.C.L.E.," died on Nov. 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226855.jpg">
+59.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87296465.jpg">
 
-60. Fidel Castro, 90, the cigar-chomping Cuban revolutionary leader and dictator who defied U.S. efforts to topple him for five decades, died on Nov. 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226857.jpg">
+60.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095258/87296654/87294705.jpg">
 
-61. Ron Glass, 71, the veteran television and film actor known for his Emmy-nominated role as NYPD Det. Ron Harris on the classic cop sitcom "Barney Miller," and later the deeply religious preacher Derrial Brook on the cult sci-fi show "Firefly," died on Nov. 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226858.jpg">
+61.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095310/87296658/87295962.jpg">
 
-62. Carrie Fisher, 60, best known for her portrayal of the tough-talking Princess Leia who defies the Evil Empire in "Star Wars," died on Dec. 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226859.jpg">
+62.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095323/87296661/87294710.jpg">
 
-63. Zsa Zsa Gabor, 99, the Hungarian beauty queen-turned-nine-times-married Hollywood icon who once served three days in jail for slapping a cop, died on Dec. 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226860.jpg">
+63.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095328/87296662/87296473.png">
 
-64. George Michael, 53, the pop heartthrob whose career began with the hit duo Wham! in the 1980s and went on to have a hit solo career beginning with the chart-topping album "Faith," died on Dec. 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226863.jpg">
+64.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095513/87296665/87294311.jpg">
 
-65. Bill Nunn, 62, a veteran character actor who broke through in movies in the late 1980s, first in Spike Lee's "School Daze," then as the ill-fated Radio Raheem in the Oscar-nominated "Do the Right Thing," as well as appearing in the "Spider-Man" movie franchise, died on Sept. 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226868.jpg">
+65.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/095520/87296666/87294346.jpg">
 
-66. Debbie Reynolds, 84, the actress and singer who rose to fame opposite Gene Kelly in "Singin' in the Rain," died on Dec. 28, one day after the death of her daughter, Carrie Fisher.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226872.jpg">
+66.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/100020/87296669/87280067.jpg">
 
-67. Carlos Walker, 40, an Atlanta rapper known by the stage name Shawty Lo who was named MySpace Music Rookie of the Year at the 2008 BET Hip-Hop Awards, died on Sept. 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226875.jpg">
+67.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/100021/87296670/87280118.jpg">
 
-68. John Glenn, 95, the all-American hero who was the first U.S. astronaut to orbit the Earth before being propelled into a long career in the U.S. Senate, died on Dec. 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226876.jpg">
+68.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/100022/87296671/87280070.jpg">
 
-69. José Fernández, 24, the Miami Marlins pitcher who won the National League's Rookie of the Year award in 2013, died on Sept. 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226877.jpg">
+69.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/102139/87296674/87274559.jpg">
 
-70. Leonard Cohen, 82, the baritone-voiced Canadian singer-songwriter who blended spirituality and sexuality in songs like "Hallelujah," ''Suzanne" and "Bird on a Wire," died on Nov. 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226883.jpg">
+70.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/102153/87296676/87274561.jpg">
 
-71. Alan Thicke, 69, the versatile performer who gained his greatest fame as the beloved dad on the sitcom "Growing Pains," died on Dec. 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/882065/85226884.jpg">
+71.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/102157/87296677/87274570.jpg">
 
+72.
+<img src="https://cdn.ebaumsworld.com/2022/10/30/102203/87296679/87274586.jpg">
 
-<a href="https://www.ebaumsworld.com/pictures/-/85226815/">Original Article <b>with</b> Ads</a>
+
+<a href="https://www.ebaumsworld.com/pictures/-/87296414/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">25 Fresh Memes To Kick Start Your Day</a>
+## <a href="#link4" id="link3">19 Pics Oozing With Cringe That Will Make You Uncomfortable</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317588.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342266.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317589.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342267.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317590.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342268.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317591.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342270.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317592.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342271.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317593.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342272.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317594.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342273.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317595.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342274.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317599.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342275.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317596.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342280.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317597.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342269.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317598.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342276.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317600.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342277.png">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317601.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342279.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317602.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342278.png">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317603.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342281.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317604.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342282.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317605.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342283.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317606.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317607.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317608.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317609.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317610.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317611.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85317612.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85342284.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85317587/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85342265/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">19 Savage Roasts You'll Feel Guilty For Laughing At</a>
+## <a href="#link5" id="link4">19 Game Of Thrones Memes From Episode 4 'The Spoils Of War'</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2017/01/17/052404/85243081/roast00.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430946.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2017/01/17/052416/85243082/roast02.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430947.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243033.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430948.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243034.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430949.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243037.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430950.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243038.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430951.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243040.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430952.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243035.png">
+8. bran stark meme
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430960.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/2017/01/17/051243/85243072/roast1.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430953.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243039.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430954.png">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243041.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430955.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243042.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430956.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243043.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430958.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/2017/01/17/051256/85243073/roast2.jpg">
+14. tennis player that looks like jon snow with an erection
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430959.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85243036.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430961.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/2017/01/17/051308/85243074/roast3.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430962.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/2017/01/17/051412/85243076/roast4.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430963.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/2017/01/17/051439/85243078/roast6.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430964.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/2017/01/17/051427/85243077/roast5.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85430965.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85243032/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85430945/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">23 Fabulous Photos For Your Maximum Entertainment</a>
+## <a href="#link6" id="link5">24 Fresh Memes To Kick Start Your Day</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228161.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051036.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2016/12/31/023547/85228841/85224706.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051031.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2016/12/31/023600/85228842/85224707.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051032.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228169.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051033.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228171.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051034.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228172.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051035.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228178.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051038.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228173.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051040.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228179.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051029.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228176.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051042.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/2016/12/31/023531/85228840/85224702.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051028.png">
 
 12.
-<img src="https://cdn.ebaumsworld.com/2016/12/31/023627/85228844/85224721.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051039.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228180.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051041.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/2016/12/31/023503/85228838/85224697.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051043.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228183.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051044.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228185.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051046.png">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228186.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051048.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228187.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051047.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228188.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051049.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/2016/12/31/023450/85228837/85223907.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051051.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85228167.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/2016/12/31/023518/85228839/85224700.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/2016/12/31/023613/85228843/85224715.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85051050.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85228160/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85051027/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">21 Fresh Football Memes to Kick Start the Week</a>
-1. Antonio Brown need serious help. That CTE is really starting to kick in. I wish I were joking.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021008/87281195/IMG_6096.jpg">
+## <a href="#link7" id="link6">23 Shameful Examples Of False Advertising With Food Packaging </a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275613.jpg">
 
-2. Why do I torture myself like this?
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021010/87281196/IMG_6099.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275614.jpg">
 
-3. The mediocrity is overwhelming.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021017/87281197/IMG_6097.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275615.jpg">
 
-4. Nothing better than wasting an entire Sunday watching Redzone and vegging on my couch.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021018/87281198/IMG_6100.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275616.jpg">
 
-5. He is the chosen one.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021020/87281199/IMG_6101.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275617.jpg">
 
-6. Let Russ Cook!!!
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021033/87281203/IMG_6107.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275618.jpg">
 
-7. Yikes. Is this gonna be it for Tom Brady?
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021025/87281200/IMG_6103.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275619.jpg">
 
-8. LOL. Okay this one hurts my soul a little bit.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021030/87281201/IMG_6105.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275620.jpg">
 
-9. Antonio out here skinny dipping at the hotel pool.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021032/87281202/IMG_6104.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275621.jpg">
 
-10. The NFL is taking over London again this season. It's safe to say British people still have no idea how football works.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021007/87281194/IMG_6098.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275622.jpg">
 
-11. This one is actually really scary. Shame on the Dolphins organization.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021038/87281204/IMG_6108.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275623.jpg">
 
-12. You get a flag, and you get a flag!
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021039/87281205/IMG_6110.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275624.jpg">
 
-13. "I don't want to play with you anymore..."
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021041/87281206/IMG_6109.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275625.jpg">
 
-14. Turf toe taking victims left and right.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021046/87281207/IMG_6111.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275626.jpg">
 
-15. Are the Titans for real?
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021050/87281208/IMG_6113.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275627.jpg">
 
-16. Tua most definitely has that dawg in him.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021054/87281210/IMG_6112.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275628.jpg">
 
-17. Oh, poor Baker Mayfield. It's a vicious cycle.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021058/87281211/IMG_6115.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275629.jpg">
 
-18. We aren't so different, you and I.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021051/87281209/IMG_6114.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275630.jpg">
 
-19. Zach Wilson is a quarterback who CAUGHT a TD pass, as opposed to throwing one.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021106/87281212/IMG_6116.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275631.jpg">
 
-20. Browns are already on the phone with his agent...
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021107/87281213/IMG_6117.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275632.jpg">
 
-21. John Kennedy is listed as probable to return to this parade.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/021402/87281214/IMG_6118.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275633.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275634.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/448397/85275635.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87281193/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85275612/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">40 Choice Pics and Photos for Your Daily Dose</a>
+## <a href="#link8" id="link7">Monday Morning Randomness - User Edition #35</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321647.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424331.gif">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321648.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095630/85424697/R2u2mdR.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321649.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095544/85424694/NjpBacx.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321650.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424335.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321651.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424339.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321652.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095424/85424688/DoOPMV2.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321653.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424340.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321654.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424332.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321657.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424341.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321658.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424345.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321659.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095359/85424686/7yuJgFA.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321660.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424346.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321661.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424347.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321662.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424349.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321663.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424350.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321664.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424352.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321666.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424353.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321667.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424354.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321668.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424355.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321669.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424356.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321670.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424357.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321671.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424358.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321672.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424359.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321673.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424360.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321674.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424361.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321675.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424362.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321676.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095529/85424693/NC14KB7.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321677.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424363.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321678.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424364.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321679.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424365.jpg">
 
 31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321680.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095346/85424685/6vkiNad.jpg">
 
 32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321683.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095411/85424687/cC8zc2m.jpg">
 
 33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321684.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095437/85424689/Ezgupk6.jpg">
 
 34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321687.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095450/85424690/I7CQ6eb.jpg">
 
 35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321688.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85424334.jpg">
 
 36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321690.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095502/85424691/kWh9LcB.jpg">
 
 37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321692.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095515/85424692/nAw28Mm.jpg">
 
 38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321695.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095558/85424695/o9mo0Ng.png">
 
 39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321696.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095611/85424696/Ot6foAc.jpg">
 
 40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87321697.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095643/85424698/UogG0Fz.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095657/85424699/Yb7ENEI.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095709/85424700/YWVseHa.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/2017/07/31/095724/85424701/Z5usHqr.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87321646/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85424330/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">Entitled Dad Ruins Kids’ Day by Haggling over $2 Park Fee</a>
+## <a href="#link9" id="link8">28 Fresh Memes From Clever Minds </a>
 1.
-<img src="https://cdn.ebaumsworld.com/2022/08/26/025141/87257433/IMG_4456.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267616.jpeg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2022/08/26/025139/87257432/IMG_4457.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267612.jpeg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2022/08/26/025138/87257431/IMG_4458.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267613.jpeg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2022/08/26/025143/87257435/IMG_4459.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267623.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2022/08/26/025142/87257434/IMG_4460.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267614.jpeg">
+
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267617.jpeg">
+
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267618.jpeg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267611.png">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267619.jpeg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267620.jpeg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267621.jpeg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267622.jpeg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267624.png">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267626.jpeg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267627.jpeg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267628.jpeg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267629.jpeg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267630.jpeg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267631.jpeg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267632.jpeg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267633.jpeg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267634.jpeg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267635.jpeg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267636.jpeg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267637.jpeg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267638.png">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267639.jpeg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87267640.jpeg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87257430/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87267610/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">30 Bad Bosses That Should be Forced to Work For Someone Like Them</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294290.jpg">
+## <a href="#link10" id="link9">25 Inventions That Are Long Overdue</a>
+1. Cure for hair loss.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274336.jpg">
 
-2. That just so happens to be a million dollar company forcing it's not million dollar paid workers to work through Christmas.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294294.jpg">
+2. I was promised jet packs.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274329.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294279.jpg">
+3. High-speed transcontinental railway system in the USA.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274333.jpeg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294284.jpg">
+4. Efficient water desalination and or plastic recycling.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274320.png">
 
-5. This just so happens to also be illegal.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294281.jpg">
+5. Dental regrowth would be friggin sweet! Expensive...but sweet.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274319.png">
 
-6. Great benefits include things we must legally provide!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294305.jpg">
+6. Cure of most genetic diseases or cancer or Alzheimer's.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274321.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294287.jpg">
+7. Full-time operational fusion energy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274322.jpg">
 
-8. This seems like it could get manipulated easily.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294288.jpg">
+8. Universal translator.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274324.png">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294285.jpg">
+9. Any human-made mechanism that can mimic the CO2 recycling of trees at scale to truly change the numbers on medium and long-term climate change impact. (Short-term is not good.)
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274331.jpeg">
 
-10. They at least deserve a big box of Frosted Flakes.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294289.jpg">
+10. I've been telling my children for years that in their lifetime, when they need an organ transplant, doctors will just grow an exact genetic match for them in a vat. Time to get cracking on this.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274326.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294291.jpg">
+11. Diabetes cure.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274327.jpg">
 
-12. I'd just love to know what that wage is.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294292.jpg">
+12. I read about scientists in MIT and Japan working on a machine that records your dreams and allows them to be played back. I would love something like that because I have some pretty crazy dreams that I would love to experience again.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274328.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294293.jpg">
+13. A time machine. Not one that physically allowed you to travel through time but something that allowed you to watch the history of the universe as its own kinda movie.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274330.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294282.jpg">
+14. A long-distance space shuttle, or maybe colonization of distant worlds. I always dreamed of traveling space-side.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274332.jpeg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294295.jpg">
+15. Full dive VR.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274334.jpeg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294296.jpg">
+16. A proper sci fi scanning device. Currently, the best thing we have is an MRI machine. This requires massive amounts of finite liquid helium, massive magnets, and they take up a huge amount of space. Even with that, they cannot distinguish one tissue from another, only densities so some things are missed. I would love to see a machine like the scanning pods in Passengers that can diagnose any issue.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274335.jpeg">
 
-17. No friends allowed. What do you think this is, the fun zone?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294280.jpg">
+17. Websites without ads. Websites without pop-ups.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274337.png">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294286.jpg">
+18. Would be nice if self-driving cars were standard by the time I reach the point of no longer being able to drive myself.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274338.jpg">
 
-19. This must be in the Nestle office.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294283.jpg">
+19. Warp drive.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274325.jpg">
 
-20. Competitive with what? My price of rent each month?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294297.jpg">
+20. Teleporting water from floods to droughts.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274339.jpg">
 
-21. Now that's more like it.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294298.jpg">
+21. Cure for age-related deafness/tinnitus.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274323.jpg">
 
-22. Go getters have the right to still be able to go to the grocery store.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294299.jpg">
+22. Proper treatment regimens for fibromyalgia. All my doctors I’ve seen just toss medications at me until something helps.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274340.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294300.jpg">
+23. Immortality. That way it would be in everyone's lifetime.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274341.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294301.jpg">
+24. 100 percent accurate lie detector.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274342.jpg">
 
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294302.jpg">
-
-26. Dear employees: You cannot eat the food that will throw out later.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294303.jpg">
-
-27. Well this just makes me want to go home and see my dog.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294304.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294306.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294307.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87294308.jpg">
+25. Artificially made meat that's completely indistinguishable from the real thing. F*ck this plant-based stuff.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87274343.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87294278/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87274318/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">13 Funny First World Problems That'll Make You Facepalm</a>
+## <a href="#link11" id="link10">15 Celebrity Sex Tapes That NO ONE Wants To See</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249404.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422224.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249405.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422225.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249406.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422226.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249407.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422228.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249408.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422229.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249409.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422232.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249410.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422233.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249411.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422227.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249412.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422230.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249413.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422231.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249414.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422236.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249415.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422235.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85249416.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422234.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422237.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85422238.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85249403/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85422223/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
