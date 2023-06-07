@@ -1,710 +1,842 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 06.07.2023-04:45:19<br>All credits to ebaumsworld.com
+Last Updated 06.07.2023-07:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">Steven Seagal's New Look Gets Mercilessly Roasted By The Internet</a>
+## <a href="#link1" id="link0">Choice Late Night Pics To Keep You Up</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477820.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068841.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477821.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068842.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477822.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068843.jpg">
+
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068844.jpg">
+
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068845.jpg">
+
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068846.jpg">
+
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068847.jpg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068848.jpg">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068849.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068850.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068851.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068852.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068853.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068854.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068855.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068856.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068857.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068858.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068859.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068860.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068861.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068862.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068863.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068864.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068865.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068867.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068868.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068869.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068870.png">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068871.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068872.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068873.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068874.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068875.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85068876.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85477819/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85068840/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">Aston Martin Trolls Twitter User By Giving Him A Free Car</a>
-1. British Artist Hector Janse van Rensburg recently tweeted a picture of himself just hanging out in the bath.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85354249.jpg">
+## <a href="#link2" id="link1">38 Radical Randoms for Your Daily Dose</a>
+1. How about a little kiss?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268872.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85354250.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100544/87270102/87267462.jpg">
 
-3. To his surprise, Radox replied to him.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85354251.jpg">
+3. This is genius, why did I think of this?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268873.jpg">
 
-4. He proudly displayed his new gifts in a follow-up tweet.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85354252.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100537/87270098/87267452.jpg">
 
-5. Realizing he was onto a good idea, he tried his trick a second time.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85354253.jpg">
+5. This was peak technology for its time.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268874.jpg">
 
-6. Despite his somewhat ambitious stunt, Aston Martin actually responded and offered him a free car!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85354254.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268903.jpg">
 
-7. The company sent him a small model car.  Obviously, they weren't going to send an actual car but pretty awesome nonetheless!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85354255.jpg">
+7. Don't be late either!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268878.jpg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268880.jpg">
+
+9. This is the cruelest of office pranks.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268879.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268882.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268884.jpg">
+
+12. This should spice things up in a bunch of different scenarios.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268875.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268895.jpeg">
+
+14. Yeah whoever invented this quote was probably already wealthy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268877.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268896.jpeg">
+
+16. Pss pss pss pssp.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268876.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268898.jpeg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268904.png">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268909.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268910.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100528/87270094/87267445.jpg">
+
+22. I know there are some dudes are in their feelings right about now.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87268883.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100530/87270095/87267442.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100532/87270096/87267446.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100534/87270097/87267447.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100539/87270099/87267455.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100541/87270100/87267456.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100542/87270101/87267461.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100545/87270103/87267464.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100547/87270104/87267465.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100548/87270105/87267466.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100550/87270106/87267471.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100552/87270107/87267473.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100554/87270108/87267474.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100555/87270109/87267475.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100557/87270110/87267477.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100558/87270111/87267481.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/2022/09/15/100558/87270112/87267443.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85354248/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87268871/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">Pics That Prove There Is No Shortage Of Crazy In The World</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156960.jpg">
+## <a href="#link3" id="link2">Woman's Hilarious Guide To Get Ready For A New Year's Party</a>
+1. Start with a bubble bath... WAIT! Too much foam.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226946.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156986.jpg">
+2. You can also take a mud bath to have a nicer skin but remember to do that BEFORE the bubble bath... I SAID BEFORE!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226947.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156963.jpg">
+3. Ok another bubble bath. This time use less... Not again!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226948.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/2016/10/05/021758/85157613/these-crazy-things-happened-in-florida-in-2012-25.jpg">
+4. Time for a shave, a very time consuming task, so give yourself plenty of time!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226949.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156985.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226950.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156987.jpg">
+6. Time for a beauty mask. It's a secret women don't like to share but...
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226951.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156962.jpg">
+7. Don't overdo it or you'll look like a Kabuki Mask!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226955.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156972.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226952.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156968.jpg">
+9. BTW remember to take a selfie ;p
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226953.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/2016/10/05/021733/85157611/asda.jpg">
+10. Even if you turned into a Ninja Turtle.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226954.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156964.jpg">
+11. Also remember things like fresh cucumbers are good for the skin...
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226956.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156988.jpg">
+12. Now do your eyes...
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226958.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156966.jpg">
+13. and hair...
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226959.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156967.jpg">
+14. Now the final touches and...
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226962.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156970.jpg">
+15. ... voila. Two days later you are ready to party!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226963.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156971.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156961.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156973.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156974.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156978.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156979.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/2016/10/05/021720/85157610/9505749298595056_697e406e.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156980.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156984.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156989.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85156990.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/2016/10/05/021745/85157612/the_internet_is_responsible_for_bringing_us_these_crazy_things_640_43.jpg">
+16. Wishing you all a Happy New Year!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85226964.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85156959/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85226945/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">50 Times We Laughed Our Asses Off On Tumblr</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405752.jpg">
+## <a href="#link4" id="link3">15 Times Actors and Actresses Were NOT Faking Their Sex Scenes </a>
+1. In Little Ashes, Twilight star Robert Pattinson has a scene where he pleasures himself. Many people found his performance to be a little too convincing. Pattinson would later reveal he absolutely did the deed just below camera saying there was no way he could properly portray the scene without actually following through with the act.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191016.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405753.jpg">
+2. In Lie With Me, Eric Balfour and Lauren Lee Smith made no qualms about their explicit, real sex and never even denied it. That would essentially make this a porn, no?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191017.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405754.jpg">
+3. I am sure this comes as a huge shocker, but there are rumors that much of the sex in this film did in fact actually happen. The only participants to actually come clean, however, are Shia Labeouf and Stacy Martin. Martin has since back tracked and said it didn’t actually happen, but knowing Lars Von Trier, I tend to side with debauchery.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191018.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405755.jpg">
+4. It was the wild 70’s, so this may be even less surprising than the last, but some of the sex and fellatio scenes in this movie really took place. Maybe most shocking is that the actors who participated, Helen Mirren and Malcolm McDowell, turned out to be highly respected actors. And Mirren is an absolute fox.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191019.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405756.jpg">
+5. Here’s that Lars Von Trier guy again. Surprise surprise. His last movie on this list dealt with sexual addiction, while this one is more about relationships, but the result is still the same. Explicit and real sex. Copious amounts. All of the intercourse and masturbation is real, with the film’s producers saying, “Without the sex scenes, the film’s drama would fall apart.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191020.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405757.jpg">
+6. The Brown Bunny has perhaps the most well-known non-simulated sex scene. In this film, Chloe Sevigny gives co-star and Director (wonder who did the casting for this?) oral sex all on camera. No body doubles. No trick dick. This is the real deal.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191021.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405758.jpg">
+7. Perhaps the most influential Blaxploitation film, is more regularly remembered for the very authentic and graphic sex scenes. Of course, they look real because they are. According to Melvin Van Peebles, he even got the STD to prove it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191022.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405759.jpg">
+8. Director John Waters may be almost as famous as Von Trier for his propensity to push the envelope and stir controversy. In Pink Flamingos, over-the-top drag queen Divine gives completely authentic oral sex to her son… This comes after she eats dog shit. Must see?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191023.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405760.jpg">
+9. Perhaps the only tandem to be more infamous than famous for their real sex scene, Kieran O’Brien and Margo Stilley admitted to really doing the duty, even after being voted one of the worst sex scenes of all time.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191024.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405761.jpg">
+10. Perhaps it’s not too surprising that the French, known to push the envelope artistically, would have a film make this list. Baise-moi is a film about rape-revenge featuring some brutal unsimulated sex.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191025.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405762.jpg">
+11. Over four decades ago, Donald Sutherland and Julie Christie engaged in one of the hottest damn sex scenes ever on film. For the day and age it was shot, it destroyed the boundaries of main stream Hollywood sex scenes. Since then, Christie has all but confirmed the rumors that their red hot on film action, was the real deal.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191026.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405763.jpg">
+12. In the HBO series, Anna Paquin and Stephen Moyer have some steamy as hell sex scenes. Many, including people on the sets have said they were definitely not faking it, but the couple have never confirmed. Ooooh Sookie Sookie!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191027.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405764.jpg">
+13. All kinds of rumors came out about Sienna Miller’s smoking hot sex scene with Hayden Christensen in Factory Girl. Many people accused and claimed the scene was in fact real. Miller has denied it from day one, saying she’s just that good of an actress, but I think we all know that’s not true. I am going to choose to believe she’s a dirty dirty girl and got nasty on camera. For journalistic reasons.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191028.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405765.jpg">
+14. On this track by The Notorious B.I.G. there is background noise that sounds a little too much like Biggie getting a hummer. Puff Daddy later confirmed in a interview that you’re hearing exactly what you think you are.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191029.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405766.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405767.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405768.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405769.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405770.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405771.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405772.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405773.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405774.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405775.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405776.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405777.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405778.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405779.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405780.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405781.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405782.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405783.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405784.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405785.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405786.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405787.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405788.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405789.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405790.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405791.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405792.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405793.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405794.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405795.jpg">
-
-45.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405796.jpg">
-
-46.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405797.jpg">
-
-47.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405798.jpg">
-
-48.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405799.jpg">
-
-49.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405800.jpg">
-
-50.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85405801.jpg">
+15. In the video for Marilyn Manson’s Heart Shaped Glasses, the singer engages in some seriously convincing sex with then girlfriend Evan Rachel Wood. Neither star has confirmed it was the real deal, but Manson is on record saying Wood got paid the most money anyone ever has for appearing in a music video for a reason…
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85191030.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85405751/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85191015/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">Confused Mom Absolutely Refuses To Believe She's Texting The Wrong Number</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340718.jpg">
+## <a href="#link5" id="link4">This Guy Trolled Thousands Of People With Two Photos</a>
+1. When this guy posted this photo people were wondering what is in the red circle. Some of them even claimed to see a wolfish shape.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85252210.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340719.jpg">
+2. The next photo caused some to write: "I'm never going in the woods again."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85252211.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340720.jpg">
-
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340721.jpg">
-
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340722.jpg">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340723.jpg">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340724.jpg">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340725.jpg">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340726.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340727.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340728.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85340729.jpg">
+3. When this photo revealed everyone got trolled they got furious. Things got heated, bad language and insults were posted. Here are some comments- "Oh you fucker I was staring at my screen like an idiot", "I hate you", "I fucking zoomed in so hard. My eyes hurt from squinting", "I was even staring at that last picture for a bit". Well played Wood Troll, well played.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85252212.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85340717/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85252209/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">9 Deep Sea Creatures That Are F**king Terrifying!</a>
-1. Anglerfish
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85332263.jpg">
+## <a href="#link6" id="link5">22 Fascinating Facts That Will Give Your Brain Something To Do</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356107.jpg">
 
-2. Stoplight loosejaw
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85332264.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356126.jpg">
 
-3. Black Scabbardfish
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85332265.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356109.jpg">
 
-4. Deep Sea Redfish
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85332266.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356114.jpg">
 
-5. Chimaera
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85332267.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356110.jpg">
 
-6. Lumpsuckers
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85332268.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356123.jpg">
 
-7. Soft Leftvent Angler
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85332269.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356108.jpg">
 
-8. Sea spider
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85332270.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356111.jpg">
 
-9. Frilled shark
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85332271.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356112.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356113.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356116.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356115.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356117.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356118.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356119.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356120.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356121.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356122.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356124.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356125.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85356128.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/112504/85356315/TTT.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85332262/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85356106/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">11 Viral Photos That Have Been Debunked as Fakes</a>
-1. "What happened to a rainforest over the course of 10 years."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894080.jpg">
+## <a href="#link7" id="link6">35 Designers Who Had One Job, And Failed Spectacularly.</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394187.jpg">
 
-2. This photo collage became a hit thanks to the popular #10YearChallenge. The picture is accompanied by text that says that every year, 46,000 to 58,000 square miles of forest are lost to deforestation. The photo looks real especially because of the logo in the right corner. But in fact, this is not a collage of 2 pictures taken 10 years apart, it is one picture from a photo stock. It shows Malasia where the rainforest was removed to increase the territory for growing palm trees.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894081.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394188.jpg">
 
-3. A photographer captures a perfectly timed photo of a man cooking rice.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894082.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394189.jpg">
 
-4. Well, it turns out the rice is actually fake. In fact, everything is fake. It’s simply a sculpture that you can buy in a shop in Tokyo.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894083.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394190.jpg">
 
-5. A graffiti scene perfectly reflected in the water.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894084.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394191.jpg">
 
-6. This photo became a hit on many websites. But the truth is, it was edited. Yes, this graffiti really exists and the building is located in Mariampol, Lithuania. And the author of the picture is a street artist named Ray Bartkus who drew the picture upside-down on purpose — for it to be reflected in the water. But the best time to see the picture is when there is no wind and the surface is perfectly smooth. Otherwise, the picture looks like this. See how the reflection in the first photograph was edited?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894085.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394192.jpg">
 
-7. A lynx and a deer were found in an office under a table. They were hiding from fires in California.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894086.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394193.jpg">
 
-8. “A fawn and a bobcat cub found under a desk in an office building after the California forest fire rolled through” is what the caption for the viral photo said on Reddit, Twitter, and other social media sites. Yes, the photo is real but it’s posted every time a forest fire breaks out somewhere in the US. And the caption is different every time. The picture was taken in May 2009 in a building that is owned by a non-commercial team of animal rescuers. During a fire in Santa Barbara, California, these cute animals were found not far from Arnold Schwarzenegger’s ranch. And because there were no cages, the fawn and the lynx had to be put in an office. The lynx just ran toward the deer and lied down next to it. By the way, one of the rescuers took the animals home because he was worried they would not survive in the wild. Later, he even shared a video with the grown-up lynx — he turned out to be very cute!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894087.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394194.jpg">
 
-9. The New Year in Paris.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894088.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394197.jpg">
 
-10. This popular picture shows hundreds of fireworks that were supposedly launched in Paris on New Year’s Eve. Unfortunately, the photo is fake and we found several pieces of evidence. First of all, on New Year’s Eve, the fireworks are launched from the Eiffel Tower. Secondly, all the fireworks in the photo are at the same distance from the camera. And finally, the Internet users who live in Paris claim that this is a fake picture. Just take a look at the picture of the real fireworks show above the Eiffel Tower on July 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894089.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394195.jpg">
 
-11. A dog sleeping on the grave of its owner every night for 7 years.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894090.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394196.jpg">
 
-12. Almost 60,000 likes and more than 55,000 shares were made by users when they saw the post about a dog that sleeps on a tombstone. The caption says that the dog named Captain has been visiting his owner’s grave for the last 7 years and sleeping there until morning. This photo is absolutely real and so is the story. The problem is, they’re not connected. For example, the same story was linked to a different dog sleeping on a grave as well.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894091.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394198.jpg">
 
-13. A typical day in Russia”. You can see this photo with a similar title (for example, “Polar Express”) on the Internet. It is said that the photo shows a real white bear getting off the tram somewhere in Russia. You’d be surprised but the photo is absolutely real — it was taken in a town in the Czech Republic and it wasn’t edited. But the bear is not real — it’s a costume that 2 Greenpeace activists were wearing. This “bear” was a part of the campaign, Save the Arctic. It “walked” in European cities to attract attention to the problems in the Arctic.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894092.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394199.jpg">
 
-14. A goose frozen to a pipe warmed a puppy with its wing. At the end of January, hundreds of thousands of people on social media liked and shared the photo of a shivering goose that froze to a pipe and was warming a puppy with its wings. Allegedly, they were found in Montana. Even though the photo seems to be real, it was taken a very long time ago and most likely, it wasn’t in the US. And on top of all that, the story itself is most likely a lie. These pictures have been shared on Chinese websites since 2017. The earliest post we were able to find was made in March 2017 on NetEase — it’s is a Chinese news platform. The text under these photos says that the puppy was sitting at the side of the road, freezing. Ducks were passing by and the puppy ran toward one of them and it covered it with its wing. NetEase actually allows users to post their own content. So that means that they give their own description to the photos and there is no way to find out if the photo is real or not.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894093.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394200.jpg">
 
-15. A mountain shaped like a turtle’s head.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894094.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394201.jpg">
 
-16. In January 2019, Amazing Nature on Facebook posted a photo that shows a mountain that looks like a turtle. The post went viral but this mountain doesn’t actually exist — the photo was made by combining several pictures. For example, here are 2 of them.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894095.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394202.jpg">
 
-17. A megalodon’s tooth in a whale vertebrae. The photo above shows fossils that look like a megalodon’s tooth and a whale’s bone but they were found in different places at different times. But one talented seller just combined them into one sculpture. This is what the owner of the artifact said about it. And if this were a real megalodon’s tooth stuck in a whale’s vertebrae, it would cost millions of dollars and would most likely be in an archaeological museum.By the way, this photo was first found online in 2012 and you could even buy the “artifact” for just $125.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894096.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394203.jpg">
 
-18. A cruise ship dumping waste into the sea. The caption to this photo that was published on Facebook not long ago says that this cruise ship is dumping waste right into the sea. This post went viral and users started leaving bad comments and even the national director on the environment of Uruguay had to provide an explanation. In his Twitter account, he wrote that this photo shows the cruise ship starting its turbines in order to drop an anchor. And the brown spots are the sand and the sludge from the bottom.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85894097.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394204.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394205.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394206.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394207.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394208.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394209.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394210.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394211.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394212.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394213.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394214.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394215.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394216.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394217.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394218.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394219.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394220.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394221.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85894079/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85394186/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">23 Disturbing Facts That Will Chill You to the Bone</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416684.jpg">
+## <a href="#link8" id="link7">The Funniest and Most Savage Tweets of the Week</a>
+1. Not so fast yo, your credit is trash.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235688.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416685.jpg">
+2. Not all cats are created equal. Some cats are killers and some cats are lovers and that's just fine.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235689.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416686.jpg">
+3. The internet never forgets.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235690.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416687.jpg">
+4. I'm not sure which one is better.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235691.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416688.jpg">
+5. These people couldn't be more wrong. Tiramisu is a top tier dessert and if you don't like it that because you never had the good stuff.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235692.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416689.jpg">
+6. Umm, okay?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235693.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416690.jpg">
+7. At least they use your tax money to give billion-dollar corporations tax write-offs, so that's cool.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235694.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416694.jpg">
+8. Get a room.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235695.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416697.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235696.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416691.jpg">
+10. I will take this info to my grave.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235697.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416692.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235698.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416693.jpg">
+12. Lmao, if you know you know.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235699.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416695.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235700.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416696.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235701.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416698.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235702.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416699.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235703.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416700.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235704.png">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416701.jpg">
+18. if you don't get out the anger in a draft you will forever have to live with the consequences of being left on read.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235705.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416702.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235707.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416703.jpg">
+20. Can braille touchers here to confirm?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235708.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416704.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235709.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416705.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235710.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85416706.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235711.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235712.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235713.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235714.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235715.png">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235716.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235717.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235718.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87235719.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85416683/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87235687/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">Interesting History Facts They Didn't Teach You In School</a>
-1. “A bizarre incident in 1704 might have seen G.F. Handel's composing career cut tragically short after a set-to with fellow composer Johann Mattheson. For reasons apparently unknown, the two had a fierce quarrel in which Mattheson almost killed Handel with his sword, which fortunately struck a brass button on Handel's chest rather than the chest itself.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185302.jpg">
+## <a href="#link9" id="link8">Oksana Neveselaya Makes Teaching Math Sexy</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428845.jpg">
 
-Had the metal button not saved Handel's life, his famous oratorio Messiah (with its "Hallelujah Chorus") would never have been composed.” - Back2Bach
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185303.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428846.jpg">
 
-2. “The odyssey of Helmut von Mücke during ww1. Dude got stranded with a boarding crew on an island in Indonesia, sailed across the Indian Ocean on a stolen Dutch boat, traveled through Arabia and turkey while trying to not get involved in the Arab revolt, and finally got home via Istanbul. Dude wrote a book about his adventures and became a pacifist because every one of his man he guided in this journey later died in the war.” - R3v1cu7
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185304.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428847.jpg">
 
-3. “Mansa musa who btw was the richest man who ever lived. He was born in Mali which is in Africa and African history is very underrated.” - t-oseni
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185305.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428848.jpg">
 
-4. “I'm originally from Fiji! There's a phrase I love from a British General's journal which I will find as much opportunity to quote. Indians were brought to Fiji to work the fields by the British because "...these Fijians have no concept of the industry!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185306.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428849.jpg">
 
-Once they have met their needs for the day, they simply leave and outrageously spend the rest of their time in leisure!" Certain kinds of bosses haven't changed much I reckon :P” - ValBravora048
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185307.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428850.jpg">
 
-5. “Belgian king Albert the first. During World War One he actively took command of the Belgian military and at times was in the trenches with his men. As far as I’m aware he’s the only king to do that during the First World War. He’s a war hero. Sadly he’s overshadowed by his predecessor Leopold II (known for the atrocities in Congo) and his successor Leopold III (who caused a major political divide after the Second World War that is still a problem to this day).” - Petrus_Rock
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185308.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428851.jpg">
 
-6. “This is a short version of the story, but.. The "White House," presidential building of the USA, got its name following the war of 1812. America failed to cross the Niagara river and invade Canada. The Canadian forces then crossed over the river, pushed the Americans back, and kept pushing deeper and deeper, all the way to the presidential building. They set it on fire. Afterward, the building was repainted entirely white and thus became known as "The White House." - Castle_of_Aaaaaaargh
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185309.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428852.jpg">
 
-7. “This isn't talked about much because of how heartbreaking it is. That started WW2 when pearl harbor was bombed in Hawaii, on one of the vessels that were bombed and sunk to the ocean floor actually had people alive in it locked in an air-tight room. So for like two weeks, there were these 2-4 people trapped in the air-tight room. The military couldn't get them out because if they tried to open the room the pressure would kill the people inside instantly or something along those lines.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185310.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428853.jpg">
 
-Their screams could be heard when they yelled for help, and people were stationed to listen for when they stopped so they knew when the people had... Yk passed.. it was such a mental toll on the people stationed there that people literally couldn't do it. Their friends are right there yet so far… After about two weeks, the screams stopped and they opened the room. They found the bodies and they had scratched tallies into the wall on how long they were there. It was hard to tell if they had died from lack of water, food or ran out of oxygen… They were cremated and their ashes lie with the boat. War sucks.” - UserNotFound44
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185311.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428854.jpg">
 
-8. “It's more a fun history fact. I've recently read about Joseph Menck, the last knight of Bohemia. He was a history buff from inter-war Czechoslovakia. He lived in a ruined castle near German borders, was teaching local children history, and lived to the medieval code of honor. In 1938 when Wehrmacht attacked his village, he took his armor on and mounted his horse.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185312.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428855.jpg">
 
-Then he rode out and blocked the road. Nazis thought he was crazy and let him live. He didn't achieve any victory, but the man definitely had balls of steel. These are the stories that are largely forgotten but should be taught about. Single acts of bravery from people who decided to not give up. People like Mencik or the Tiananmen square man show us that even a single human can resist evil.” - Jirik333
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185313.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428856.jpg">
 
-9. “The Battle of Myeongryang: Thirteen Korean Ships vs 330 Japanese ships.” - Matt872000
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185315.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428857.jpg">
 
-10. “The Nazis gave their soldiers drugs. Especially meth. Why did they not teach this in school?! An anti-Nazi lesson combined with the “drugs are bad narrative”. Schools should be all over this shit!” - FuntionalityOfReddit
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87185316.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428858.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428859.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428860.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428861.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428862.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428863.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428864.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85428865.gif">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87185301/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85428844/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">24 Funny Memes With Subtle Undertones of Dank</a>
+## <a href="#link10" id="link9">15 Dirty Memes To Satisfy Your Low Brow Urges</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227049.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205147.png">
 
-2. When you and your friend miss your stop and suddenly you realize you're going to that OTHER part of town
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227042.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205148.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227043.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205149.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227044.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205150.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227045.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205151.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227046.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205152.png">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227047.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205153.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227048.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205154.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227050.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205155.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227051.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205156.png">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227052.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205157.png">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227053.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205158.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227054.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205159.png">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227055.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205160.png">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227056.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227057.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227058.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227059.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227060.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227061.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227062.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227063.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87227064.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85205161.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87227041/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85205146/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">21 Images That Will Make You Cringe Hard</a>
+## <a href="#link11" id="link10">Week One NFL Memes for Victory Monday (Or Lack Thereof)</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259559.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013526/87267896/IMG_4966.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259560.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013527/87267897/IMG_4963.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259562.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013529/87267898/IMG_4967.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259563.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013531/87267899/IMG_4968.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259565.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013532/87267900/IMG_4965.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259577.png">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013534/87267901/IMG_4971.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259561.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013536/87267902/IMG_4972.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259576.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013544/87267906/IMG_4975.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259566.png">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013538/87267903/IMG_4969.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259567.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013540/87267904/IMG_4974.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259564.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013546/87267907/IMG_4978.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259568.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013547/87267908/IMG_4970.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259569.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013549/87267909/IMG_4980.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259570.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013551/87267910/IMG_4981.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259571.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013542/87267905/IMG_4973.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259573.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013552/87267911/IMG_4976.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259572.png">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013554/87267912/IMG_4982.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259574.png">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013556/87267913/IMG_4984.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259578.png">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013557/87267914/IMG_4983.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259575.png">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85259579.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/09/12/013559/87267915/IMG_4985.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85259558/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87267895/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
