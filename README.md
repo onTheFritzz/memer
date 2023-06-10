@@ -1,1118 +1,1856 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 06.10.2023-07:45:18<br>All credits to ebaumsworld.com
+Last Updated 06.10.2023-10:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">21 Times People Were Confidently Incorrect</a>
-1. Even the comment wasn't properly executed.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124511/87281084/2ci2.png">
+## <a href="#link1" id="link0">There's Something Very Suspicious About These Photos...</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421524.jpg">
 
-2. Real freedom is correctly knowing how far away things are.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124515/87281085/2ci3.png">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421525.jpg">
 
-3. You CAN. Just like you CAN run around on the highway.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124518/87281086/2ci4.png">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421527.jpg">
 
-4. I mean, technically... no you can't.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124520/87281087/2ci5.png">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421528.jpg">
 
-5. The real question is, where did you get any of this information?
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124608/87281100/2ci17.png">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421529.jpg">
 
-6. Basic biology might be a course to retake.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124528/87281089/2ci7.png">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421530.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124529/87281090/2ci8.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421531.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124617/87281104/2ci184.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421533.jpg">
 
-9. Maybe "equals" wasn't the best symbol for this one.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124615/87281103/2ci183.png">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421534.jpg">
 
-10. Rising ocean levels apparently do not affect connected gulfs.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124534/87281091/2ci6.png">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421535.jpg">
 
-11. Guys he even sited his sources.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124539/87281092/2ci9.png">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421536.jpg">
 
-12. In an unsurprising turn of events... everybody's wrong!
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124557/87281096/2ci14.png">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421537.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124549/87281094/2ci12.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421538.jpg">
 
-14. The devil's doorbell is actually a pretty fun euphemism.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124602/87281097/2ci15.png">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421539.jpg">
 
-15. Hmm... girls choosing other men over you has to be because you're too alpha... wait I thought alpha men were the ones with the girls?
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124552/87281095/2ci13.png">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421540.jpg">
 
-16. Don't think it's atheism at fault for this one.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124606/87281098/2ci10.png">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421541.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124606/87281099/2ci16.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421542.jpg">
 
-18. Let's leave these comments to people who have been near a woman.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124611/87281101/2ci181.png">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421543.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124614/87281102/2ci182.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421526.jpg">
 
-20. The only issue is that one of those actually isn't a word.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124522/87281088/2ci1.png">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421544.jpg">
 
-21. Good luck to this guy trying to find the men's room on his next flight.
-<img src="https://cdn.ebaumsworld.com/2022/10/03/124542/87281093/2ci11.png">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421545.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421546.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421547.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421548.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421549.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421550.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421552.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421551.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421553.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85421532.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87281083/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85421523/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">30 Worn Down Items That Show the Power of Time</a>
-1. “Knife At My Work That Is Halfway Gone From Sharpening”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229871.jpg">
+## <a href="#link2" id="link1">15 People Admit the Grossest Thing They Do With Their Significant Other</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293302.png">
 
-2. “Just Found An Old Roll Of Biodegradable Poop Bags, They Really Do Disintegrate Like Advertised”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229872.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293308.png">
 
-3. “Old Gold/Copper Crayola Crayons That Turned Green From Oxidation”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229873.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293304.png">
 
-4. “30 Years Ago, My Grandfather Encased This Meatball In Epoxy”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229874.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293316.png">
 
-5. .
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229875.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293306.png">
 
-6. “My Parents Got This Spray Bottle Of Windex In 1979 And Have Been Reusing It Ever Since”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229876.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293307.png">
 
-7. “I Found This Leaf With Only It’s ‘Veins’ Remaining”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229877.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293313.png">
 
-8. “You Can Tell Where People Tend To Line Up At This Brooklyn Hardware Store By Where The Linoleum Tile Has Been Worn Away To Reveal The Original Ceramic”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229878.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293303.png">
 
-9. “I Went Into The Office For The First Time Since March 2020 And Found The Kiwi I Left In My Desk”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229879.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293309.png">
 
-10. “This Tree Eating A Postbox”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229880.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293310.png">
 
-11. “This Brick Wall Got Smoothed Into A Rock”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229881.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293311.png">
 
-12. “I Accidentally Left My Iron Man Canvas Out In The Rain And Inadvertently Improved The Original Design”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229882.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293312.png">
 
-13. “A Seesaw (Teeter-Totter) In My Local Playground Where Thousands Of Little Feet Have Worn Through The Asphalt”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229883.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293305.png">
 
-14. “Bathrooms At My Engineering University”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229884.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293314.png">
 
-15. “The One And Only Basketball That Lives At The Local Park And Somehow Still Bounces”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229885.jpg">
-
-16. “About Time I Bought Some New Work Boots”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229886.jpg">
-
-17. “This Jack O Lantern With Mold Growing From Inside”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229887.jpg">
-
-18. “Nature Swallows A Car In Hawaii”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229888.jpg">
-
-19. “My Nana Has Been Using The Same Deck Of Cards For 10 Years And They’ve All Grooved To Her Hand Placement During Shuffling”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229889.jpg">
-
-20. “The Knife At The Left Was Used By A Butcher For 5 Years Straight. The One At The Right Is The Exact Same Knife, But Brand New”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229890.jpg">
-
-21. “Found Some Change That Had Been In The Brushes In The Clothes Dryer”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229891.jpg">
-
-22. “1,800-Year-Old Roman Leather Sandals On Display At Vindolanda Fort In Northumberland, England”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229892.jpg">
-
-23. “This Sun-Worn Sign Outside My Office That Looks Like It Belongs In A Horror Film”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229893.jpg">
-
-24. “The Wear And Scuff-Marks On This Boat Look Like An Island In The Sea”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229894.jpg">
-
-25. “60-Year-Old Unopened Pepsi Bottle”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229895.jpg">
-
-26. “Faded Sign From The ‘War On Drugs’ Era”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229896.jpg">
-
-27. “Exact Center Seat, 3rd Row From The Back Of The Theater Gets A Lot Of Use”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229897.jpg">
-
-28. “Years Of A Lock Grinding On A Brick”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229898.jpg">
-
-29. “This Whiteboard Eraser Has Definitely Seen More Than Its Fair Share Of Use”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229899.jpg">
-
-30. “This Is The Same Doll, One After 32 Years Of Love, The Other Still Pristine”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229900.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85293315.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87229870/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85293301/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">54 Of The Dankest Memes Of The Week</a>
+## <a href="#link3" id="link2">25 Hilariously Savage Roasts That Nuked People</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248150.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306020.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248151.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306017.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248152.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306006.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248153.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306007.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248154.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306008.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248155.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306009.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248156.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306010.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248157.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306011.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248159.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306012.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248161.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306013.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248160.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306014.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248162.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306015.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248163.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306016.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248164.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306018.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248165.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306019.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248166.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306005.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248167.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306021.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248168.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306022.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248169.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306023.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248170.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306024.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248171.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306025.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248172.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306026.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248173.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306027.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248174.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306028.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248175.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248176.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248177.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248178.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248179.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248180.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248181.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248182.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248183.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248185.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248186.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248187.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248188.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248189.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248191.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248192.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248193.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248194.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248195.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248196.jpg">
-
-45.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248197.jpg">
-
-46.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248198.jpg">
-
-47.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248199.jpg">
-
-48.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248200.jpg">
-
-49.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248201.jpg">
-
-50.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248202.jpg">
-
-51.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248203.jpg">
-
-52.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248204.jpg">
-
-53.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248205.jpg">
-
-54.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85248206.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87306029.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85248149/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87306004/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">18 Fresh Memes For Incredibly Online People </a>
+## <a href="#link4" id="link3">42 Fun Photos To Fuel Your Day</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300904.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437350.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300905.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437351.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300906.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437352.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300907.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437353.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300908.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437354.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300909.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437355.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300910.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437356.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300911.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437357.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300912.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437358.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300913.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437359.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300914.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437360.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300915.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437361.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300916.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437363.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300917.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437364.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300918.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437365.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300919.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437366.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300920.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437367.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87300921.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437368.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437369.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437370.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437371.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437372.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437373.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437374.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437375.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437378.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437379.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437380.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437381.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437382.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437383.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437384.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437385.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437386.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437387.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437388.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437389.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437390.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437391.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437392.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437393.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85437394.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87300903/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85437349/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">41 Memes And Pics That Will Improve Your Mood</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224775.jpg">
+## <a href="#link5" id="link4">50 Scary Stories From Each State In America</a>
+1. ALABAMA-  In 1858 a steamboat named Eliza Battle set out on a cruise down the Tombigbee River, carrying 60 passengers and more than 1200 bales of cotton from Columbus, Mississippi, down to Mobile, Alabama. But on March 1, an unseasonably cold night, the cotton caught fire and quickly engulfed the ship in flames. It was the greatest nautical disaster in the river’s history, leaving 33 passengers and crew dead. On brisk and chilly nights, people sometimes see the burning Eliza Battle rising from the misty waters where it sank
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492210.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224776.jpg">
+2. ALASKA -During the Klondike Gold Rush, a woman named Mary moved into the Golden North Hotel in Skagway with her fiancé, a prospector known as “Klondike Ike.” Before their marriage, Ike set off for the gold fields to make his fortune. But Ike never returned. Mary locked herself in their room and waited, her anxious anticipation of Ike’s arrival turning to dread and despair. The innkeepers eventually broke down the door and found Mary dead in her wedding dress. Guests at the Golden North Hotel report that “Scary Mary” still roams the halls, appearing over their beds
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492211.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224778.jpg">
+3. ARIZONA-
+The Hotel Monte Vista in Flagstaff, opened along Route 66 and reportedly houses a whole host of ghostly guests. In fact, John Wayne reported one of the hotel’s first ghost sightings in the late 1950s. Ever since, guests and staff have reported dozens of spirits stalking the halls, including a phantom bellboy who knocks on doors and disappears, the eccentric specter of a boarder who liked to hang raw meat from the chandelier, and a ’70s bank robber
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492212.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224779.jpg">
+4. ARKANSAS-During the Civil War, Union General Frederick Steele (above) commandeered the home of a mailman named John Chidester to use as his headquarters during the battle of Poison Spring. Chidester had been accused of espionage for turning over Union mail to Confederate troops. To this day, bullet holes remain in an upstairs wall of Chidester’s house, where Union soldiers fired at random, hoping to hit the alleged spy as he hid in a small closet. Paranormal investigators say his spirit remains, too, turning up in photographs and shouting “Get out!” to unwanted visitors. The home, which stands as a museum today, is open for tours so that you can see for yourself.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492213.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224780.png">
+5. CALIFORNIA-Alcatraz was the site of reputed hauntings long before hosting the famous prison (Native American spirits reportedly roamed it then and now), but today one of the most famous stories is of a prisoner from cell 14D. The story goes that the prisoner spent the night in solitary confinement, screaming that a creature with glowing eyes was trying to kill him and pleading for help. The guards ignored him, but the next morning, they found the prisoner strangled to death—with strange wounds doctors said could not have been self-inflicted.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492214.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224777.jpg">
+6. COLORADO-The Buffalo Rose Saloon in Golden, Colorado doesn't have much choice but to admit one underaged patron: It's believed the ghost of a girl who drowned in a swimming pool located in the saloon's basement back in the 1920s still roams the building, skipping up and down stairs and making employees slightly nervous. The former site of the pool is said to be particularly unsettling, with the bar's overnight custodian, Seth Barry, describing it as "very bad. Sometimes you can't go [down] there."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492215.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224783.jpg">
+7. CONNECTICUT-In 1970, famed paranormal investigators Ed and Lorraine Warren were called to combat the spirit of “Annabelle,” a demonic presence attached to a giant Raggedy Ann doll. For weeks the doll had thoroughly freaked out its owner, Donna, moving from room to room, leaving handwritten notes, and even attacking a friend who suggested Donna get rid of the doll, choking him in his sleep. Finally, a priest exorcised the doll and the Warrens locked it away in a special case designed to check its malevolent influence. But even that wasn’t enough to save one brash visitor to the Warrens’ museum, who reportedly taunted the doll and died in a motorcycle crash on his way home.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492216.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224787.jpg">
+8. DELAWARE-Since 1965, Woodburn has served as the official residence of Delaware’s governor. But more than a century before that, it became known as a home to more than one apparition. Around 1815, the home’s owners were entertaining Lorenzo Dow, a well-known Methodist clergyman. When the group sat down to breakfast one morning, Dow asked if their other guest would be joining them … but there was no other guest. When Dow described the man he had seen the evening before, it became clear that it was Charles Hillyard III (the late father of the home’s then-owner). Rumor has it that if you leave out a glass of good wine at night, it might be gone in the morning: Hillyard was a bona fide oenophile. Sounds like the kind of ghost we could hang with.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492217.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224781.jpg">
+9. FLORIDA-The Don CeSar hotel in St. Pete Beach, Florida, was built by Thomas Rowe and named for a character in the opera Maritana. Rowe had attended the opera during his time as a student in London, and he fell head over heels for its star, a Spanish aristocrat named Lucinda. They regularly met at a fountain in the city and made plans to sail to America and be married. But Lucinda’s parents didn’t approve of their romance and took her back to Spain. He wrote her faithfully, but his letters were returned unopened. Only one letter of Lucinda’s ever reached Rowe. “Time is infinite,” she wrote. “I wait for you by our fountain … to share our timeless love, our destiny is time.” According to legend, Lucinda died of a broken heart; Rowe, who said he would never love anyone else, would go on to build his hotel. It was completed in 1928 and features an exact replica of the fountain where the lovebirds spent happier times. Rowe’s ghost has been spotted on the beach, on the hotel’s fifth floor and in the lobby, and in the garden, where he is sometimes seen holding the hand of a woman believed to be Lucinda.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492218.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224782.jpg">
+10. gEORGIA-When the Army Corps of Engineers flooded the foothills of the North Georgia mountains to create Lake Lanier in the 1950s, 59 square miles of farmland, homes, and businesses disappeared beneath the water. In the process, the federal government relocated more than 250 families—along with 20 cemeteries and all their corpses. A nasty streak of freak accidents and mysterious drowning deaths have convinced locals that the lake has been cursed ever since. Some people who have survived near-drownings at the lake have reported feeling hands dragging them down beneath the surface.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492219.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224784.jpg">
+11. HAWAII-According to legend, the fire goddess Pele and a hog-faced demigod named Kamapua’a had a star-crossed love affair. The lovers were elemental opposites: Pele’s lava flows brought flame and destruction, while Kamapua’a restored rain, vegetation, and animal life. Ultimately they decided to part forever, with Pele claiming one side of Oahu for fire and Kamapua’a retreating to the other side, where all is wet and lush. Today, Hawaiian motorists are careful never to drive with pork in their car along the old Pali highway, which crosses Oahu. According to legend, carrying pork—representing hog-faced Kamapua’a—over to Pele’s side of the island will enrage her spirit, and she will get her revenge by making the car stall until the driver throws the pork out the window.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492220.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224785.jpg">
+12. IDAHO-When it comes to abandoned buildings, penitentiaries might rank only slightly behind psychiatric hospitals in creep factor—and the Old Idaho Penitentiary, with its built-in gallows and death row, may be one of the country's creepiest. Between 1872 and 1973, the Boise prison served as a temporary home to more than 13,000 prisoners—including Raymond Allen Snowden, a.k.a. "Idaho's Jack the Ripper." Some believe he still haunts what is known as 5 House, where the prison's gallows were located. On October 18, 1957, Snowden was brought here to be executed, but the noose that should have broken his neck didn't; it took 15 minutes for him to suffocate. In the years since, visitors to the "Old Pen" have reported strange happenings in 5 House and other areas of the former prison, such as hearing odd sounds and voices and being overcome by strong feelings of sadness. The prison is open to the public year-round for paranormal enthusiasts who want to test their mettle.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492221.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224786.jpg">
+13. ILLINOIS -In the depths of the Great Depression, the Oh Henry Ballroom southwest of Chicago drew young people hoping to dance away their troubles. One night, a teenage girl named Mary had a fight with her boyfriend at a dance and decided to walk home along Archer Avenue. She was killed by a hit-and-run driver and buried nearby in Resurrection Cemetery. Since then, residents have described a girl in a white party dress hitchhiking along the avenue. A cab driver even picked her up, and she asked to be taken to the cemetery. But by the time they arrived at the gates, Resurrection Mary had vanished.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492222.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224789.jpg">
+14. INDIANA -The tiny township of Tunnelton was named for the number of railroad tunnels constructed around it, beginning in the 1850s. One of them, Tunnelton Tunnel (a.k.a. The Big Tunnel), is one of the Hoosier State's most feared landmarks. Reportedly, there are a few ghosts who refuse to leave the area, including a man who was beheaded in an accident during the tunnel's construction and still roams the grounds with his head in one hand and a lantern in the other. But the most famous of this tunnel's tenants is Henry Dixon. In 1908, the body of Dixon—who worked as a night watchman for the railroad—was found just inside the tunnel with a gash to the back of his head, his lantern still lit beside him. Dixon's murder was never solved, and locals claim that he still haunts the area seeking justice for his death.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492223.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224788.jpg">
+15. IOWA -Coe College in Cedar Rapids is said to be haunted by the ghost of a freshman named Helen Esther Roberts, who died after becoming ill in the 1918 flu pandemic. As legend has it, the ghost of Roberts set up residence in an old grandfather clock—in Voorhees Hall, her former place of residence—which her parents donated to the school in her memory. While the clock was being installed, students claimed they saw an apparition hovering over their beds at night, pulling the covers off, and even playing the piano in the lobby, before taking a quick trek to her old room. Some even claimed that the clock would act up or stop working altogether at 2:53, the time of Roberts’s death. When the clock was removed in the ’70s, the sightings promptly ended at Voorhees Hall. But then they manifested in Stuart Hall—the grandfather clock’s new home.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492224.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224791.jpg">
+16. KANSAS -People in Hutchinson, Kansas, know not to venture into the surrounding sand hills alone—because that's where the Hamburger Man lives. Some say the monster, horribly mutilated by a fire or car crash sometime in the 1950s, abducts victims by brandishing a long knife or meat hook, and then carries them back to his lair where he grinds them up for dinner. The locals aren't sure whether the half-human, half-ghost was ever a real person—or why he seems to crave so many burgers.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492225.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224790.jpg">
+17. KENTUCKY -In 1891, just a year after thousands of spectators converged on Pikeville to see the last hanging in the trial of the Hatfields and the McCoys, a newlywed named Octavia Hatcher died. Octavia had fallen into a depression shortly after her only child had died in infancy, and then slipped into a fatal coma. Since it was a hot spring, her husband wasted no time in burying her. But soon doctors began to notice a strange—but not lethal—sleeping sickness spreading through the town. Panicked, her husband exhumed her casket and found its inner lining shredded with claw marks and his wife’s face frozen in a mask of terror. Wracked with guilt, he reburied Octavia and had a tall stone statue of her placed above her grave. Locals say they can still hear Octavia crying, and that once a year—on the anniversary of her death—the statue rotates and turns its back on Pikeville.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492226.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224792.jpg">
+18. LOUISIANA -
+arrow
+Lists
+The Spookiest Ghost Stories From All 50 States
+BY mentalfloss .com
+October 13, 2017
+Original image
+iStock
+
+From heartbroken brides to spectral oenophiles, America is a melting pot of otherworldly entities who have staked a spiritual claim in every crack and cranny of the country—as well as in the local community's consciousness. No matter what city or state you hail from, you no doubt grew up hearing terrifying tales of one ghost or another with whom you shared a zip code. We all did. Here are the spookiest ghost stories from all 50 states.
+
+1. ALABAMA
+
+An old photograph of the Tombigbee River.
+By Eugene Allen Smith (1841-1927) - The Journal of Geology, Published by University of Chicago Press, 1910. Wikimedia Commons // Public Domain
+
+In February 1858, a steamboat named Eliza Battle set out on a cruise down the Tombigbee River, carrying 60 passengers and more than 1200 bales of cotton from Columbus, Mississippi, down to Mobile, Alabama. But on March 1, an unseasonably cold night, the cotton caught fire and quickly engulfed the ship in flames. It was the greatest nautical disaster in the river’s history, leaving 33 passengers and crew dead. On brisk and chilly nights, people sometimes see the burning Eliza Battle rising from the misty waters where it sank, trying to complete its journey to Mobile.
+
+2. ALASKA
+
+The Golden North Hotel in Skagway, Alaska, circa 1898.
+Library of Congress, Wikimedia Commons // Public Domain
+
+At the height of the Klondike Gold Rush, a woman named Mary moved into the Golden North Hotel in Skagway with her fiancé, a prospector known as “Klondike Ike.” Before their marriage, Ike set off for the gold fields to make his fortune. But Ike never returned. Mary locked herself in their room and waited, her anxious anticipation of Ike’s arrival turning to dread and despair. The innkeepers eventually broke down the door and found Mary dead in her wedding dress. Guests at the Golden North Hotel report that “Scary Mary” still roams the halls, appearing over their beds in the night to check that Ike isn’t sleeping with anyone else.
+
+3. ARIZONA
+
+The Flagstaff Hotel in Arizona.
+Marine 69-71, Wikimedia Commons // CC BY SA 4.0
+
+The Hotel Monte Vista in Flagstaff, opened along Route 66 in 1927, often lodged the casts of western films shot in nearby Sedona and Oak Creek Canyon—and reportedly houses a whole host of ghostly guests. In fact, John Wayne reported one of the hotel’s first ghost sightings in the late 1950s. Ever since, guests and staff have reported dozens of spirits stalking the halls, including a phantom bellboy who knocks on doors and disappears, the eccentric specter of a boarder who liked to hang raw meat from the chandelier, and a ’70s bank robber who succumbed to his gunshot wound over a celebratory post-heist drink at the hotel bar.
+
+4. ARKANSAS
+
+A portrait of Union General Frederick Steele.
+Library of Congress, Wikimedia Commons // Public Domain
+
+During the Civil War, Union General Frederick Steele (above) commandeered the home of a mailman named John Chidester to use as his headquarters during the battle of Poison Spring. Chidester had been accused of espionage for turning over Union mail to Confederate troops. To this day, bullet holes remain in an upstairs wall of Chidester’s house, where Union soldiers fired at random, hoping to hit the alleged spy as he hid in a small closet. Paranormal investigators say his spirit remains, too, turning up in photographs and shouting “Get out!” to unwanted visitors. The home, which stands as a museum today, is open for tours so that you can see for yourself.
+
+5. CALIFORNIA
+
+An arial view of California's Alcatraz from the 1930s.
+OFF/AFP/Getty Images
+
+Alcatraz was the site of reputed hauntings long before hosting the famous prison (Native American spirits reportedly roamed it then and now), but today one of the most famous stories is of a prisoner from cell 14D. The story goes that the prisoner spent the night in solitary confinement, screaming that a creature with glowing eyes was trying to kill him and pleading for help. The guards ignored him, but the next morning, they found the prisoner strangled to death—with strange wounds doctors said could not have been self-inflicted.
+
+6. COLORADO
+
+Photo of hand coming out of water
+iStock
+
+The Buffalo Rose Saloon in Golden, Colorado doesn't have much choice but to admit one underaged patron: It's believed the ghost of a girl who drowned in a swimming pool located in the saloon's basement back in the 1920s still roams the building, skipping up and down stairs and making employees slightly nervous. The former site of the pool is said to be particularly unsettling, with the bar's overnight custodian, Seth Barry, describing it as "very bad. Sometimes you can't go [down] there."
+
+7. CONNECTICUT
+
+A photograph of Lorraine Warren.
+Lorraine Warren. Photo courtesy of 826 Paranormal, Flickr // CC BY 2.0
+
+In 1970, famed paranormal investigators Ed and Lorraine Warren were called to combat the spirit of “Annabelle,” a demonic presence attached to a giant Raggedy Ann doll. For weeks the doll had thoroughly freaked out its owner, Donna, moving from room to room, leaving handwritten notes, and even attacking a friend who suggested Donna get rid of the doll, choking him in his sleep. Finally, a priest exorcised the doll and the Warrens locked it away in a special case designed to check its malevolent influence. But even that wasn’t enough to save one brash visitor to the Warrens’ museum, who reportedly taunted the doll and died in a motorcycle crash on his way home.
+
+8. DELAWARE
+
+Photo of Woodburn, the Delaware Governor's Mansion
+Library of Congress
+
+Since 1965, Woodburn has served as the official residence of Delaware’s governor. But more than a century before that, it became known as a home to more than one apparition. Around 1815, the home’s owners were entertaining Lorenzo Dow, a well-known Methodist clergyman. When the group sat down to breakfast one morning, Dow asked if their other guest would be joining them … but there was no other guest. When Dow described the man he had seen the evening before, it became clear that it was Charles Hillyard III (the late father of the home’s then-owner). Rumor has it that if you leave out a glass of good wine at night, it might be gone in the morning: Hillyard was a bona fide oenophile. Sounds like the kind of ghost we could hang with.
+
+9. FLORIDA
+
+A photo of the exterior of the Don CeSar Hotel in Florida.
+Ebyabe, Wikimedia Commons // CC BY SA 3.0
+
+The Don CeSar hotel in St. Pete Beach, Florida, was built by Thomas Rowe and named for a character in the opera Maritana. Rowe had attended the opera during his time as a student in London, and he fell head over heels for its star, a Spanish aristocrat named Lucinda. They regularly met at a fountain in the city and made plans to sail to America and be married. But Lucinda’s parents didn’t approve of their romance and took her back to Spain. He wrote her faithfully, but his letters were returned unopened. Only one letter of Lucinda’s ever reached Rowe. “Time is infinite,” she wrote. “I wait for you by our fountain … to share our timeless love, our destiny is time.” According to legend, Lucinda died of a broken heart; Rowe, who said he would never love anyone else, would go on to build his hotel. It was completed in 1928 and features an exact replica of the fountain where the lovebirds spent happier times. Rowe’s ghost has been spotted on the beach, on the hotel’s fifth floor and in the lobby, and in the garden, where he is sometimes seen holding the hand of a woman believed to be Lucinda.
+
+10. GEORGIA
+
+Lake Lanier in Georgia at sunset.
+Peter Salanki, Flickr // CC BY 2.0
+
+When the Army Corps of Engineers flooded the foothills of the North Georgia mountains to create Lake Lanier in the 1950s, 59 square miles of farmland, homes, and businesses disappeared beneath the water. In the process, the federal government relocated more than 250 families—along with 20 cemeteries and all their corpses. A nasty streak of freak accidents and mysterious drowning deaths have convinced locals that the lake has been cursed ever since. Some people who have survived near-drownings at the lake have reported feeling hands dragging them down beneath the surface.
+
+11. HAWAII
+
+Blue skies and coconut trees in Hawaii.
+iStock
+
+According to legend, the fire goddess Pele and a hog-faced demigod named Kamapua’a had a star-crossed love affair. The lovers were elemental opposites: Pele’s lava flows brought flame and destruction, while Kamapua’a restored rain, vegetation, and animal life. Ultimately they decided to part forever, with Pele claiming one side of Oahu for fire and Kamapua’a retreating to the other side, where all is wet and lush. Today, Hawaiian motorists are careful never to drive with pork in their car along the old Pali highway, which crosses Oahu. According to legend, carrying pork—representing hog-faced Kamapua’a—over to Pele’s side of the island will enrage her spirit, and she will get her revenge by making the car stall until the driver throws the pork out the window.
+
+12. IDAHO
+
+Cells in Old Idaho Penitentiary.
+dieseldemon, Flickr // CC BY 2.0
+
+When it comes to abandoned buildings, penitentiaries might rank only slightly behind psychiatric hospitals in creep factor—and the Old Idaho Penitentiary, with its built-in gallows and death row, may be one of the country's creepiest. Between 1872 and 1973, the Boise prison served as a temporary home to more than 13,000 prisoners—including Raymond Allen Snowden, a.k.a. "Idaho's Jack the Ripper." Some believe he still haunts what is known as 5 House, where the prison's gallows were located. On October 18, 1957, Snowden was brought here to be executed, but the noose that should have broken his neck didn't; it took 15 minutes for him to suffocate. In the years since, visitors to the "Old Pen" have reported strange happenings in 5 House and other areas of the former prison, such as hearing odd sounds and voices and being overcome by strong feelings of sadness. The prison is open to the public year-round for paranormal enthusiasts who want to test their mettle.
+
+13. ILLINOIS
+
+The main gate of Resurrection Cemetery in Justice, Illinois.
+MrHarman, Wikimedia Commons // CC BY SA 3.0
+
+In the depths of the Great Depression, the Oh Henry Ballroom southwest of Chicago drew young people hoping to dance away their troubles. One night, a teenage girl named Mary had a fight with her boyfriend at a dance and decided to walk home along Archer Avenue. She was killed by a hit-and-run driver and buried nearby in Resurrection Cemetery. Since then, residents have described a girl in a white party dress hitchhiking along the avenue. A cab driver even picked her up, and she asked to be taken to the cemetery. But by the time they arrived at the gates, Resurrection Mary had vanished.
+
+14. INDIANA
+
+The entrance to Tunnelton Tunnel in Indiana.
+w.marsh, Flickr // CC BY 2.0
+
+The tiny township of Tunnelton was named for the number of railroad tunnels constructed around it, beginning in the 1850s. One of them, Tunnelton Tunnel (a.k.a. The Big Tunnel), is one of the Hoosier State's most feared landmarks. Reportedly, there are a few ghosts who refuse to leave the area, including a man who was beheaded in an accident during the tunnel's construction and still roams the grounds with his head in one hand and a lantern in the other. But the most famous of this tunnel's tenants is Henry Dixon. In 1908, the body of Dixon—who worked as a night watchman for the railroad—was found just inside the tunnel with a gash to the back of his head, his lantern still lit beside him. Dixon's murder was never solved, and locals claim that he still haunts the area seeking justice for his death.
+
+15. IOWA
+
+The exterior of Coe College in Iowa.
+Library of Congress, Wikimedia Commons // Public Domain
+
+Coe College in Cedar Rapids is said to be haunted by the ghost of a freshman named Helen Esther Roberts, who died after becoming ill in the 1918 flu pandemic. As legend has it, the ghost of Roberts set up residence in an old grandfather clock—in Voorhees Hall, her former place of residence—which her parents donated to the school in her memory. While the clock was being installed, students claimed they saw an apparition hovering over their beds at night, pulling the covers off, and even playing the piano in the lobby, before taking a quick trek to her old room. Some even claimed that the clock would act up or stop working altogether at 2:53, the time of Roberts’s death. When the clock was removed in the ’70s, the sightings promptly ended at Voorhees Hall. But then they manifested in Stuart Hall—the grandfather clock’s new home.
+
+16. KANSAS
+
+Sand Hills in Kansas.
+iStock
+
+People in Hutchinson, Kansas, know not to venture into the surrounding sand hills alone—because that's where the Hamburger Man lives. Some say the monster, horribly mutilated by a fire or car crash sometime in the 1950s, abducts victims by brandishing a long knife or meat hook, and then carries them back to his lair where he grinds them up for dinner. The locals aren't sure whether the half-human, half-ghost was ever a real person—or why he seems to crave so many burgers.
+
+17. KENTUCKY
+
+A peaceful cemetery in Kentucky.
+iStock
+
+In 1891, just a year after thousands of spectators converged on Pikeville to see the last hanging in the trial of the Hatfields and the McCoys, a newlywed named Octavia Hatcher died. Octavia had fallen into a depression shortly after her only child had died in infancy, and then slipped into a fatal coma. Since it was a hot spring, her husband wasted no time in burying her. But soon doctors began to notice a strange—but not lethal—sleeping sickness spreading through the town. Panicked, her husband exhumed her casket and found its inner lining shredded with claw marks and his wife’s face frozen in a mask of terror. Wracked with guilt, he reburied Octavia and had a tall stone statue of her placed above her grave. Locals say they can still hear Octavia crying, and that once a year—on the anniversary of her death—the statue rotates and turns its back on Pikeville.
+
+18. LOUISIANA
+
+An empty bed in a dark room.
+iStock
+
+Louisiana’s Cajun communities have an explanation for sleep paralysis: cauchemar, a species of nighttime witch that immobilizes sleepers and rides them like horses. Some say the cauchemar comes to those who forget to say their prayers before going to bed. Its unfortunate victims lie awake, unable to move, as the cauchemar presses down on their chests, and no matter how much they try to call out, their screams catch in their throats. Some have even reported waking up with marks on their bodies from the bridles and whips that the cauchemar uses to mount and ride sleepers. Beware: Talking about cauchemar increases the likelihood it will visit you tonight.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492227.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224793.jpg">
+19. MAINE -In the mid-19th century, a lighthouse keeper and his wife moved in to the lighthouse on Seguin Island, a 64-acre speck of land two miles out to sea. To stave off their loneliness and boredom, the man ordered a piano and some sheet music from the mainland, so that his wife could learn to play. Dutifully, she learned her first song—then she played it again and again and again, the same song, every day. Eventually, it drove the lighthouse keeper mad. He took an axe first to the piano, then to his wife, and finally took his own life when he realized what he had done. Visitors to the island say they sometimes hear phantom piano music, and occasionally catch a glimpse of the lighthouse keeper walking by, still carrying his axe.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492228.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224794.jpg">
+20. MARYLAND -With thick cypress swamps fringing a black river, the Pocomoke Forest on Maryland's Eastern Shore has birthed several ghostly legends. Folks say that a teenage couple drove into the forest but ran out of gas. The boyfriend went to get help, and the girlfriend was woken in the middle of the night by scratchy sounds on the car's roof. In the morning she discovered her boyfriend hanging upside-down from a tree and his fingernails trailing on the metal. In another tale, a couple in a car heard a radio report of an escaped murderer with a hook for a right hand. The girl noticed a strange sound outside the car, and when she opened the door, a hook was hanging from the handle. Locals also talk of fireballs erupting from thickets and a six-fingered sea captain who killed his adulterous wife and bastard child in the forest. The baby's wails still echo through the trees.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492229.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224795.jpg">
+21. MASSACHUSETTS -Minots Ledge, a tiny outcropping of rock rising from the sea a mile off the coast from Cohasset, was a ruthless destroyer of ships and sailors. Between 1695 and 1754, the ledge sank 80 ships and drowned 400 men. But no one knew how to build a lighthouse on such a perilous sliver of rock in the middle of the sea. Finally, in 1850, Massachusetts erected a small granite beacon tower on nine cement pylons grounded on the ledge. One year later, a furious nor’easter hit and set the tower swaying. During a lull in the storm, the lighthouse keeper rowed to the mainland, leaving his two assistants behind to man the beacon. All night, townspeople on the shore heard the lighthouse bell ring furiously, perhaps as a final goodbye from the assistants. In the morning, the tower was gone, toppled into the sea. The assistants’ bodies washed up days later. Passing fishermen say they can still hear their ghosts crying for help.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492230.jpg">
 
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224796.jpg">
+22. MICHIGAN -Be careful where you roam at night in western Michigan: The Melon Heads might come after you. Said to haunt the woods near Saugatuck, these childlike figures have oversized heads and mostly white eyes, with irises barely visible above the lower eyelid. They might knock on your car window, or they might stalk you as you walk the dog. Some speculate that the Melon Heads were children in the late 19th century with hydrocephaly who escaped a local hospital where a doctor had been conducting terrible experiments on them. Be especially wary if you're a young couple making out in a parked car; the
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492231.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224797.jpg">
+23. MINNESOTA -Ghost hunters have come from all over the country to visit the Palmer House Hotel in Sauk Centre in the hopes of glimpsing a permanent guest: Lucy, a ghost who hasn't forgiven the male gender for her tragic life and even more tragic demise. As the story goes, Lucy was a prostitute who worked in a brothel erected on the future site of the hotel. It burned down, taking Lucy and other escorts with it. When men pass by, she's said to slam doors and drop the temperature. Guests can ask for Room 17—Lucy's favorite—if they're feeling adventurous.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492232.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224798.jpg">
+24. MISSISSIPPI -At the center of the historic section of Glenwood Cemetery, Yazoo City’s public burial grounds, there’s a grave surrounded by a chain link fence. Local lore claims that the grave belonged to a witch who lived along the Yazoo River, who used to lure fishermen to the shore to torture them. When the Yazoo County sheriff came to arrest her, she fled into the swamp and fell into quicksand. The sheriff found her half sunk. Before she drowned, she swore to take revenge on Yazoo City. No one thought much of her threat, but they fenced in her grave just in case. Then, on May 25, 1904, a fire nearly wiped out the entire city, spreading quickly on unusually fierce winds. After the fire, Yazoo City residents found the chain link around the witch’s grave cut open.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492233.jpg">
 
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224799.jpg">
+25. MISSOURI -An old couple in Overton, who made a trickle of income lodging travelers in their home, decided one night to murder a wealthy boarder and make their fortune. They hid his body, took his money, and used it to build a grand new house. Years later, as the woman lay on her deathbed, she made her husband promise to keep their secret and never to remarry ... but he took a new bride within a year. The people of Overton, disapproving of the widower’s impropriety, harassed the couple on their wedding night with catcalls, drums, and rifle shots. But when the man went outside to shush the crowd, he was startled to see a black carriage pull up to the house. Inside sat a woman, pale as death and dressed in black. Without a word, the man got into the carriage. It drove off and he was never seen again. Ever since, townspeople have spotted the black carriage and interpreted it as an omen of danger.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492234.jpg">
 
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224800.jpg">
+26. MONTANA -Taking a drive along Highway 87 by Black Horse Lake in Montana? If the legends are true, you’ll want to think twice before agreeing to pick up just any hitchhiker. Locals claim that a man known as the Phantom Hitchhiker of Black Horse Lake—a Native American man wearing a jean jacket—appears on the road, then violently smashes against your windshield as if struck by your car. It is said that the man was involved in a fatal car crash many years ago and has reenacted it ever since.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492235.jpg">
 
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224801.jpg">
+27. NEBRASKA -Blackbird Hill, Nebraska, is best known as the gravesite of the eponymous Omaha Indian Chief named Blackbird, who was famously buried sitting upright on his most prized horse. But the hill is also home to one of Nebraska’s oldest ghost stories. In the late 1800s, a local man discovered that his wife still had feelings for a long-lost lover. Consumed in a fit of jealous rage, he stabbed his wife and then, in a panic, picked up her body, ran to the cliff on Blackbird Hill, and jumped. It’s said that if you listen closely on October 17, you can hear a woman screaming near the top of that hill.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492236.jpg">
 
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224802.jpg">
+28. NEVADA -Long before the founding of Las Vegas, a pair of lovers named Timber Kate and Bella Rawhide toured the saloons of Nevada performing a live sex show. One day, Bella abandoned the act and left Kate for a man named Tug Daniels, breaking her former partner’s heart. Kate eventually ran into Bella and Tug in a Carson City brothel, resulting in a knife fight. During the melee, Tug murdered Kate, and it's been said that her disheveled ghost still haunts the halls of the bordello.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492237.jpg">
 
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224803.jpg">
+29. NEW HAMPSHIRE -Before the Portsmouth Music Hall was built on Chestnut Street in 1878, the site was home to the Temple, a public meeting house where black abolitionists like Frederick Douglass spoke against slavery; a Baptist meeting hall; an 18th-century prison; and one of the first almshouses in the colonies. With all that history, its ghosts could be a mixed bag, but they seem to be all about the stage. Audience members have reported seeing a man dressed in clothing so convincingly Victorian, they thought he was an actor—until he faded away. They've heard shuffling feet near the box office and loud footsteps in the empty hallway. Some have witnessed a shadowy mist blocking their view of the stage, dark shadows passing in front of their seats, or the stage curtains rippling as if someone were walking behind them—but no one was there. Sounds like at least one phantom is still yearning for some time in the spotlight.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492238.jpg">
 
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224804.jpg">
+30. NEW JERSEY -Manuel Rionda, a sugar baron living in the wealthy New Jersey enclave of Alpine, wanted to do something nice for his wife Harriet. In 1910, he built a tall gothic stone tower to give her a view of the New York City skyline. But the gesture lost its charm when, sitting atop the tower one day, Harriet spotted Manuel with another woman. With years of fears and suspicions confirmed, Harriet grew despondent and leapt from the tower. Afterward, every time Manuel walked up its stairs, he heard footsteps and sobs or felt the push of a cold, angry hand. Overcome with guilt and fear, Manuel walled up the tower, vowing that no one should ever climb it again. After his death in the 1950s, construction crews came to tear the tower down, but after several men fell to their deaths, they left the building as it was.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492239.jpg">
 
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224805.jpg">
+31. NEW MEXICO -In the Wild West days, Johnny, a lieutenant posted at Fort Union, fell in love with a flirtatious woman named Celia. One night, as the two danced at an officer’s birthday party, a messenger burst in to announce an Apache raid. Fearing he might not get another chance, Johnny immediately proposed to Celia, who said yes and promised that if he didn’t return, she would never marry. Some soldiers died in the fight, including Johnny. Despite her promise, Celia soon married another man. At their wedding ball, a ghoul in uniform appeared, a gash on his head and fire in his eyes. He pulled Celia from the arms of her new husband as the musicians, entranced, played an eerie waltz. Johnny’s spirit danced Celia around the room. She grew pale and died in his arms. Faithful in death, Celia's ghost can still be heard weeping over Johnny’s grave.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492240.jpg">
 
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224806.jpg">
+32. NEW YORK -
+arrow
+Lists
+The Spookiest Ghost Stories From All 50 States
+BY mentalfloss .com
+October 13, 2017
+Original image
+iStock
+
+From heartbroken brides to spectral oenophiles, America is a melting pot of otherworldly entities who have staked a spiritual claim in every crack and cranny of the country—as well as in the local community's consciousness. No matter what city or state you hail from, you no doubt grew up hearing terrifying tales of one ghost or another with whom you shared a zip code. We all did. Here are the spookiest ghost stories from all 50 states.
+
+1. ALABAMA
+
+An old photograph of the Tombigbee River.
+By Eugene Allen Smith (1841-1927) - The Journal of Geology, Published by University of Chicago Press, 1910. Wikimedia Commons // Public Domain
+
+In February 1858, a steamboat named Eliza Battle set out on a cruise down the Tombigbee River, carrying 60 passengers and more than 1200 bales of cotton from Columbus, Mississippi, down to Mobile, Alabama. But on March 1, an unseasonably cold night, the cotton caught fire and quickly engulfed the ship in flames. It was the greatest nautical disaster in the river’s history, leaving 33 passengers and crew dead. On brisk and chilly nights, people sometimes see the burning Eliza Battle rising from the misty waters where it sank, trying to complete its journey to Mobile.
+
+2. ALASKA
+
+The Golden North Hotel in Skagway, Alaska, circa 1898.
+Library of Congress, Wikimedia Commons // Public Domain
+
+At the height of the Klondike Gold Rush, a woman named Mary moved into the Golden North Hotel in Skagway with her fiancé, a prospector known as “Klondike Ike.” Before their marriage, Ike set off for the gold fields to make his fortune. But Ike never returned. Mary locked herself in their room and waited, her anxious anticipation of Ike’s arrival turning to dread and despair. The innkeepers eventually broke down the door and found Mary dead in her wedding dress. Guests at the Golden North Hotel report that “Scary Mary” still roams the halls, appearing over their beds in the night to check that Ike isn’t sleeping with anyone else.
+
+3. ARIZONA
+
+The Flagstaff Hotel in Arizona.
+Marine 69-71, Wikimedia Commons // CC BY SA 4.0
+
+The Hotel Monte Vista in Flagstaff, opened along Route 66 in 1927, often lodged the casts of western films shot in nearby Sedona and Oak Creek Canyon—and reportedly houses a whole host of ghostly guests. In fact, John Wayne reported one of the hotel’s first ghost sightings in the late 1950s. Ever since, guests and staff have reported dozens of spirits stalking the halls, including a phantom bellboy who knocks on doors and disappears, the eccentric specter of a boarder who liked to hang raw meat from the chandelier, and a ’70s bank robber who succumbed to his gunshot wound over a celebratory post-heist drink at the hotel bar.
+
+4. ARKANSAS
+
+A portrait of Union General Frederick Steele.
+Library of Congress, Wikimedia Commons // Public Domain
+
+During the Civil War, Union General Frederick Steele (above) commandeered the home of a mailman named John Chidester to use as his headquarters during the battle of Poison Spring. Chidester had been accused of espionage for turning over Union mail to Confederate troops. To this day, bullet holes remain in an upstairs wall of Chidester’s house, where Union soldiers fired at random, hoping to hit the alleged spy as he hid in a small closet. Paranormal investigators say his spirit remains, too, turning up in photographs and shouting “Get out!” to unwanted visitors. The home, which stands as a museum today, is open for tours so that you can see for yourself.
+
+5. CALIFORNIA
+
+An arial view of California's Alcatraz from the 1930s.
+OFF/AFP/Getty Images
+
+Alcatraz was the site of reputed hauntings long before hosting the famous prison (Native American spirits reportedly roamed it then and now), but today one of the most famous stories is of a prisoner from cell 14D. The story goes that the prisoner spent the night in solitary confinement, screaming that a creature with glowing eyes was trying to kill him and pleading for help. The guards ignored him, but the next morning, they found the prisoner strangled to death—with strange wounds doctors said could not have been self-inflicted.
+
+6. COLORADO
+
+Photo of hand coming out of water
+iStock
+
+The Buffalo Rose Saloon in Golden, Colorado doesn't have much choice but to admit one underaged patron: It's believed the ghost of a girl who drowned in a swimming pool located in the saloon's basement back in the 1920s still roams the building, skipping up and down stairs and making employees slightly nervous. The former site of the pool is said to be particularly unsettling, with the bar's overnight custodian, Seth Barry, describing it as "very bad. Sometimes you can't go [down] there."
+
+7. CONNECTICUT
+
+A photograph of Lorraine Warren.
+Lorraine Warren. Photo courtesy of 826 Paranormal, Flickr // CC BY 2.0
+
+In 1970, famed paranormal investigators Ed and Lorraine Warren were called to combat the spirit of “Annabelle,” a demonic presence attached to a giant Raggedy Ann doll. For weeks the doll had thoroughly freaked out its owner, Donna, moving from room to room, leaving handwritten notes, and even attacking a friend who suggested Donna get rid of the doll, choking him in his sleep. Finally, a priest exorcised the doll and the Warrens locked it away in a special case designed to check its malevolent influence. But even that wasn’t enough to save one brash visitor to the Warrens’ museum, who reportedly taunted the doll and died in a motorcycle crash on his way home.
+
+8. DELAWARE
+
+Photo of Woodburn, the Delaware Governor's Mansion
+Library of Congress
+
+Since 1965, Woodburn has served as the official residence of Delaware’s governor. But more than a century before that, it became known as a home to more than one apparition. Around 1815, the home’s owners were entertaining Lorenzo Dow, a well-known Methodist clergyman. When the group sat down to breakfast one morning, Dow asked if their other guest would be joining them … but there was no other guest. When Dow described the man he had seen the evening before, it became clear that it was Charles Hillyard III (the late father of the home’s then-owner). Rumor has it that if you leave out a glass of good wine at night, it might be gone in the morning: Hillyard was a bona fide oenophile. Sounds like the kind of ghost we could hang with.
+
+9. FLORIDA
+
+A photo of the exterior of the Don CeSar Hotel in Florida.
+Ebyabe, Wikimedia Commons // CC BY SA 3.0
+
+The Don CeSar hotel in St. Pete Beach, Florida, was built by Thomas Rowe and named for a character in the opera Maritana. Rowe had attended the opera during his time as a student in London, and he fell head over heels for its star, a Spanish aristocrat named Lucinda. They regularly met at a fountain in the city and made plans to sail to America and be married. But Lucinda’s parents didn’t approve of their romance and took her back to Spain. He wrote her faithfully, but his letters were returned unopened. Only one letter of Lucinda’s ever reached Rowe. “Time is infinite,” she wrote. “I wait for you by our fountain … to share our timeless love, our destiny is time.” According to legend, Lucinda died of a broken heart; Rowe, who said he would never love anyone else, would go on to build his hotel. It was completed in 1928 and features an exact replica of the fountain where the lovebirds spent happier times. Rowe’s ghost has been spotted on the beach, on the hotel’s fifth floor and in the lobby, and in the garden, where he is sometimes seen holding the hand of a woman believed to be Lucinda.
+
+10. GEORGIA
+
+Lake Lanier in Georgia at sunset.
+Peter Salanki, Flickr // CC BY 2.0
+
+When the Army Corps of Engineers flooded the foothills of the North Georgia mountains to create Lake Lanier in the 1950s, 59 square miles of farmland, homes, and businesses disappeared beneath the water. In the process, the federal government relocated more than 250 families—along with 20 cemeteries and all their corpses. A nasty streak of freak accidents and mysterious drowning deaths have convinced locals that the lake has been cursed ever since. Some people who have survived near-drownings at the lake have reported feeling hands dragging them down beneath the surface.
+
+11. HAWAII
+
+Blue skies and coconut trees in Hawaii.
+iStock
+
+According to legend, the fire goddess Pele and a hog-faced demigod named Kamapua’a had a star-crossed love affair. The lovers were elemental opposites: Pele’s lava flows brought flame and destruction, while Kamapua’a restored rain, vegetation, and animal life. Ultimately they decided to part forever, with Pele claiming one side of Oahu for fire and Kamapua’a retreating to the other side, where all is wet and lush. Today, Hawaiian motorists are careful never to drive with pork in their car along the old Pali highway, which crosses Oahu. According to legend, carrying pork—representing hog-faced Kamapua’a—over to Pele’s side of the island will enrage her spirit, and she will get her revenge by making the car stall until the driver throws the pork out the window.
+
+12. IDAHO
+
+Cells in Old Idaho Penitentiary.
+dieseldemon, Flickr // CC BY 2.0
+
+When it comes to abandoned buildings, penitentiaries might rank only slightly behind psychiatric hospitals in creep factor—and the Old Idaho Penitentiary, with its built-in gallows and death row, may be one of the country's creepiest. Between 1872 and 1973, the Boise prison served as a temporary home to more than 13,000 prisoners—including Raymond Allen Snowden, a.k.a. "Idaho's Jack the Ripper." Some believe he still haunts what is known as 5 House, where the prison's gallows were located. On October 18, 1957, Snowden was brought here to be executed, but the noose that should have broken his neck didn't; it took 15 minutes for him to suffocate. In the years since, visitors to the "Old Pen" have reported strange happenings in 5 House and other areas of the former prison, such as hearing odd sounds and voices and being overcome by strong feelings of sadness. The prison is open to the public year-round for paranormal enthusiasts who want to test their mettle.
+
+13. ILLINOIS
+
+The main gate of Resurrection Cemetery in Justice, Illinois.
+MrHarman, Wikimedia Commons // CC BY SA 3.0
+
+In the depths of the Great Depression, the Oh Henry Ballroom southwest of Chicago drew young people hoping to dance away their troubles. One night, a teenage girl named Mary had a fight with her boyfriend at a dance and decided to walk home along Archer Avenue. She was killed by a hit-and-run driver and buried nearby in Resurrection Cemetery. Since then, residents have described a girl in a white party dress hitchhiking along the avenue. A cab driver even picked her up, and she asked to be taken to the cemetery. But by the time they arrived at the gates, Resurrection Mary had vanished.
+
+14. INDIANA
+
+The entrance to Tunnelton Tunnel in Indiana.
+w.marsh, Flickr // CC BY 2.0
+
+The tiny township of Tunnelton was named for the number of railroad tunnels constructed around it, beginning in the 1850s. One of them, Tunnelton Tunnel (a.k.a. The Big Tunnel), is one of the Hoosier State's most feared landmarks. Reportedly, there are a few ghosts who refuse to leave the area, including a man who was beheaded in an accident during the tunnel's construction and still roams the grounds with his head in one hand and a lantern in the other. But the most famous of this tunnel's tenants is Henry Dixon. In 1908, the body of Dixon—who worked as a night watchman for the railroad—was found just inside the tunnel with a gash to the back of his head, his lantern still lit beside him. Dixon's murder was never solved, and locals claim that he still haunts the area seeking justice for his death.
+
+15. IOWA
+
+The exterior of Coe College in Iowa.
+Library of Congress, Wikimedia Commons // Public Domain
+
+Coe College in Cedar Rapids is said to be haunted by the ghost of a freshman named Helen Esther Roberts, who died after becoming ill in the 1918 flu pandemic. As legend has it, the ghost of Roberts set up residence in an old grandfather clock—in Voorhees Hall, her former place of residence—which her parents donated to the school in her memory. While the clock was being installed, students claimed they saw an apparition hovering over their beds at night, pulling the covers off, and even playing the piano in the lobby, before taking a quick trek to her old room. Some even claimed that the clock would act up or stop working altogether at 2:53, the time of Roberts’s death. When the clock was removed in the ’70s, the sightings promptly ended at Voorhees Hall. But then they manifested in Stuart Hall—the grandfather clock’s new home.
+
+16. KANSAS
+
+Sand Hills in Kansas.
+iStock
+
+People in Hutchinson, Kansas, know not to venture into the surrounding sand hills alone—because that's where the Hamburger Man lives. Some say the monster, horribly mutilated by a fire or car crash sometime in the 1950s, abducts victims by brandishing a long knife or meat hook, and then carries them back to his lair where he grinds them up for dinner. The locals aren't sure whether the half-human, half-ghost was ever a real person—or why he seems to crave so many burgers.
+
+17. KENTUCKY
+
+A peaceful cemetery in Kentucky.
+iStock
+
+In 1891, just a year after thousands of spectators converged on Pikeville to see the last hanging in the trial of the Hatfields and the McCoys, a newlywed named Octavia Hatcher died. Octavia had fallen into a depression shortly after her only child had died in infancy, and then slipped into a fatal coma. Since it was a hot spring, her husband wasted no time in burying her. But soon doctors began to notice a strange—but not lethal—sleeping sickness spreading through the town. Panicked, her husband exhumed her casket and found its inner lining shredded with claw marks and his wife’s face frozen in a mask of terror. Wracked with guilt, he reburied Octavia and had a tall stone statue of her placed above her grave. Locals say they can still hear Octavia crying, and that once a year—on the anniversary of her death—the statue rotates and turns its back on Pikeville.
+
+18. LOUISIANA
+
+An empty bed in a dark room.
+iStock
+
+Louisiana’s Cajun communities have an explanation for sleep paralysis: cauchemar, a species of nighttime witch that immobilizes sleepers and rides them like horses. Some say the cauchemar comes to those who forget to say their prayers before going to bed. Its unfortunate victims lie awake, unable to move, as the cauchemar presses down on their chests, and no matter how much they try to call out, their screams catch in their throats. Some have even reported waking up with marks on their bodies from the bridles and whips that the cauchemar uses to mount and ride sleepers. Beware: Talking about cauchemar increases the likelihood it will visit you tonight.
+
+19. MAINE
+
+The exterior of Seguin Light in Maine.
+InAweofGod'sCreation, Flickr // CC BY 2.0
+
+In the mid-19th century, a lighthouse keeper and his wife moved in to the lighthouse on Seguin Island, a 64-acre speck of land two miles out to sea. To stave off their loneliness and boredom, the man ordered a piano and some sheet music from the mainland, so that his wife could learn to play. Dutifully, she learned her first song—then she played it again and again and again, the same song, every day. Eventually, it drove the lighthouse keeper mad. He took an axe first to the piano, then to his wife, and finally took his own life when he realized what he had done. Visitors to the island say they sometimes hear phantom piano music, and occasionally catch a glimpse of the lighthouse keeper walking by, still carrying his axe.
+
+20. MARYLAND
+
+A cypress swamp.
+iStock
+
+With thick cypress swamps fringing a black river, the Pocomoke Forest on Maryland's Eastern Shore has birthed several ghostly legends. Folks say that a teenage couple drove into the forest but ran out of gas. The boyfriend went to get help, and the girlfriend was woken in the middle of the night by scratchy sounds on the car's roof. In the morning she discovered her boyfriend hanging upside-down from a tree and his fingernails trailing on the metal. In another tale, a couple in a car heard a radio report of an escaped murderer with a hook for a right hand. The girl noticed a strange sound outside the car, and when she opened the door, a hook was hanging from the handle. Locals also talk of fireballs erupting from thickets and a six-fingered sea captain who killed his adulterous wife and bastard child in the forest. The baby's wails still echo through the trees.
+
+21. MASSACHUSETTS
+
+A stereoscope photo of Minots Ledge lighthouse.
+Boston Public Library, Flickr // CC BY 2.0
+
+Minots Ledge, a tiny outcropping of rock rising from the sea a mile off the coast from Cohasset, was a ruthless destroyer of ships and sailors. Between 1695 and 1754, the ledge sank 80 ships and drowned 400 men. But no one knew how to build a lighthouse on such a perilous sliver of rock in the middle of the sea. Finally, in 1850, Massachusetts erected a small granite beacon tower on nine cement pylons grounded on the ledge. One year later, a furious nor’easter hit and set the tower swaying. During a lull in the storm, the lighthouse keeper rowed to the mainland, leaving his two assistants behind to man the beacon. All night, townspeople on the shore heard the lighthouse bell ring furiously, perhaps as a final goodbye from the assistants. In the morning, the tower was gone, toppled into the sea. The assistants’ bodies washed up days later. Passing fishermen say they can still hear their ghosts crying for help.
+
+22. MICHIGAN
+
+A spooky forest.
+iStock
+
+Be careful where you roam at night in western Michigan: The Melon Heads might come after you. Said to haunt the woods near Saugatuck, these childlike figures have oversized heads and mostly white eyes, with irises barely visible above the lower eyelid. They might knock on your car window, or they might stalk you as you walk the dog. Some speculate that the Melon Heads were children in the late 19th century with hydrocephaly who escaped a local hospital where a doctor had been conducting terrible experiments on them. Be especially wary if you're a young couple making out in a parked car; the Melon Heads like to tap on the windows to get your attention.
+
+23. MINNESOTA
+
+The exterior of the Palmer House Hotel in Minnesota.
+McGheiver, Wikimedia Commons // CC BY SA 4.0
+
+Ghost hunters have come from all over the country to visit the Palmer House Hotel in Sauk Centre in the hopes of glimpsing a permanent guest: Lucy, a ghost who hasn't forgiven the male gender for her tragic life and even more tragic demise. As the story goes, Lucy was a prostitute who worked in a brothel erected on the future site of the hotel. It burned down, taking Lucy and other escorts with it. When men pass by, she's said to slam doors and drop the temperature. Guests can ask for Room 17—Lucy's favorite—if they're feeling adventurous.
+
+24. MISSISSIPPI
+
+Glenwood Cemetery in Yazoo City, Mississippi.
+NatalieMaynor, Flickr // CC BY 2.0
+
+At the center of the historic section of Glenwood Cemetery, Yazoo City’s public burial grounds, there’s a grave surrounded by a chain link fence. Local lore claims that the grave belonged to a witch who lived along the Yazoo River, who used to lure fishermen to the shore to torture them. When the Yazoo County sheriff came to arrest her, she fled into the swamp and fell into quicksand. The sheriff found her half sunk. Before she drowned, she swore to take revenge on Yazoo City. No one thought much of her threat, but they fenced in her grave just in case. Then, on May 25, 1904, a fire nearly wiped out the entire city, spreading quickly on unusually fierce winds. After the fire, Yazoo City residents found the chain link around the witch’s grave cut open.
+
+25. MISSOURI
+
+Close up of a black horse's hooves as it walks through the dirt.
+iStock
+
+An old couple in Overton, who made a trickle of income lodging travelers in their home, decided one night to murder a wealthy boarder and make their fortune. They hid his body, took his money, and used it to build a grand new house. Years later, as the woman lay on her deathbed, she made her husband promise to keep their secret and never to remarry ... but he took a new bride within a year. The people of Overton, disapproving of the widower’s impropriety, harassed the couple on their wedding night with catcalls, drums, and rifle shots. But when the man went outside to shush the crowd, he was startled to see a black carriage pull up to the house. Inside sat a woman, pale as death and dressed in black. Without a word, the man got into the carriage. It drove off and he was never seen again. Ever since, townspeople have spotted the black carriage and interpreted it as an omen of danger.
+
+26. MONTANA
+
+A close up of a man's hand as he hitchhikes.
+iStock
+
+Taking a drive along Highway 87 by Black Horse Lake in Montana? If the legends are true, you’ll want to think twice before agreeing to pick up just any hitchhiker. Locals claim that a man known as the Phantom Hitchhiker of Black Horse Lake—a Native American man wearing a jean jacket—appears on the road, then violently smashes against your windshield as if struck by your car. It is said that the man was involved in a fatal car crash many years ago and has reenacted it ever since.
+
+27. NEBRASKA
+
+A painting of Blackbird Hill by Karol Bodmer.
+Wikimedia Commons // Public Domain
+
+Blackbird Hill, Nebraska, is best known as the gravesite of the eponymous Omaha Indian Chief named Blackbird, who was famously buried sitting upright on his most prized horse. But the hill is also home to one of Nebraska’s oldest ghost stories. In the late 1800s, a local man discovered that his wife still had feelings for a long-lost lover. Consumed in a fit of jealous rage, he stabbed his wife and then, in a panic, picked up her body, ran to the cliff on Blackbird Hill, and jumped. It’s said that if you listen closely on October 17, you can hear a woman screaming near the top of that hill.
+
+28. NEVADA
+
+A map of Nevada with a thumb tack in Carson City.
+iStock
+
+Long before the founding of Las Vegas, a pair of lovers named Timber Kate and Bella Rawhide toured the saloons of Nevada performing a live sex show. One day, Bella abandoned the act and left Kate for a man named Tug Daniels, breaking her former partner’s heart. Kate eventually ran into Bella and Tug in a Carson City brothel, resulting in a knife fight. During the melee, Tug murdered Kate, and it's been said that her disheveled ghost still haunts the halls of the bordello.
+
+29. NEW HAMPSHIRE
+
+The exterior of the music hall in Portsmouth, New Hampshire.
+Ken Gallager, Wikimedia Commons // CC BY SA 3.0
+
+Before the Portsmouth Music Hall was built on Chestnut Street in 1878, the site was home to the Temple, a public meeting house where black abolitionists like Frederick Douglass spoke against slavery; a Baptist meeting hall; an 18th-century prison; and one of the first almshouses in the colonies. With all that history, its ghosts could be a mixed bag, but they seem to be all about the stage. Audience members have reported seeing a man dressed in clothing so convincingly Victorian, they thought he was an actor—until he faded away. They've heard shuffling feet near the box office and loud footsteps in the empty hallway. Some have witnessed a shadowy mist blocking their view of the stage, dark shadows passing in front of their seats, or the stage curtains rippling as if someone were walking behind them—but no one was there. Sounds like at least one phantom is still yearning for some time in the spotlight.
+
+30. NEW JERSEY
+
+A photo of Alpine, New Jersey
+By Doug Kerr, Flickr, CC BY-SA 2.0, Wikimedia Commons
+
+Manuel Rionda, a sugar baron living in the wealthy New Jersey enclave of Alpine, wanted to do something nice for his wife Harriet. In 1910, he built a tall gothic stone tower to give her a view of the New York City skyline. But the gesture lost its charm when, sitting atop the tower one day, Harriet spotted Manuel with another woman. With years of fears and suspicions confirmed, Harriet grew despondent and leapt from the tower. Afterward, every time Manuel walked up its stairs, he heard footsteps and sobs or felt the push of a cold, angry hand. Overcome with guilt and fear, Manuel walled up the tower, vowing that no one should ever climb it again. After his death in the 1950s, construction crews came to tear the tower down, but after several men fell to their deaths, they left the building as it was.
+
+31. NEW MEXICO
+
+Fort Union in New Mexico.
+iStock
+
+In the Wild West days, Johnny, a lieutenant posted at Fort Union, fell in love with a flirtatious woman named Celia. One night, as the two danced at an officer’s birthday party, a messenger burst in to announce an Apache raid. Fearing he might not get another chance, Johnny immediately proposed to Celia, who said yes and promised that if he didn’t return, she would never marry. Some soldiers died in the fight, including Johnny. Despite her promise, Celia soon married another man. At their wedding ball, a ghoul in uniform appeared, a gash on his head and fire in his eyes. He pulled Celia from the arms of her new husband as the musicians, entranced, played an eerie waltz. Johnny’s spirit danced Celia around the room. She grew pale and died in his arms. Faithful in death, Celia's ghost can still be heard weeping over Johnny’s grave.
+
+32. NEW YORK
+
+A portion of a well surrounded by clothing.
+Erin McCarthy
+
+The first recorded murder trial in American history dates to 1800, when New Yorkers discovered the body of Gulielma Sands in the Manhattan Well in SoHo. Rumors quickly spread that Sands had been murdered by Levi Weeks, an alleged lover who lived in the same Greenwich Street boardinghouse as Sands did. Levi was the brother of Ezra Weeks, a prominent New York City architect who designed landmark buildings like the Hamilton Grange. With his brother’s help, Levi hired an all-star defense team that included Alexander Hamilton and Aaron Burr—and beat the charges. Ever since, people have reported strange shrieks and flashes of light emanating from the well, which remains untouched in the basement of a clothing store at 129 Spring Street.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492241.jpg">
 
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224807.jpg">
+33. NORTH CAROLINA -The infamous pirate Blackbeard—whose real name was Edward Teach—is said to haunt a cove on Ocracoke Island, in the Outer Banks, where he was executed by members of the British navy in 1718. Blackbeard's head was severed and hung from the bowsprit of one of the British sloops, and his body tossed overboard. The body swam around the ship several times before succumbing to its watery grave. Some tales say that a headless figure has been spotted splashing around in the small, sheltered bay, which is known as Teach’s Hole. Other reports say Blackbeard has been seen roaming the beaches with a lantern, looking for his lost head.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492242.jpg">
 
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224808.jpg">
+34. NORTH DAKOTA -Once a thriving pioneer outpost, today Sims is a ghost town in more ways than one: Its only permanent resident is a spirit. Known as the Gray Lady of Sims, she’s said to be the wife of a minister of the Evangelical Lutheran Church, one of only a few buildings remaining in town. According to legend, she fell ill and died in the church parsonage sometime between 1916 and 1918, after which her husband married her sister and left the region. By the mid-1930s, the Gray Lady had begun haunting the parsonage’s second floor, pulling back the curtains, opening and closing windows, and pumping its well with her invisible hand. Her antics so spooked the congregants, they wrote a letter to a local bishop to complain about the supernatural activity, which they said kept scaring off new ministers. The spectral figure is said to still haunt the church, which is home to an active congregation.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492243.jpg">
 
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224809.jpg">
+35. OHIO -The darkest, most desolate stretch of the Marietta and Cincinnati Railroad ran through Moonville, Ohio. According to local legend, an epidemic once spread through the tiny community and trains were forbidden from stopping there. Running low on supplies, residents sent a volunteer with a lantern to flag down a cargo train on the edge of town. The idea was that the train’s conductor would start to slow down after seeing the man outside town and come to a stop by the time he cleared the passage. But the plan never had a chance to come to fruition: The volunteer was late getting to the tunnel, and the oncoming train struck and killed him before he could reach the other side. Today, the Moonville Tunnel is one of the few remaining landmarks from the defunct mining town, and some visitors still claim to see a ghostly figure carrying a lantern in the darkness. Others are convinced they've encountered one of the many other souls who are said to have lost their lives at the location.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492244.jpg">
 
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224810.jpg">
+36. OKLAHOMA -Decades ago, when the owner of what’s now the Skirvin Hilton Hotel in Oklahoma City discovered that he had impregnated a housekeeper, he responded by locking the maid in one of the rooms. She was to stay there even after she had the baby. However, the despairing housekeeper had other plans and threw herself and the baby out the window. Nowadays, her spirit tends to get a lot of press for terrorizing NBA players. Opponents of the Oklahoma City Thunder typically stay at the century-old hotel, and athletes have reported hearing a baby’s cry in their rooms and knocks at their doors. They’ve also seen drawers open and doors close without reason. The New York Knicks once blamed a loss on a restless night caused by the prank-playing spirit. “She is an apparitional sixth man, of sorts,” The New York Times reported.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492245.jpg">
 
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224811.jpg">
+37. OREGON -The Kuhn Cinema in Lebanon, Oregon is a relic of movie houses gone by—ornate and without the trappings of a generic multiplex. But preserving that kind of legacy isn't without some risk: Legend has it that a theatergoer once plummeted from a second-floor balcony to her death. Now, her image can be allegedly be seen flickering on the screen, shocking patrons into spilling their sodas.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492246.jpg">
 
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224813.jpg">
+38. PENNSYLVANIA -There’s no shortage of haunted spots related to the Battle of Gettysburg, but Devil’s Den may be the most infamous. Local lore has it that the rock formation was viewed as a cursed place long before the Civil War. When Confederate and Union troops clashed at the site in July 1863, the craggy boulders gave them a convenient place to hide. Battalions were separated, and men on both sides were ambushed. Some of the bloodiest, most confused fighting of the battle took place at Devil’s Den, earning it the nickname the “Slaughter Pen” from soldiers. A few days after the battle ended, Union soldiers returned to the area and found it still littered with the bodies and viscera of the fallen. Some Confederate soldiers were allegedly tossed into crevices between boulders and left to rot. It’s said that the spirits haunting the area sometimes appear in photographs—that is, when photography equipment works there at all.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492247.jpg">
 
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224815.jpg">
+39. RHODE ISLAND -
+arrow
+Lists
+The Spookiest Ghost Stories From All 50 States
+BY mentalfloss .com
+October 13, 2017
+Original image
+iStock
+
+From heartbroken brides to spectral oenophiles, America is a melting pot of otherworldly entities who have staked a spiritual claim in every crack and cranny of the country—as well as in the local community's consciousness. No matter what city or state you hail from, you no doubt grew up hearing terrifying tales of one ghost or another with whom you shared a zip code. We all did. Here are the spookiest ghost stories from all 50 states.
+
+1. ALABAMA
+
+An old photograph of the Tombigbee River.
+By Eugene Allen Smith (1841-1927) - The Journal of Geology, Published by University of Chicago Press, 1910. Wikimedia Commons // Public Domain
+
+In February 1858, a steamboat named Eliza Battle set out on a cruise down the Tombigbee River, carrying 60 passengers and more than 1200 bales of cotton from Columbus, Mississippi, down to Mobile, Alabama. But on March 1, an unseasonably cold night, the cotton caught fire and quickly engulfed the ship in flames. It was the greatest nautical disaster in the river’s history, leaving 33 passengers and crew dead. On brisk and chilly nights, people sometimes see the burning Eliza Battle rising from the misty waters where it sank, trying to complete its journey to Mobile.
+
+2. ALASKA
+
+The Golden North Hotel in Skagway, Alaska, circa 1898.
+Library of Congress, Wikimedia Commons // Public Domain
+
+At the height of the Klondike Gold Rush, a woman named Mary moved into the Golden North Hotel in Skagway with her fiancé, a prospector known as “Klondike Ike.” Before their marriage, Ike set off for the gold fields to make his fortune. But Ike never returned. Mary locked herself in their room and waited, her anxious anticipation of Ike’s arrival turning to dread and despair. The innkeepers eventually broke down the door and found Mary dead in her wedding dress. Guests at the Golden North Hotel report that “Scary Mary” still roams the halls, appearing over their beds in the night to check that Ike isn’t sleeping with anyone else.
+
+3. ARIZONA
+
+The Flagstaff Hotel in Arizona.
+Marine 69-71, Wikimedia Commons // CC BY SA 4.0
+
+The Hotel Monte Vista in Flagstaff, opened along Route 66 in 1927, often lodged the casts of western films shot in nearby Sedona and Oak Creek Canyon—and reportedly houses a whole host of ghostly guests. In fact, John Wayne reported one of the hotel’s first ghost sightings in the late 1950s. Ever since, guests and staff have reported dozens of spirits stalking the halls, including a phantom bellboy who knocks on doors and disappears, the eccentric specter of a boarder who liked to hang raw meat from the chandelier, and a ’70s bank robber who succumbed to his gunshot wound over a celebratory post-heist drink at the hotel bar.
+
+4. ARKANSAS
+
+A portrait of Union General Frederick Steele.
+Library of Congress, Wikimedia Commons // Public Domain
+
+During the Civil War, Union General Frederick Steele (above) commandeered the home of a mailman named John Chidester to use as his headquarters during the battle of Poison Spring. Chidester had been accused of espionage for turning over Union mail to Confederate troops. To this day, bullet holes remain in an upstairs wall of Chidester’s house, where Union soldiers fired at random, hoping to hit the alleged spy as he hid in a small closet. Paranormal investigators say his spirit remains, too, turning up in photographs and shouting “Get out!” to unwanted visitors. The home, which stands as a museum today, is open for tours so that you can see for yourself.
+
+5. CALIFORNIA
+
+An arial view of California's Alcatraz from the 1930s.
+OFF/AFP/Getty Images
+
+Alcatraz was the site of reputed hauntings long before hosting the famous prison (Native American spirits reportedly roamed it then and now), but today one of the most famous stories is of a prisoner from cell 14D. The story goes that the prisoner spent the night in solitary confinement, screaming that a creature with glowing eyes was trying to kill him and pleading for help. The guards ignored him, but the next morning, they found the prisoner strangled to death—with strange wounds doctors said could not have been self-inflicted.
+
+6. COLORADO
+
+Photo of hand coming out of water
+iStock
+
+The Buffalo Rose Saloon in Golden, Colorado doesn't have much choice but to admit one underaged patron: It's believed the ghost of a girl who drowned in a swimming pool located in the saloon's basement back in the 1920s still roams the building, skipping up and down stairs and making employees slightly nervous. The former site of the pool is said to be particularly unsettling, with the bar's overnight custodian, Seth Barry, describing it as "very bad. Sometimes you can't go [down] there."
+
+7. CONNECTICUT
+
+A photograph of Lorraine Warren.
+Lorraine Warren. Photo courtesy of 826 Paranormal, Flickr // CC BY 2.0
+
+In 1970, famed paranormal investigators Ed and Lorraine Warren were called to combat the spirit of “Annabelle,” a demonic presence attached to a giant Raggedy Ann doll. For weeks the doll had thoroughly freaked out its owner, Donna, moving from room to room, leaving handwritten notes, and even attacking a friend who suggested Donna get rid of the doll, choking him in his sleep. Finally, a priest exorcised the doll and the Warrens locked it away in a special case designed to check its malevolent influence. But even that wasn’t enough to save one brash visitor to the Warrens’ museum, who reportedly taunted the doll and died in a motorcycle crash on his way home.
+
+8. DELAWARE
+
+Photo of Woodburn, the Delaware Governor's Mansion
+Library of Congress
+
+Since 1965, Woodburn has served as the official residence of Delaware’s governor. But more than a century before that, it became known as a home to more than one apparition. Around 1815, the home’s owners were entertaining Lorenzo Dow, a well-known Methodist clergyman. When the group sat down to breakfast one morning, Dow asked if their other guest would be joining them … but there was no other guest. When Dow described the man he had seen the evening before, it became clear that it was Charles Hillyard III (the late father of the home’s then-owner). Rumor has it that if you leave out a glass of good wine at night, it might be gone in the morning: Hillyard was a bona fide oenophile. Sounds like the kind of ghost we could hang with.
+
+9. FLORIDA
+
+A photo of the exterior of the Don CeSar Hotel in Florida.
+Ebyabe, Wikimedia Commons // CC BY SA 3.0
+
+The Don CeSar hotel in St. Pete Beach, Florida, was built by Thomas Rowe and named for a character in the opera Maritana. Rowe had attended the opera during his time as a student in London, and he fell head over heels for its star, a Spanish aristocrat named Lucinda. They regularly met at a fountain in the city and made plans to sail to America and be married. But Lucinda’s parents didn’t approve of their romance and took her back to Spain. He wrote her faithfully, but his letters were returned unopened. Only one letter of Lucinda’s ever reached Rowe. “Time is infinite,” she wrote. “I wait for you by our fountain … to share our timeless love, our destiny is time.” According to legend, Lucinda died of a broken heart; Rowe, who said he would never love anyone else, would go on to build his hotel. It was completed in 1928 and features an exact replica of the fountain where the lovebirds spent happier times. Rowe’s ghost has been spotted on the beach, on the hotel’s fifth floor and in the lobby, and in the garden, where he is sometimes seen holding the hand of a woman believed to be Lucinda.
+
+10. GEORGIA
+
+Lake Lanier in Georgia at sunset.
+Peter Salanki, Flickr // CC BY 2.0
+
+When the Army Corps of Engineers flooded the foothills of the North Georgia mountains to create Lake Lanier in the 1950s, 59 square miles of farmland, homes, and businesses disappeared beneath the water. In the process, the federal government relocated more than 250 families—along with 20 cemeteries and all their corpses. A nasty streak of freak accidents and mysterious drowning deaths have convinced locals that the lake has been cursed ever since. Some people who have survived near-drownings at the lake have reported feeling hands dragging them down beneath the surface.
+
+11. HAWAII
+
+Blue skies and coconut trees in Hawaii.
+iStock
+
+According to legend, the fire goddess Pele and a hog-faced demigod named Kamapua’a had a star-crossed love affair. The lovers were elemental opposites: Pele’s lava flows brought flame and destruction, while Kamapua’a restored rain, vegetation, and animal life. Ultimately they decided to part forever, with Pele claiming one side of Oahu for fire and Kamapua’a retreating to the other side, where all is wet and lush. Today, Hawaiian motorists are careful never to drive with pork in their car along the old Pali highway, which crosses Oahu. According to legend, carrying pork—representing hog-faced Kamapua’a—over to Pele’s side of the island will enrage her spirit, and she will get her revenge by making the car stall until the driver throws the pork out the window.
+
+12. IDAHO
+
+Cells in Old Idaho Penitentiary.
+dieseldemon, Flickr // CC BY 2.0
+
+When it comes to abandoned buildings, penitentiaries might rank only slightly behind psychiatric hospitals in creep factor—and the Old Idaho Penitentiary, with its built-in gallows and death row, may be one of the country's creepiest. Between 1872 and 1973, the Boise prison served as a temporary home to more than 13,000 prisoners—including Raymond Allen Snowden, a.k.a. "Idaho's Jack the Ripper." Some believe he still haunts what is known as 5 House, where the prison's gallows were located. On October 18, 1957, Snowden was brought here to be executed, but the noose that should have broken his neck didn't; it took 15 minutes for him to suffocate. In the years since, visitors to the "Old Pen" have reported strange happenings in 5 House and other areas of the former prison, such as hearing odd sounds and voices and being overcome by strong feelings of sadness. The prison is open to the public year-round for paranormal enthusiasts who want to test their mettle.
+
+13. ILLINOIS
+
+The main gate of Resurrection Cemetery in Justice, Illinois.
+MrHarman, Wikimedia Commons // CC BY SA 3.0
+
+In the depths of the Great Depression, the Oh Henry Ballroom southwest of Chicago drew young people hoping to dance away their troubles. One night, a teenage girl named Mary had a fight with her boyfriend at a dance and decided to walk home along Archer Avenue. She was killed by a hit-and-run driver and buried nearby in Resurrection Cemetery. Since then, residents have described a girl in a white party dress hitchhiking along the avenue. A cab driver even picked her up, and she asked to be taken to the cemetery. But by the time they arrived at the gates, Resurrection Mary had vanished.
+
+14. INDIANA
+
+The entrance to Tunnelton Tunnel in Indiana.
+w.marsh, Flickr // CC BY 2.0
+
+The tiny township of Tunnelton was named for the number of railroad tunnels constructed around it, beginning in the 1850s. One of them, Tunnelton Tunnel (a.k.a. The Big Tunnel), is one of the Hoosier State's most feared landmarks. Reportedly, there are a few ghosts who refuse to leave the area, including a man who was beheaded in an accident during the tunnel's construction and still roams the grounds with his head in one hand and a lantern in the other. But the most famous of this tunnel's tenants is Henry Dixon. In 1908, the body of Dixon—who worked as a night watchman for the railroad—was found just inside the tunnel with a gash to the back of his head, his lantern still lit beside him. Dixon's murder was never solved, and locals claim that he still haunts the area seeking justice for his death.
+
+15. IOWA
+
+The exterior of Coe College in Iowa.
+Library of Congress, Wikimedia Commons // Public Domain
+
+Coe College in Cedar Rapids is said to be haunted by the ghost of a freshman named Helen Esther Roberts, who died after becoming ill in the 1918 flu pandemic. As legend has it, the ghost of Roberts set up residence in an old grandfather clock—in Voorhees Hall, her former place of residence—which her parents donated to the school in her memory. While the clock was being installed, students claimed they saw an apparition hovering over their beds at night, pulling the covers off, and even playing the piano in the lobby, before taking a quick trek to her old room. Some even claimed that the clock would act up or stop working altogether at 2:53, the time of Roberts’s death. When the clock was removed in the ’70s, the sightings promptly ended at Voorhees Hall. But then they manifested in Stuart Hall—the grandfather clock’s new home.
+
+16. KANSAS
+
+Sand Hills in Kansas.
+iStock
+
+People in Hutchinson, Kansas, know not to venture into the surrounding sand hills alone—because that's where the Hamburger Man lives. Some say the monster, horribly mutilated by a fire or car crash sometime in the 1950s, abducts victims by brandishing a long knife or meat hook, and then carries them back to his lair where he grinds them up for dinner. The locals aren't sure whether the half-human, half-ghost was ever a real person—or why he seems to crave so many burgers.
+
+17. KENTUCKY
+
+A peaceful cemetery in Kentucky.
+iStock
+
+In 1891, just a year after thousands of spectators converged on Pikeville to see the last hanging in the trial of the Hatfields and the McCoys, a newlywed named Octavia Hatcher died. Octavia had fallen into a depression shortly after her only child had died in infancy, and then slipped into a fatal coma. Since it was a hot spring, her husband wasted no time in burying her. But soon doctors began to notice a strange—but not lethal—sleeping sickness spreading through the town. Panicked, her husband exhumed her casket and found its inner lining shredded with claw marks and his wife’s face frozen in a mask of terror. Wracked with guilt, he reburied Octavia and had a tall stone statue of her placed above her grave. Locals say they can still hear Octavia crying, and that once a year—on the anniversary of her death—the statue rotates and turns its back on Pikeville.
+
+18. LOUISIANA
+
+An empty bed in a dark room.
+iStock
+
+Louisiana’s Cajun communities have an explanation for sleep paralysis: cauchemar, a species of nighttime witch that immobilizes sleepers and rides them like horses. Some say the cauchemar comes to those who forget to say their prayers before going to bed. Its unfortunate victims lie awake, unable to move, as the cauchemar presses down on their chests, and no matter how much they try to call out, their screams catch in their throats. Some have even reported waking up with marks on their bodies from the bridles and whips that the cauchemar uses to mount and ride sleepers. Beware: Talking about cauchemar increases the likelihood it will visit you tonight.
+
+19. MAINE
+
+The exterior of Seguin Light in Maine.
+InAweofGod'sCreation, Flickr // CC BY 2.0
+
+In the mid-19th century, a lighthouse keeper and his wife moved in to the lighthouse on Seguin Island, a 64-acre speck of land two miles out to sea. To stave off their loneliness and boredom, the man ordered a piano and some sheet music from the mainland, so that his wife could learn to play. Dutifully, she learned her first song—then she played it again and again and again, the same song, every day. Eventually, it drove the lighthouse keeper mad. He took an axe first to the piano, then to his wife, and finally took his own life when he realized what he had done. Visitors to the island say they sometimes hear phantom piano music, and occasionally catch a glimpse of the lighthouse keeper walking by, still carrying his axe.
+
+20. MARYLAND
+
+A cypress swamp.
+iStock
+
+With thick cypress swamps fringing a black river, the Pocomoke Forest on Maryland's Eastern Shore has birthed several ghostly legends. Folks say that a teenage couple drove into the forest but ran out of gas. The boyfriend went to get help, and the girlfriend was woken in the middle of the night by scratchy sounds on the car's roof. In the morning she discovered her boyfriend hanging upside-down from a tree and his fingernails trailing on the metal. In another tale, a couple in a car heard a radio report of an escaped murderer with a hook for a right hand. The girl noticed a strange sound outside the car, and when she opened the door, a hook was hanging from the handle. Locals also talk of fireballs erupting from thickets and a six-fingered sea captain who killed his adulterous wife and bastard child in the forest. The baby's wails still echo through the trees.
+
+21. MASSACHUSETTS
+
+A stereoscope photo of Minots Ledge lighthouse.
+Boston Public Library, Flickr // CC BY 2.0
+
+Minots Ledge, a tiny outcropping of rock rising from the sea a mile off the coast from Cohasset, was a ruthless destroyer of ships and sailors. Between 1695 and 1754, the ledge sank 80 ships and drowned 400 men. But no one knew how to build a lighthouse on such a perilous sliver of rock in the middle of the sea. Finally, in 1850, Massachusetts erected a small granite beacon tower on nine cement pylons grounded on the ledge. One year later, a furious nor’easter hit and set the tower swaying. During a lull in the storm, the lighthouse keeper rowed to the mainland, leaving his two assistants behind to man the beacon. All night, townspeople on the shore heard the lighthouse bell ring furiously, perhaps as a final goodbye from the assistants. In the morning, the tower was gone, toppled into the sea. The assistants’ bodies washed up days later. Passing fishermen say they can still hear their ghosts crying for help.
+
+22. MICHIGAN
+
+A spooky forest.
+iStock
+
+Be careful where you roam at night in western Michigan: The Melon Heads might come after you. Said to haunt the woods near Saugatuck, these childlike figures have oversized heads and mostly white eyes, with irises barely visible above the lower eyelid. They might knock on your car window, or they might stalk you as you walk the dog. Some speculate that the Melon Heads were children in the late 19th century with hydrocephaly who escaped a local hospital where a doctor had been conducting terrible experiments on them. Be especially wary if you're a young couple making out in a parked car; the Melon Heads like to tap on the windows to get your attention.
+
+23. MINNESOTA
+
+The exterior of the Palmer House Hotel in Minnesota.
+McGheiver, Wikimedia Commons // CC BY SA 4.0
+
+Ghost hunters have come from all over the country to visit the Palmer House Hotel in Sauk Centre in the hopes of glimpsing a permanent guest: Lucy, a ghost who hasn't forgiven the male gender for her tragic life and even more tragic demise. As the story goes, Lucy was a prostitute who worked in a brothel erected on the future site of the hotel. It burned down, taking Lucy and other escorts with it. When men pass by, she's said to slam doors and drop the temperature. Guests can ask for Room 17—Lucy's favorite—if they're feeling adventurous.
+
+24. MISSISSIPPI
+
+Glenwood Cemetery in Yazoo City, Mississippi.
+NatalieMaynor, Flickr // CC BY 2.0
+
+At the center of the historic section of Glenwood Cemetery, Yazoo City’s public burial grounds, there’s a grave surrounded by a chain link fence. Local lore claims that the grave belonged to a witch who lived along the Yazoo River, who used to lure fishermen to the shore to torture them. When the Yazoo County sheriff came to arrest her, she fled into the swamp and fell into quicksand. The sheriff found her half sunk. Before she drowned, she swore to take revenge on Yazoo City. No one thought much of her threat, but they fenced in her grave just in case. Then, on May 25, 1904, a fire nearly wiped out the entire city, spreading quickly on unusually fierce winds. After the fire, Yazoo City residents found the chain link around the witch’s grave cut open.
+
+25. MISSOURI
+
+Close up of a black horse's hooves as it walks through the dirt.
+iStock
+
+An old couple in Overton, who made a trickle of income lodging travelers in their home, decided one night to murder a wealthy boarder and make their fortune. They hid his body, took his money, and used it to build a grand new house. Years later, as the woman lay on her deathbed, she made her husband promise to keep their secret and never to remarry ... but he took a new bride within a year. The people of Overton, disapproving of the widower’s impropriety, harassed the couple on their wedding night with catcalls, drums, and rifle shots. But when the man went outside to shush the crowd, he was startled to see a black carriage pull up to the house. Inside sat a woman, pale as death and dressed in black. Without a word, the man got into the carriage. It drove off and he was never seen again. Ever since, townspeople have spotted the black carriage and interpreted it as an omen of danger.
+
+26. MONTANA
+
+A close up of a man's hand as he hitchhikes.
+iStock
+
+Taking a drive along Highway 87 by Black Horse Lake in Montana? If the legends are true, you’ll want to think twice before agreeing to pick up just any hitchhiker. Locals claim that a man known as the Phantom Hitchhiker of Black Horse Lake—a Native American man wearing a jean jacket—appears on the road, then violently smashes against your windshield as if struck by your car. It is said that the man was involved in a fatal car crash many years ago and has reenacted it ever since.
+
+27. NEBRASKA
+
+A painting of Blackbird Hill by Karol Bodmer.
+Wikimedia Commons // Public Domain
+
+Blackbird Hill, Nebraska, is best known as the gravesite of the eponymous Omaha Indian Chief named Blackbird, who was famously buried sitting upright on his most prized horse. But the hill is also home to one of Nebraska’s oldest ghost stories. In the late 1800s, a local man discovered that his wife still had feelings for a long-lost lover. Consumed in a fit of jealous rage, he stabbed his wife and then, in a panic, picked up her body, ran to the cliff on Blackbird Hill, and jumped. It’s said that if you listen closely on October 17, you can hear a woman screaming near the top of that hill.
+
+28. NEVADA
+
+A map of Nevada with a thumb tack in Carson City.
+iStock
+
+Long before the founding of Las Vegas, a pair of lovers named Timber Kate and Bella Rawhide toured the saloons of Nevada performing a live sex show. One day, Bella abandoned the act and left Kate for a man named Tug Daniels, breaking her former partner’s heart. Kate eventually ran into Bella and Tug in a Carson City brothel, resulting in a knife fight. During the melee, Tug murdered Kate, and it's been said that her disheveled ghost still haunts the halls of the bordello.
+
+29. NEW HAMPSHIRE
+
+The exterior of the music hall in Portsmouth, New Hampshire.
+Ken Gallager, Wikimedia Commons // CC BY SA 3.0
+
+Before the Portsmouth Music Hall was built on Chestnut Street in 1878, the site was home to the Temple, a public meeting house where black abolitionists like Frederick Douglass spoke against slavery; a Baptist meeting hall; an 18th-century prison; and one of the first almshouses in the colonies. With all that history, its ghosts could be a mixed bag, but they seem to be all about the stage. Audience members have reported seeing a man dressed in clothing so convincingly Victorian, they thought he was an actor—until he faded away. They've heard shuffling feet near the box office and loud footsteps in the empty hallway. Some have witnessed a shadowy mist blocking their view of the stage, dark shadows passing in front of their seats, or the stage curtains rippling as if someone were walking behind them—but no one was there. Sounds like at least one phantom is still yearning for some time in the spotlight.
+
+30. NEW JERSEY
+
+A photo of Alpine, New Jersey
+By Doug Kerr, Flickr, CC BY-SA 2.0, Wikimedia Commons
+
+Manuel Rionda, a sugar baron living in the wealthy New Jersey enclave of Alpine, wanted to do something nice for his wife Harriet. In 1910, he built a tall gothic stone tower to give her a view of the New York City skyline. But the gesture lost its charm when, sitting atop the tower one day, Harriet spotted Manuel with another woman. With years of fears and suspicions confirmed, Harriet grew despondent and leapt from the tower. Afterward, every time Manuel walked up its stairs, he heard footsteps and sobs or felt the push of a cold, angry hand. Overcome with guilt and fear, Manuel walled up the tower, vowing that no one should ever climb it again. After his death in the 1950s, construction crews came to tear the tower down, but after several men fell to their deaths, they left the building as it was.
+
+31. NEW MEXICO
+
+Fort Union in New Mexico.
+iStock
+
+In the Wild West days, Johnny, a lieutenant posted at Fort Union, fell in love with a flirtatious woman named Celia. One night, as the two danced at an officer’s birthday party, a messenger burst in to announce an Apache raid. Fearing he might not get another chance, Johnny immediately proposed to Celia, who said yes and promised that if he didn’t return, she would never marry. Some soldiers died in the fight, including Johnny. Despite her promise, Celia soon married another man. At their wedding ball, a ghoul in uniform appeared, a gash on his head and fire in his eyes. He pulled Celia from the arms of her new husband as the musicians, entranced, played an eerie waltz. Johnny’s spirit danced Celia around the room. She grew pale and died in his arms. Faithful in death, Celia's ghost can still be heard weeping over Johnny’s grave.
+
+32. NEW YORK
+
+A portion of a well surrounded by clothing.
+Erin McCarthy
+
+The first recorded murder trial in American history dates to 1800, when New Yorkers discovered the body of Gulielma Sands in the Manhattan Well in SoHo. Rumors quickly spread that Sands had been murdered by Levi Weeks, an alleged lover who lived in the same Greenwich Street boardinghouse as Sands did. Levi was the brother of Ezra Weeks, a prominent New York City architect who designed landmark buildings like the Hamilton Grange. With his brother’s help, Levi hired an all-star defense team that included Alexander Hamilton and Aaron Burr—and beat the charges. Ever since, people have reported strange shrieks and flashes of light emanating from the well, which remains untouched in the basement of a clothing store at 129 Spring Street.
+
+33. NORTH CAROLINA
+
+A drawing of the pirate Blackbeard's head hanging from a bowsprit.
+Wikimedia Commons // Public Domain
+
+The infamous pirate Blackbeard—whose real name was Edward Teach—is said to haunt a cove on Ocracoke Island, in the Outer Banks, where he was executed by members of the British navy in 1718. Blackbeard's head was severed and hung from the bowsprit of one of the British sloops, and his body tossed overboard. The body swam around the ship several times before succumbing to its watery grave. Some tales say that a headless figure has been spotted splashing around in the small, sheltered bay, which is known as Teach’s Hole. Other reports say Blackbeard has been seen roaming the beaches with a lantern, looking for his lost head.
+
+34. NORTH DAKOTA
+
+The church in Sims, North Dakota.
+Andrew Filer, Wikimedia Commons // CC BY SA 2.0
+
+Once a thriving pioneer outpost, today Sims is a ghost town in more ways than one: Its only permanent resident is a spirit. Known as the Gray Lady of Sims, she’s said to be the wife of a minister of the Evangelical Lutheran Church, one of only a few buildings remaining in town. According to legend, she fell ill and died in the church parsonage sometime between 1916 and 1918, after which her husband married her sister and left the region. By the mid-1930s, the Gray Lady had begun haunting the parsonage’s second floor, pulling back the curtains, opening and closing windows, and pumping its well with her invisible hand. Her antics so spooked the congregants, they wrote a letter to a local bishop to complain about the supernatural activity, which they said kept scaring off new ministers. The spectral figure is said to still haunt the church, which is home to an active congregation.
+
+35. OHIO
+
+The spooky Moonville Tunnel in Ohio.
+Jayson Shenk, Flickr // CC BY 2.0
+
+The darkest, most desolate stretch of the Marietta and Cincinnati Railroad ran through Moonville, Ohio. According to local legend, an epidemic once spread through the tiny community and trains were forbidden from stopping there. Running low on supplies, residents sent a volunteer with a lantern to flag down a cargo train on the edge of town. The idea was that the train’s conductor would start to slow down after seeing the man outside town and come to a stop by the time he cleared the passage. But the plan never had a chance to come to fruition: The volunteer was late getting to the tunnel, and the oncoming train struck and killed him before he could reach the other side. Today, the Moonville Tunnel is one of the few remaining landmarks from the defunct mining town, and some visitors still claim to see a ghostly figure carrying a lantern in the darkness. Others are convinced they've encountered one of the many other souls who are said to have lost their lives at the location.
+
+36. OKLAHOMA
+
+The Skirvin Hilton Hotel at night.
+Matthew Rutledge, Flickr // CC BY 2.0
+
+Decades ago, when the owner of what’s now the Skirvin Hilton Hotel in Oklahoma City discovered that he had impregnated a housekeeper, he responded by locking the maid in one of the rooms. She was to stay there even after she had the baby. However, the despairing housekeeper had other plans and threw herself and the baby out the window. Nowadays, her spirit tends to get a lot of press for terrorizing NBA players. Opponents of the Oklahoma City Thunder typically stay at the century-old hotel, and athletes have reported hearing a baby’s cry in their rooms and knocks at their doors. They’ve also seen drawers open and doors close without reason. The New York Knicks once blamed a loss on a restless night caused by the prank-playing spirit. “She is an apparitional sixth man, of sorts,” The New York Times reported.
+
+37. OREGON
+
+The interior of an empty movie theater.
+iStock
+
+The Kuhn Cinema in Lebanon, Oregon is a relic of movie houses gone by—ornate and without the trappings of a generic multiplex. But preserving that kind of legacy isn't without some risk: Legend has it that a theatergoer once plummeted from a second-floor balcony to her death. Now, her image can be allegedly be seen flickering on the screen, shocking patrons into spilling their sodas.
+
+38. PENNSYLVANIA
+
+The group of rocks in Gettysburg, Pennsylvania known as Devil's Den.
+iStock
+
+There’s no shortage of haunted spots related to the Battle of Gettysburg, but Devil’s Den may be the most infamous. Local lore has it that the rock formation was viewed as a cursed place long before the Civil War. When Confederate and Union troops clashed at the site in July 1863, the craggy boulders gave them a convenient place to hide. Battalions were separated, and men on both sides were ambushed. Some of the bloodiest, most confused fighting of the battle took place at Devil’s Den, earning it the nickname the “Slaughter Pen” from soldiers. A few days after the battle ended, Union soldiers returned to the area and found it still littered with the bodies and viscera of the fallen. Some Confederate soldiers were allegedly tossed into crevices between boulders and left to rot. It’s said that the spirits haunting the area sometimes appear in photographs—that is, when photography equipment works there at all.
+
+39. RHODE ISLAND
+
+A photo of Mercy Lena Brown's grave in Rhode Island.
+Josh McGinn, Flickr // CC BY ND-2.0
+
+In the late 19th century, the people of Exeter responded to an outbreak of "consumption"—tuberculosis—with an infamous vampire panic that ended in the exhumation, mutilation, and cannibalization of the corpse of Mercy Lena Brown. Science knew little of tuberculosis, and superstitions quickly spread that the wasting away it caused was due to the nefarious influence of undead family members. Mercy died at age 19 in January 1892, shortly after her mother and her sister. Since her corpse was the best preserved of the three, she was singled out as a vampire and blamed for the illness of her brother, Edwin, who had also contracted tuberculosis. Villagers cut out Mercy's heart, burned it, mixed the ashes with water, and made Edwin drink the concoction. Edwin died two months later. Mercy’s spirit still lingers forlornly about her disturbed grave.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492248.jpg">
 
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224814.jpg">
+40. SOUTH CAROLINA -According to some historians, America’s first convicted female serial killer was a Charleston woman named Lavinia Fisher, who ran an inn called the Six Mile House with her husband John. Most of Lavinia’s victims were wealthy men traveling alone. She would offer her unfortunate guests a cup of poisoned tea, then direct them to a room with a specially designed trapdoor bed. When the ill man laid down, John pulled a lever and the guest fell into a pit below the house. There John would make sure the man was dead and relieve him of his valuables. The story goes that the couple was caught when a traveler—who hated tea but was too polite to decline Lavinia’s offer—poured his cup into a nearby plant and retreated to his room. As he sat at his desk that night, he was shocked to see his bed plunge into a pit. He ran out of the inn and told the police, who soon found the bodies of missing travelers buried nearby. The couple were hanged, and legend has it that Lavinia’s ghost still haunts her cell at Charleston’s Old Jail.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492249.jpg">
 
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85224812.jpg">
+41. SOUTH DAKOTA -The Fairmont Hotel—formerly a brothel and saloon, now an oyster bar—is widely considered the most haunted landmark in South Dakota. The place has seen its share of jealousy and heartbreak: There’s the ghost of a man who shot the client of his prostitute girlfriend, and then accidentally shot himself; there’s the spirit of an angry fellow whose girlfriend died of syphilis; and there’s the ghost of a prostitute named Maggie who jumped out a window to her death. On more than one occasion, visitors have reported seeing an apparition with red hair and a green dress—perhaps Maggie herself—lurking in the hallways upstairs.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492250.jpg">
+
+42. TENNESSEE -The Chickamauga battlefield, which in 1863 saw a key Union defeat and one of the bloodiest battles in the Civil War, is now home to a haunting monster known as Old Green Eyes. One legend maintains that the creature was a Confederate soldier whose head was blown off during the battle. His spectral head floats around the battlefield, searching for his missing body. Another, apparently older tale claims that Old Green Eyes is a humanoid monster, with glowing green eyes, light-colored waist-length hair, and huge deformed jaws sporting massive fangs.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492251.jpg">
+
+43. TEXAS -In the frontier days, a settler family eked out a living on the banks of Elm Creek near San Antonio. One day, the son of a wealthy merchant in town passed through their property and was bitten by the family mule. Enraged, the young man began beating the animal and wouldn’t stop. The family depended on the mule for their living and in desperation pelted the man with stones until he left—but before he did, he vowed revenge. That night, he rounded up a posse and set fire to the family home. The men came armed and waited to gun down the family members as they fled the fire. When the mother ran out, she was deformed nearly beyond recognition: Her fingers had fused almost into hooves and the flesh on her face sagged terribly. With a screech, she hurled herself into the creek, where her ghastly spirit remains. Locals say they still hear shrieks coming from the creek and nearby woods, and some have reported a terrifying creature with hooves dropping onto their cars and scratching at their windows, trying to get inside.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492252.jpg">
+
+44. UTAH -One of the first gravediggers in Salt Lake City, Jean Baptiste was otherwise unremarkable; he lived with his wife in a two-bedroom home in town, had few friends, and was punctual. He was, perhaps, unusually well off for a gravedigger—and authorities learned the reason why in 1862. In just three years, Baptiste had robbed the graves of more than 300 people, stripping them of clothing and possessions, and dumping their naked bodies back in the caskets. The police found his home filled with clothing; he'd sold many of the possessions. Baptiste showed up in court wearing a suit a local storekeeper had been buried in. Banished to a remote island in the Great Salt Lake, Baptiste vanished six weeks later. Many say his ghost roams the southern coast of the lake carrying an armful of wet, rotting clothing.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492253.jpg">
+
+45. VERMONT -If you ever stay at the Green Mountain Inn in Stowe, Vermont during a snowstorm, listen carefully for the sounds of boots tapping on the rooftop. You may hear Boots Berry, the ghost that’s said to have haunted the inn since his tap dancing days at the turn of the 20th century. Boots was born to the inn’s horseman and chambermaid in the building’s servants’ quarters in 1840. As an adult, he followed in his father’s footsteps and became a successful horseman. He even achieved hero status after gaining control of some runaway horses pulling a stagecoach.But his glory days were short-lived: Boots developed a drinking problem that got him fired from the inn and landed him in jail. It was one of his fellow inmates at a prison in New Orleans that taught him how to tap dance. Years later, Boots’s quick feet came in handy: He was back at the Green Mountain Inn in 1902 when he learned that a girl was stuck on the building’s roof during a snowstorm. Recalling the secret route he took to the roof during his own childhood, he arrived there in time to return her to safety. Unfortunately, Boots himself wasn’t so lucky and he slipped and fell to his death.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492254.jpg">
+
+46. VIRGINIA -The Wythe House, a colonial-era Georgian townhouse, draws its name from George Wythe, the country’s first law professor and one of the signers of the Declaration of Independence. Wythe was an eminently respectable judge, but his great nephew, George Wythe Sweeney, was his opposite: a profligate gambler with a mounting debt problem. By 1806, the elder Wythe was widowed and childless, and Sweeney was one of his last remaining heirs. Eager to hasten his inheritance, Sweeney offered to move into his great uncle’s house to look after the old man. At the first opportunity, he slipped arsenic into Wythe’s coffee. The judge fell violently ill and died two weeks later—but not before he grew suspicious and wrote Sweeney out of his will. Legend has it that Wythe’s spirit never left his house.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492255.jpg">
+
+47. WASHINGTON -Perhaps it's no surprise that Kell's Pub, on the former site of Seattle's first full-service mortuary, would be home to several spooky tales. One of the most famous surrounds a mischievous little girl with long red hair who was apparently looking for pals. One day, a young mother came in for a job interview at the bar with her small daughter, who was told to go play by herself while the mother spoke with a manager. Halfway through the interview, the little girl appeared with a rag knotted in the shape of a doll. Confused, the mother asked her daughter where she had gotten the toy. The little girl replied that her new friend, a little girl with long red hair in the corner, had shown her how to make it. Surprised, the manager and mother insisted there were no other little girls at the bar, and sent her off to play again. A little while later, the mother called for her daughter and received no reply. After a frantic search, she finally found her sitting on the floor, playing with the rag doll and conversing with a spectral presence. The mother whisked her daughter away, never to return to the bar again.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492256.jpg">
+
+48. WEST VIRGINIA -The Appalachian woods of West Virginia are stalked by the Tailypo, a strange, cat-like creature [PDF] with long claws, sharp teeth, and a thick, hairless pink tail. Legend has it that one winter night, a hermit living deep in the woods with his dogs was about to go to bed hungry when the Tailypo crawled into his cabin. The man lunged at the revolting creature with a hatchet, managing to lop off its tail before it scurried away. Overcome with hunger, he cooked the fleshy tail into a stew and ate it for dinner. Throughout the night (or over a couple of nights, depending on who’s telling the tale), the creature returned, calling in an inhuman voice, “Tailypo, Tailypo ... where is my Tailypo?” The hermit sent his dogs after the creature; they didn’t return. Despite the unsettling voice outside his door, the man fell into an uneasy sleep just before dawn, only to wake up and find the creature, with its red eyes, staring at him from the edge of his bed—just before the Tailypo ripped him apart. Hunters and hikers say that on some nights, they can hear a strange refrain on the wind: “Tailypo! Tailypo! I got my Tailypo!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492257.jpg">
+
+49. WISCONSIN -Visit Appleton’s Riverside Cemetery during a full moon and you might see one of its historic tombstones ooze blood. Located on an isolated wooded bluff, the grave is the final resting site of Kate (“Kitty”) Blood, the daughter of an influential 19th-century settler who has been the subject of many a bloody tale. According to one legend, Blood murdered her husband and children with an axe before killing herself—but that can’t be true, because her spouse, George W. Miller, outlived her by 42 years, as you can see right on her tombstone. Another account says that Blood’s husband murdered her, and yet other speculative accounts have her pegged as a witch. The real-life Blood died in 1874, reportedly from tuberculosis, at age 23, and Appleton’s community mourned her loss. Blood’s remote grave and evocative maiden name likely played a part in the formation of these spooky tales. Today, they play such a large part in Appleton’s historic lore that a local grocery store has even sold tombstone-shaped cookies with Blood’s name on them.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492258.jpg">
+
+50. WYOMING -In Sweetwater County’s library system, you don’t need to pick up a book to experience a good ghost story: just stay overnight. The branch at Green River was accidentally built on top of a graveyard. (Construction workers, believing that the graves had been relocated ages ago, were shocked when they dug up caskets.) Patrons and employees have come home telling spooky tales ever since: A few years ago, a reporter is said to have stayed at the library overnight and discovered a voice speaking into his tape recorder. Another time, a janitor was vacuuming the bottom floor when he noticed a lightbulb glowing on an upper floor. He went up to turn it off. But when he returned downstairs, his vacuum cleaner had gone missing—that is, until he heard the vacuum running by itself, upstairs                                                                                                                                                        Written by Nico Rivero, Michele Debczak, Colin Gorenstein, Kirstin Fawcett, Shaunacy Ferro, Kat Long, Bess Lovejoy, Erin McCarthy, Lucas Reilly, Jen Pinkowski, Jake Rossen, and Jenn Wood.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2213344/85492259.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85224774/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85492209/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">25 Mind-blowing Facts About JFK</a>
-1. JFK experienced chronic back pain. He underwent 4 back operations, including a discectomy, an instrumentation and fusion, and 2 minor surgeries that failed to improve his pain.-u/davidmilan46
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255200.png">
+## <a href="#link6" id="link5">The Photos Up For 2017 Sony World Photography Awards Are Absolutely Stunning</a>
+1. Two concertgoers turn around for a selfie.   Open Architecture category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298488.jpg">
 
-2. Dean Martin refused to attend JFK’s inauguration because Sammy Davis, Jr (who helped Kennedy campaign) wasn’t allowed to attend because he was black.-u/AllegroAppassionato
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255201.jpg">
+2. A rancher trots along the edge of a dust cloud kicked up by his herd.   Open Motion category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298489.jpg">
 
-3. Rosemary Kennedy, sister of JFK and RFK, had a forced lobotomy arranged by her father when she was just 23, leaving her incapacitated for the rest of her life.-u/photoalbumguy
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255202.jpg">
+3. An aerial view of the coast of the Adriatic Sea near Montenegro.   Open Travel category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298490.jpg">
 
-4. JFK asked his mother not to contact heads of state without asking first after she asked Nikita Khrushchev to send her his autograph.-deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255203.jpg">
+4. Buffaloes dip their noses to drink at South Africa's Zimanga game reserve.   Open Wildlife category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298491.jpg">
 
-5. JFK wore a rigid back brace due to his poor health and terrible back which left him sitting upright in the limo after being initially shot by Oswald. Thereby, giving Oswald a clear second shot.-u/Capgunkid
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255204.jpg">
+5. An Iranian mourning ceremony.   Open Culture category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298492.jpg">
 
-6. JFK didn't know the U.S. had nuclear weapons in Turkey during the Cuban Missile Crisis. Even quoted as saying putting them there would be "Goddamned Dangerous" during a situation room meeting during the crisis. He was then told the U.S. had placed Jupiter IRBM's there in 1961, infuriating JFK.-u/CompletelyProtocol
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255205.jpg">
+6. Storm clouds menace a highway, leading to a tornado near Stratford, Texas.   Open Nature category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298493.jpg">
 
-7. In JFK’s father’s 1946 congressional race, his campaign hired a janitor named Joe Russo to run against him and Boston City Councillor Joe Russo to confuse voters and split the “Russo” vote.-u/MickeySpin
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255206.jpg">
+7. Russian bodybuilders apply body paint before a competition.  Professional Sport category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298494.jpg">
 
-8. The casket that held JFK was buried at sea.-u/geek66
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255207.jpg">
+8. A young girl defies gravity gripping a yellow ball.   Open Enhanced category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298495.jpg">
 
-9. 2 weeks after buying a mail-order rifle, Lee Harvey Oswald used it to attempt to kill anti-communist extremist General Edwin Walker at home. He failed when his bullet struck a window frame, but escaped undetected. 7 months later, he used to same rifle to assassinate JFK.-u/a2soup
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255208.png">
+9. A surreal composition called 'Transcending Ego' by German photographer Julian Schievelkamp.  Open Enhanced category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298496.jpg">
 
-10. JFK was stranded on a desert island during WWII, and eventually rescued thanks to a coconut he had carved a distress message into. He later displayed this coconut in the Oval Office.-u/thelonebroccoli
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255209.jpg">
+10. A mountain climber trudges through the snow on Mount Belukha in Russia.   Open Nature category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298497.jpg">
 
-11. The car JFK was assassinated in was cleaned and repurposed back into rotation and served as the presidential limo for Johnson, Nixon, Ford and Carter before being retired in 1977.-u/Gaymface
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255210.jpg">
+11. Diamond dust forming above a forest in Japan.   Open Nature category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298498.jpg">
 
-12. In 1963, a group of Catholic schoolchildren visiting the JFK eternal flame sprinkled it with holy water, accidentally extinguishing it.-u/noahbodty
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255211.jpg">
+12. A group of bound, blindfolded Iraqi men wait to be interviewed by Kurdish security near Kirkuk, Iraq.   Professional Current Affairs & News category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298499.jpg">
 
-13. In 1943, a Japanese destroyer sank an American ship with JFK on board. While everyone assumed the entire crew died, 11 survived and swam to a nearby island.-u/MorsesTheHorse
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255212.jpg">
+13. The 'lonely tree' in the Vermilion Cliffs in Arizona.   Professional Landscape category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298500.jpg">
 
-14. Richard Pavlick was a retired postal worker who slipped past the Secret Service on a mission to assassinate president-elect JFK in 1960. Pavlick decided not to attempt the assassination because he did not wish to harm Kennedy's wife and children.-u/DieSchungel1234
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255213.png">
+14. Dolphins foraging for food on the sea floor, in crystal clear waters.   Open Wildlife category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298501.jpg">
 
-15. As of 2013, 61% of Americans believe Lee Harvey Oswald didn't kill JFK alone.-u/7dare
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255214.jpg">
+15. Shaolin monks run along a wall.   Professional Sport category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298502.jpg">
 
-16. In 1962, JFK wanted to create a nuclear economy that would have made viable massive desalination plants. Getting freshwater from saltwater “would really dwarf any other scientific accomplishments.”-u/ulikel
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255215.jpg">
+16. An Armenian girl sits in a makeshift shelter.   Professional Daily Life category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298503.jpg">
 
-17. The Zapruder film of the JFK assassination wasn’t shown to the public until 12 years later (1975) when comedian Dick Gregory provided a copy to Geraldo for his show, “Good Night America.”-u/Doctor_Popeye
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255216.jpg">
-
-18. When JFK was only 3 years old, his father Joseph Kennedy narrowly escaped the infamous 1920 Wall Street bombing planned by a group of anarchists who used a wagon full of lead weights as a bomb. The explosion killed 38 bystanders. However, Kennedy was thrown unharmed to the ground.-u/KimCureAll
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255217.png">
-
-19. Frank Sinatra was friends with JFK. In 1962, in anticipation of a presidential visit, Sinatra had a helipad built at his house in Palm Springs. When JFK snubbed him and ended their friendship (due to Sinatra’s alleged mob ties), Sinatra grabbed a sledge hammer and smashed up the helipad.-u/Russian_Bagel
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255218.jpg">
-
-20. JFK ordered 1200 Cuban cigars just a day before declaring the Cuban trade embargo.-u/James0317
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255219.jpg">
-
-21. President JFK had an affair with a 19 year old White House intern, including one instance where he dared her successfully to perform oral sex on his special assistant, Dave Powers.-u/TrendWarrior101
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255220.jpg">
-
-22. JFK was a superb golfer but kept his golfing a secret because he didn't want to seem out of touch with average Americans. JFK reacted with terror when he nearly hit a hole-in-one while running for President.-u/7UPvote
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255221.jpg">
-
-23. After JFK was assassinated, there was a brief scuffle between local and federal authorities when the President's security detail wasn't allowed to remove his body from the hospital. It ended when the Secret Service agents put the local officials against the wall at gunpoint.-u/tooanalytical
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255222.png">
-
-24. In the opening credits of Gilligan’s Island, as the SS Minnow sails out of the harbor, flags can be seen in the background flying at half-staff given that the filming of the show’s pilot took place the week of the JFK assassination.-u/UndiagnosablePaella
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255223.jpg">
-
-25. JFK watched From Russia With Love at the White House in November 20, 1963, making it the last film he ever watched. He also named Fleming's novel of the same name (which served as the basis of the film) one of his ten favorite books of all time in a Life magazine.-u/dcdiehardfan
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87255224.jpg">
+17. A reflected vision appearing to be a perfectly symmetrical building, on the banks of the Danube River.  Professional Architecture category.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85298504.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87255199/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85298487/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">18 Celebs Who Were Unfairly Cancelled</a>
-1. Fatty Arbuckle. He was a comedian from like the 1930s or 40s that he got accused of r*ping an actress. In truth, she had like an overdose and had a bunch of health problems due to backalley abortions; even though he was proven innocent, his career never recovered from this. -MisterVictor13
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032600/87317537/FattyArbuckle.jpg">
+## <a href="#link7" id="link6">Monday Morning Randomness - User Edition #13</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265004.jpg">
 
-2. The Chicks (formally known as the Dixie Chicks). They never returned to where they were before they called out Bush, and they’re wonderful. -hollyofhyrule
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032550/87317533/chicks.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083705/85265835/X1uATx7g.jpg">
 
-3. Al Franken. He got cancelled for posing in a picture like he was honking someone's boobs, no actual touching. And some chick at the State Fair who asked to take a picture with him was freaked out that he put his hand on her waist. -CashPrizesz
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032557/87317535/alfranken.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265006.jpg">
 
-4. Eartha Kitt told a president's wife about the unfair reality of POC being pushed to the front lines like fodder and that lead to her basically bring exiled like seriously exiled from the U.S for a very long time. -Trai-Harder
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032559/87317536/eartha.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083718/85265836/zzYgexE.jpg">
 
-5. I’m surprised nobody has said this, but Richard Gere. The man was really popular as an actor until he mentioned the poor treatment of Tibet by the Chinese government. -Lol25Talks
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032610/87317539/gere.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265007.jpg">
 
-6. Courtney Love was blacklisted and “cancelled” in Hollywood for publicly warning other female celebrities about Harvey Weinstein in the early 2000s. -Cheri-baby
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032555/87317534/courtneylove.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083614/85265831/NrUwkhF.jpg">
 
-7. Aziz Ansari. Here’s my understanding: He went on a date, when then girl went back to his place he asked for a BJ. She said no. He said OK and they watched TV. Then he asked again. She said yes. And that's it.
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032549/87317532/aziz.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265009.jpg">
 
-But he should have been more accepting of her reluctance and she should have stood up for herself sooner. -FYoCouchEddie
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032613/87317540/coreyfeldman.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265010.jpg">
 
-8. Corey Feldman literally warned about child abuse in their business and was speaking from experience and was shut down. -kitjen
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032624/87317542/kap.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265011.jpg">
 
-9. Colin Kaepernick. Dude was just kneeling to call attention to something he thought was important. -KingBetterBard
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032628/87317543/janet.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265012.jpg">
 
-10. Janet Jackson after the Super Bowl. Wardrobe malfunctions happen. -Affectionate-Big-566
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032629/87317544/kathy.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265031.jpg">
 
-11. I thought the Kathy Griffin/Trump’s head thing was overblown. -hypo-osmotic
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032636/87317545/jennamarbles.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265015.jpg">
 
-12. Jenna Marbles. In all fairness I think she cancelled herself. People went digging and got offended at what they found. She apologized for the fake tan thing, stopped doing YT, and just went on living her best life. -hellokiri
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032651/87317551/sinead.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265016.jpg">
 
-13. Sinead O'Conner for ripping up the picture of the pope on Saturday Night live to protest child abuse in the church. -frazing
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032639/87317546/paul.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265014.jpg">
 
-14. Paul Reubens. Although he has been somewhat un-cancelled since. -jermleeds
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032643/87317547/monica.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265017.jpg">
 
-15. Monica Lewinsky comes to mind. -averyhipopotomus
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032644/87317548/rebeccablack.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265018.jpg">
 
-16. Rebecca Black: Puts out bad song on YouTube = death threats. -AquamarineCheetah
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032648/87317549/rachelnichols.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083528/85265827/bq0Q4qp.jpg">
 
-17. Rachel Nichols, a female sports reporter on a great run on ESPN was spied on from a camera being left on saying that ESPN's policies for minority representation should not supersede her contractual obligated work (hosting the NBA finals.)
-<img src="https://cdn.ebaumsworld.com/2022/12/09/032649/87317550/yokoono.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265020.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265021.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265022.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265023.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265024.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265025.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265026.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265037.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265027.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265028.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265005.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265030.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265033.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265034.png">
+
+32.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083840/85265837/GBcPTFg.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265035.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265041.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265042.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85265043.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083430/85265822/1S8AeBj.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083441/85265823/6V2LVLB.png">
+
+39.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083453/85265824/85Hv8Dt.png">
+
+40.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083504/85265825/BBWNCOx.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083517/85265826/bByi6Sx.png">
+
+42.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083539/85265828/g4tDafug.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083550/85265829/HzCKOWG.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083601/85265830/nehGgqs.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083628/85265832/oRqHjJJg.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083640/85265833/qr5DalR.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/2017/02/13/083652/85265834/T0BVuwZ.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87317531/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85265003/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">48 Fresh Memes That Will Make You Glad It's Friday</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483922.jpg">
+## <a href="#link8" id="link7">18 Things to Say During a Funeral, and Sex</a>
+1. Oh God!
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033343/87235245/Funeral12.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483947.jpg">
+2.  “I’m sorry, were you close?”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033343/87235246/Funeral14.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483945.jpg">
+3. "I'm glad you came."
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033347/87235248/Funeral16.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483930.jpg">
+4. “Quiet sobbing…”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033322/87235240/Funeral8.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483923.jpg">
+5. “I wish I had more time with you.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033321/87235239/Funeral7.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483924.jpg">
+6.  “It was good while it lasted.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/034018/87235253/funeral20.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483927.jpg">
+7. “It’s too painful.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033336/87235241/Funeral9.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483928.jpg">
+8. “Please, no cameras.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033319/87235238/Funeral6.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483929.jpg">
+9. “Thank you for coming.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033341/87235244/Funeral13.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483931.jpg">
+10. “It happened way too soon.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033316/87235236/Funeral5.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483932.jpg">
+11. “I am so sorry.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033345/87235247/Funeral17.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483920.jpg">
+12. Don't cry because it's over, smile because it happened.
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033300/87235234/Funeral3.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483933.jpg">
+13. It was a stroke that finished him off.
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033340/87235243/Funeral11.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483934.jpg">
+14. “This has made me realize I must take better care of myself.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033317/87235237/Funeral4.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483935.jpg">
+15. “It was just so unexpected.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033451/87235249/Funeral1.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483936.jpg">
+16. Do you need a tissue?
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033258/87235233/Funeral2.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483937.jpg">
+17. I didn’t realize the whole family were going to be here.
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033339/87235242/Funeral10.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483921.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483938.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483939.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483919.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483940.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483941.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483942.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483943.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483944.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483946.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483948.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483949.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483950.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483951.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483952.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483953.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483954.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483955.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483956.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483957.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483958.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483959.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483960.jpg">
-
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483918.jpg">
-
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483961.jpg">
-
-43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483963.jpg">
-
-44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483964.jpg">
-
-45.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483967.jpg">
-
-46.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483968.png">
-
-47.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483969.jpg">
-
-48.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85483971.jpg">
+18. “It’s just a lot to handle.”
+<img src="https://cdn.ebaumsworld.com/2022/08/09/033459/87235250/funeral-plan-2.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85483917/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87235232/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">Pharmacy Employee Shares A Story That Will Hit You In The Feels</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464448.png">
+## <a href="#link9" id="link8">20 Common Sayings That are Completely False</a>
+1. "‘What doesn’t kill you makes you stronger’ Not necessarily. There are a lot of things that won’t kill you, but they’ll probably mess you up a lot and make you feel very weak."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231602.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464449.png">
+2. "Good things come to those who wait."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231601.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464450.png">
+3. "Out of sight, out of mind." Ever lost track of a spider?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231600.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464451.png">
+4. "Absence makes the heart grow fonder.” BUT THEN ALSO, “out of sight, out of mind.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231603.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464452.png">
+5. "Opposites attract."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231604.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464453.png">
+6. "Time heals all wounds."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231606.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464454.png">
+7. “If you love what you do, you’ll never work a day in your life.” This is like 98% BS. Generally, turning your hobbies or passions into a job just makes you hate things you once loved. Being forced  to do anything makes it significantly less fun. I absolutely despise when someone tells me to do something I wanted to anyway.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231609.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464455.png">
+8. "Money is the root of all evil. The LOVE of money is the root of all evil."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231607.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464456.png">
+9. "The early bird gets the worm." No, the early bird gets stuck waiting in line with everyone else who decided to be the early bird, as well.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231608.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85464457.png">
+10. “Money doesn’t buy happiness.” Yes. Yes it does.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231610.jpg">
+
+11. "If a bird poops on your head it's good luck." Sure Dan, tell that to the 3 birds last week that took aiming sessions at my head!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231611.jpg">
+
+12. "Lightning never strikes the same place twice."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231605.jpg">
+
+13. "Sticks and stones may break my bones, but words will never hurt me." Clearly invented by someone who had never heard of emotional trauma. Words don't have to be insults to break someone.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231612.jpg">
+
+14. "What goes around comes around." BS. I've seen people be jerks my entire life and they never got what should have come around to them."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231598.jpg">
+
+15. "The customer is always right. They miss a part that says 'in terms of taste.' Basically it means what's trending. If anyone has worked in customer service you will know that the customer is almost always wrong.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231613.jpg">
+
+16. "When I was in my 20s, my weight used to be 400 pounds. When I reached 180 a few years ago, an absurd number of doors started to open. Everything was suddenly easy for me; people were suddenly nicer to me, and I had no trouble finding work. Looks are important."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231599.jpg">
+
+17. "He who smelt it dealt it."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231596.jpg">
+
+18. "Cheaters never win."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231597.jpg">
+
+19. "Rules are meant to be broken." They were made for literally the opposite.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231614.jpg">
+
+20. "You can be whatever you want to be. Sorry to break it to you kid, but reality don't work that way."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87231615.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85464447/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87231595/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">54 Boredom Slaying Randoms for Your Daily Dose</a>
+## <a href="#link10" id="link9">43 Funny Memes Amassed For Your Amusement </a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273491.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301009.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273480.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301010.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103549/87273934/87271962.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301012.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273483.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301014.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273504.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301015.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273485.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301016.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273496.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301017.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273490.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301020.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273498.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301021.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273479.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301022.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103608/87273953/87273706.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301025.png">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273492.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301026.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273493.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301027.png">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273494.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301028.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273495.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301030.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273481.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301031.png">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273497.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301032.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273499.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301033.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273489.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301035.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273500.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301038.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273501.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301040.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273502.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301041.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103551/87273936/87271969.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301042.png">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273507.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301043.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273509.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301044.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273510.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301046.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273511.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301048.png">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273512.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301049.png">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273513.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301050.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273514.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301051.png">
 
 31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273515.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301053.jpg">
 
 32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273516.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301054.jpg">
 
 33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87273517.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301055.jpg">
 
 34.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103550/87273935/87271966.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301056.jpg">
 
 35.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103552/87273937/87271973.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301057.jpg">
 
 36.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103553/87273938/87271975.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301058.jpg">
 
 37.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103554/87273939/87271978.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301059.jpg">
 
 38.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103555/87273940/87271980.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301060.jpg">
 
 39.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103556/87273941/87271993.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301061.jpg">
 
 40.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103557/87273942/87271999.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301063.jpg">
 
 41.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103558/87273943/87272002.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301064.jpg">
 
 42.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103559/87273944/87272926.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301065.jpg">
 
 43.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103600/87273945/87272929.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301066.jpg">
 
 44.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103601/87273946/87272969.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301067.jpg">
 
 45.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103602/87273947/87273689.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301068.png">
 
 46.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103603/87273948/87273690.jpg">
-
-47.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103604/87273949/87273691.jpg">
-
-48.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103605/87273950/87273693.jpg">
-
-49.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103606/87273951/87273695.jpg">
-
-50.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103607/87273952/87273697.jpg">
-
-51.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103609/87273954/87273713.jpg">
-
-52.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103610/87273955/87273718.jpg">
-
-53.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103611/87273956/87273717.jpg">
-
-54.
-<img src="https://cdn.ebaumsworld.com/2022/09/21/103612/87273957/87273727.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2447893/85301069.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87273478/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85301004/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">24 Pics That Will Tug At Your Heart Strings </a>
+## <a href="#link11" id="link10">62 Savage Memes To Start The Weekend</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442061.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429512.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442062.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429513.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442063.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429514.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442064.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429515.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442065.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429516.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442066.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429517.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442067.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429518.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442068.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429519.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442069.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429523.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442070.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429520.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442071.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429521.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442072.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429522.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442073.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429524.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442074.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429525.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442075.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429526.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442076.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429527.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442077.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429528.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442078.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429529.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442079.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429530.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442080.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429531.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442081.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429532.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442082.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429533.png">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442083.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429534.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85442084.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429536.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429537.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429538.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429539.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429540.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429541.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429542.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429543.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429544.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429545.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429546.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429547.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429548.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429549.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429550.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429552.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429553.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429554.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429555.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429556.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429558.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429559.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429560.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429561.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429562.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429563.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429564.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429565.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429566.jpg">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429567.jpg">
+
+54.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429568.png">
+
+55.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429569.jpg">
+
+56.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429570.jpg">
+
+57.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429571.jpg">
+
+58.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429572.jpg">
+
+59.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429573.jpg">
+
+60.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429574.jpg">
+
+61.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429575.jpg">
+
+62.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85429576.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85442060/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85429511/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
