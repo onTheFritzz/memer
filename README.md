@@ -1,890 +1,869 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 06.13.2023-23:33:20<br>All credits to ebaumsworld.com
+Last Updated 06.14.2023-01:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">38 Fantastic Memes To Round Out The Week </a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422170.jpg">
+## <a href="#link1" id="link0">22 People with Terrible Taste but Solid Follow-through</a>
+1. The cowboy boot chair/ottoman combo is perfect for any living room.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013514/87286295/boot.png">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422172.jpg">
+2. I really wanted this to work for this kid's sake. But like, why???
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013520/87286297/batman.png">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422173.jpg">
+3. This is the work of a certified serial killer, and they need to be captured immediately.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013520/87286298/cracker.png">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422174.jpg">
+4. Armored crocs. Because if there's one thing I need, it's comfortable shoes that can also impale somebody.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013527/87286299/crocs.png">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422175.jpg">
+5. Frank Reynolds would be super proud.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013532/87286300/danny.png">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422176.jpg">
+6. This person only listens to Dave Matthews, Jack Johnson, Phish, and Sublime.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013533/87286301/guitar.png">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422177.jpg">
+7. If Winterfresh gum were an actual human being.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013553/87286306/ice.png">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422178.jpg">
+8. FaceHat. HatFace. Either way it's perfect and terrifying.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013534/87286302/hat.png">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422181.jpg">
+9. This is in Atlanta. Like I could see this making sense in Iowa or Nebraska, but Atlanta? What are we doing?
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013541/87286303/corn.png">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422182.jpg">
+10. These are hospital doors. LMAO.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013550/87286305/hospital.png">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422186.jpg">
+11. Crochet nails! For whatever reason...
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013555/87286307/nails.png">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422187.jpg">
+12. Someone literally took a picture of me and designed this cup after it.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013559/87286308/mug.png">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422180.jpg">
+13. Just DIY it?
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013603/87286309/nike.png">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422188.jpg">
+14. Why do I have a feeling this picture was taken in Florida?
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013605/87286310/rug.png">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422190.jpg">
+15. BMW drivers should have their licenses all suspended.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013612/87286312/snat.png">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422191.jpg">
+16. Peter Griffin, more like Peter grabbin' that bag.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013609/87286311/peter.png">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422193.jpg">
+17. Young Shrek. The only problem with this is Shrek's face perpetually looks like it belongs to a 45-year-old.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013619/87286313/shrek.png">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422194.jpg">
+18. The Vrocs stay on during sex.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/013624/87286314/vans.png">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422195.jpg">
+19. This car looks like it's about to burst out laughing in your face.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/023605/87286469/car.png">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422196.jpg">
+20. Try explaining any of this to someone born in 1960.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/023606/87286470/graph.png">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422197.jpg">
+21. I think it's time we can stop glorifying Jeffrey Dahmer don't you think?
+<img src="https://cdn.ebaumsworld.com/2022/10/12/023609/87286471/jeff.png">
 
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422198.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422199.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422200.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422201.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422202.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422203.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422204.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422206.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422208.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422209.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422211.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422213.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422214.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422215.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422216.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422217.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2452130/85422219.jpg">
+22. Cavity candy corn eearings.
+<img src="https://cdn.ebaumsworld.com/2022/10/12/023613/87286472/corn.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85422169/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87286294/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">46 Funny Pics Guaranteed To Make You Laugh</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208780.jpg">
+## <a href="#link2" id="link1">52 Of The Best College Bars In The Country</a>
+1. University of Alabama: Hot wings and multiple TVs tuned to sports keep students coming back to the Houndstooth.  Roll Tide!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308813.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208781.jpg">
+2. University of Alaska: Students favor The Marlin for its dark and cozy dive atmosphere with live music.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308814.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208782.jpg">
+3. Arizona State University: Casey Moore’s Oyster House boasts an open air patio with a variety of bar food and cheap drinks.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308815.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208783.jpg">
+4. University of Arkansas: Along with some pool tables, Sideways has an enormous variety of beers on tap, including seasonals and microbrews.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308816.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208784.jpg">
+5. Stanford University: The Dutch Goose in Menlo Park has sliders, fries, and famous deviled eggs.  Feel free to carve your name on one of their tables.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308817.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208786.jpg">
+6. University of Colorado at Boulder: You’ll get a dose of nostalgia from the garage sale themed décor at World Famous Dark Horse.  Start with breakfast, followed by afternoon sports and finish with a beer.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308818.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208787.jpg">
+7. George Washington University: Students can usually be found at the Sign of the Whale along with the friendly staff and their signature Whale Pail cocktails.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308820.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208788.jpg">
+8. University of Delaware: Located on Main Street, Klondike Kate’s is known for their outdoor deck and best happy hour prices in town.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308821.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208789.jpg">
+9. University of Georgia: Students and professors like to meet up at The Globe for fish and chips in a pub atmosphere.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308823.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208790.jpg">
+10. University of Iowa: Deadwood Tavern is a favorite for both the locals and the students.  Stop in for some pinball and pool while listening to an old-timey juke box.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308825.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208794.jpg">
+11. Boise State University:  You’ll find margaritas and tacos or Bloody Mary and wings at Crescent “No Lawyers” Bar and Grill.  Sports on TV, plenty of pool tables and an outdoor deck.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308826.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208791.jpg">
+12. University of Illinois at Urbana-Champaign: Despite a sticky floor, loud music, weird smells and crazy drink concoctions, Kam’s is always packed with students.  Not for the timid!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308827.png">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208793.jpg">
+13. University of Notre Dame: The Linebacker Lounge, nicknamed ‘The Backer,’ hasn’t changed much since it opened its doors in the 60s, but it doesn’t need to.  With their giant beers, homemade chili, and free popcorn, students keep coming back for more.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308828.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208795.jpg">
+14. University of Connecticut: The Sports Bar in North Windham is the place to go to play darts, pool, or hang out on their deck.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308819.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208792.jpg">
+15. University of Kansas: The pre-game and post-game place to be is The Wagon Wheel for hot pizza and cold beer.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308829.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208797.jpg">
+16. University of South Florida: For a taste of Germany, students find their way to Mr. Dunderbak’s where they drink from steins while sampling authentic German cuisine.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308822.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208798.jpg">
+17. University of Hawaii at Manoa: Tropics Tap House is the place to go for giant cheeseburgers, garlic fries and tacos.  If you get thirsty, there’s a wide variety of beers on tap.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308824.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208799.jpg">
+18. University of Kentucky: Two Keys Tavern is the place to be for fishbowls and the best drink deals in town.  When there’s no DJ, the jukebox keeps the music going non-stop.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308830.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208800.jpg">
+19. Louisiana State University: Ditch the peanuts and chips and head on over to The Chimes for some ‘top shelf’ bar food - crawfish etouffee, shrimp, and oysters while you watch ESPN.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308831.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208801.jpg">
+20. Harvard University: The Ivy League kids can’t get enough of Charlie’s Kitchen.  With over 30 years of history, Charlie’s has inexpensive burgers and beers served quick.  Check out their extensive mixed drink menu.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308832.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208802.jpg">
+21. Michigan State University: For a laid-back bar with a restaurant feel, check out Crunchy’s.  Known for their pizza, burgers, and craft beers, stick around long enough and you’ll hear some Karaoke.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308835.jpg">
 
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208803.jpg">
+22. University of Minnesota, Twin Cities: The Library Bar and Grill boasts two floors for plenty of room.  Get into some trivia while having a fishbowl or listen some to pop music while playing pool.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308836.jpg">
 
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208804.jpg">
+23. University of Missouri: Even students on a budget can have a blast at Shiloh Bar and Grill with their fantastic drink deals.  On ‘Sunday Funday’ you can enjoy a thin crust pizza while watching the game, or take it outside on the patio.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308837.jpg">
 
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208805.jpg">
+24. University of Maine: three floor of entertainment at Bear Brew Pub provides something for everyone.  Start with pizza and wings on the first floor, dancing on the second floor, and pool tables on the third.  Hit happy hour on snow days for some awesome deals.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308833.jpg">
 
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208806.jpg">
+25. Mississippi State University: Dave’s Dark Horse Tavern is the go-to place after the game for darts, trivia, and live bands.  Their menu also features vegan and gluten free dishes so the special snowflakes won’t feel left out.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308838.jpg">
 
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208808.jpg">
+26. University of Maryland, College Park: Head over to the Cornerstone Grill and Loft for some ‘big ass beers,’ big screen TVs, pool tables and dancing.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308834.jpg">
 
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208809.jpg">
+27. Montana State University: With enough TVs to cover all the games, The Molly Brown is the place to be for beer, darts, trivia and pool.  The friendly staff won’t let you go thirsty.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308839.jpg">
 
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208810.jpg">
+28. University of North Carolina at Chapel Hill: Top of the Hill is the place to be for fantastic in-house brews while you play board games with your crew.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308840.jpg">
 
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208811.jpg">
+29. North Dakota State University: If you want live music, head over to  Dempsey’s Public House, or make your own music on Tuesday for karaoke night.  The Irish Pub theme is sure to appeal to everyone.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308841.png">
 
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208812.jpg">
+30. University of Nebraska at Lincoln: Check out Duffy’s Tavern for the best sound system with live music.  Watch a Huskers game or check out the fire pit out back while enjoying a signature fishbowl drink.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308842.jpg">
 
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208813.jpg">
+31. Dartmouth College: within walking distance from campus, Murphy’s on the Green is a favorite among students due to the spectacular beer selections.  Not sure what to drink?  The knowledgeable will make recommendations for you.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308843.jpg">
 
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208814.jpg">
+32. Rutgers University: Olde Queen’s Tavern has been a hotspot since 1933.  You won’t mind standing in line for the shuffleboard, poker games, and 15 varieties of grilled cheese.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308844.jpg">
 
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208815.jpg">
+33. University of New Mexico: You’ll find the Marble Brewery in downtown Albuquerque.  Known for their fantastic craft beers, students always come for the growlers, or have a flight with some chow from the food truck parked outside.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308845.jpg">
 
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208816.jpg">
+34. University of Nevada: Check out the leather booths at St James’ Infirmary for a hipster-style departure from the standard dive bar.  Stay for the trivia, juke box, and variety of tasty craft beers.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308846.jpg">
 
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208817.jpg">
+35. New York University: Josie Woods Pub stands out from all the rest because of its laid back atmosphere.  Students mingling from wall to wall make this the perfect hangout.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308847.png">
 
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208818.jpg">
+36. Miami University: With plenty of room to move around, go to The Wood’s for good music and good dancing.  A good place to meet up with other students.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308848.jpg">
 
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208820.jpg">
+37. Oklahoma State University: Sitting right off campus is Eskimo Joe’s, famous for their cheese fries.  Head downstairs and check out their very own souvenir and T-shirt shop.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308849.jpg">
 
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208821.jpg">
+38. University of Oregon: Taylor’s Bar and Grill is located on campus so you don’t have to go far to grab a cheap drink on their open patio.  Plenty of room inside for dancing or day drinking.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308850.jpg">
 
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208822.jpg">
+39. Pennsylvania State University: Zeno’s Pub is filled with old furniture and a basement feeling.  Booze up surrounded by Penn State memorabilia and have some late night snacks.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308851.jpg">
 
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208823.jpg">
+40. Brown University: Grad Center Bar draws folks of all ages.  Get comfy on one of the couches while you play board games with your friends, or go solo on the pinball machines.  Super cheap drinks and theme nights keep things interesting.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308852.jpg">
 
-41.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208824.jpg">
+41. University of South Carolina: Don’t let the dive atmosphere fool you, stop in at The Whig for an awesome cocktail menu.  Enjoy one of the leather backed chairs or couches while you sample their restaurant quality food offerings.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308853.jpg">
 
-42.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208825.jpg">
+42. University of South Dakota: Considered the best Bloody Mary supplier in the Dakotas, head over to Carey’s Bar for a casual evening in the relaxed beer garden while you listen to live music.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308854.jpg">
 
-43.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208826.jpg">
+43. Vanderbilt University: Enjoy a wide variety of some seriously good brews at the eclectic Flying Saucer.  Wash down your cheese steak with off-beat drafts or ice cold cans.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308855.jpg">
 
-44.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208827.jpg">
+44. Texas A&M: Known as Johnny Manziel’s favorite watering hole, Chimy’s is a sports bar legend in Aggie-land.  Stop in for some top notch Mexican food with a margarita.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308856.jpg">
 
-45.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208828.jpg">
+45. University of Utah: The knowledgeable staff at Squatters Pub Brewery will help you with the large selection of superb local beers.  Spacious and airy on the first floor, or you can head up to the second floor for some peace and quiet.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308857.jpg">
 
-46.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85208829.jpg">
+46. Virginia Tech: Top of the Stairs (AKA TOTS) is known for their ample open air deck.  Filled with students during the football season and sunny days.  Stop in on Tuesdays for some rail drinks to give you the courage to sing karaoke.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308858.jpg">
+
+47. University of Vermont: Don’t be fooled by the name; Manhattan Pizza and Pub is more than that.  Insane slices and a full schedule of fun are all yours with live music, karaoke, open mic nights and football viewing parties.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308859.jpg">
+
+48. Washington State University: Loaded with school spirit, the Cougar Cottage (AKA ‘The Coug’) is the place to go for the best burgers and steak fries for dinner, but the real party starts around midnight.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308860.jpg">
+
+49. University of Wisconsin: The Kollege Klub, also known as ‘The KK’ is a college mainstay.  Loaded with students watching the Badgers, win or lose, the evening always ends with loud music and dancing.  Try their infamous “Pink Drink.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308861.jpg">
+
+50. West Virginia University: You’ll see that Mario’s Fishbowl lives up to its name when you order a massive goblet of beer.  Use that to wash down their signature cowboy ranch wings and fiery  buffalo sauce.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308862.jpg">
+
+51. University of Wyoming: Buckhorn Bar and Parlor is Laramie’s oldest Bar.  Known for its great music and friendly staff, this western styled bar provides quality music.  Feel free to get up and dance off those drink specials.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308863.jpg">
+
+52. Kansas State University: Located in the historic Aggieville bar district, Tanner’s Bar and Grill serves up some of the best pub grub you can find.  Wash it down with their awesome selection of tap brews.  Ask about their chicken lips.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/677914/85308864.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85208779/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85308812/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">37 Great Pics to Improve Your Mood</a>
+## <a href="#link3" id="link2">27 Pics That Will Make You "Scream Only In Russia!"</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271448.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346239.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271449.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346240.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271450.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346241.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271451.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346242.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271452.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346244.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271453.gif">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346247.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271454.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346238.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271456.jpg">
+8. Compensating for something?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346245.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271457.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346246.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271458.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346243.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271455.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346249.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271459.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346250.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271460.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346253.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271463.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346248.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271462.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346252.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271464.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346254.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271465.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346259.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271466.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346258.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271467.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346256.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271468.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346262.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271469.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346251.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271470.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346257.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271472.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346260.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271473.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346261.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271471.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346255.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271474.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346263.jpg">
 
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271475.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271476.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271478.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271477.png">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271479.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271480.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271481.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271482.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271483.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271485.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85271486.jpg">
+27. Here's me at the border. As you can see I got back safely.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85346264.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85271447/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85346237/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">Hilarious Dude Paints Over Graffiti With Readable Fonts</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174033.png">
+## <a href="#link4" id="link3">Guy Taking Pictures Of Hurricane Irma Gets Blasted By The Storm Surge </a>
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174036.png">
-
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174041.png">
-
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174034.png">
-
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174035.png">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174040.png">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174037.png">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174039.png">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174042.png">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174038.png">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174048.png">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174043.png">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174044.png">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174047.png">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174045.png">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2416556/85174046.png">
-
-
-<a href="https://www.ebaumsworld.com/pictures/-/85174032/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85461412/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">40 Funny Memes and Cool Pics For a Daily Dose of Awesome</a>
+## <a href="#link5" id="link4">28 Pics Oozing With Awful Cringe</a>
 1.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104047/87269281/87266640.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395133.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269010.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395134.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104045/87269280/87266632.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395135.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269011.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395136.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269013.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395137.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269014.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395139.png">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104039/87269276/87266609.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395140.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269015.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395141.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269016.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395142.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269019.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395143.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104048/87269282/87266635.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395144.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269020.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395145.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269022.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395148.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/103657/87269270/87268948.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395132.png">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269024.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395149.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269026.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395150.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269028.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395152.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269029.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395153.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/103648/87269267/87268924.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395154.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269030.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395155.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269031.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395156.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269032.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395151.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269033.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395157.png">
 
 24.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/103654/87269269/87268936.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395158.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269034.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395159.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/103700/87269272/87268951.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395160.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269035.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395163.png">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269036.png">
-
-29.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/103649/87269268/87268916.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104037/87269275/87266606.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/103658/87269271/87268915.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/103701/87269273/87268955.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/103702/87269274/87268943.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104051/87269284/87267586.png">
-
-35.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104040/87269277/87266630.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104042/87269278/87266605.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104044/87269279/87266631.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87269008.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104052/87269285/87267594.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/2022/09/14/104049/87269283/87267580.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85395165.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87269007/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85395131/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">The Funniest and Most Savage Tweets of the Week </a>
-1. People with cats know what it's like to earn the respect of a pet, something dog people will never know.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241072.jpg">
+## <a href="#link6" id="link5">18 People With Incredibly Unique Body Parts</a>
+1. "Nick Stoeberl has the longest tongue that measures 3.97 in (10.1 cm)."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299688.jpg">
 
-2. She's got a serious problem.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241055.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299689.jpg">
 
-3. When the whole family is in town.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241056.jpg">
+3. “It took me 22 years to realize my pinky is a little weird.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299690.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241058.jpg">
+4. “I have pointy elf ears.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299691.jpg">
 
-5. Can you imagine? This is not the time Slack Bot.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241057.jpg">
+5. “What eye color is this? It changes depending on the lighting and switches from blue to green to gray.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299692.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241059.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299693.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241060.jpg">
+7. “I usually forget that I’m the only person that I know with those lumps on the pinky fingers.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299694.jpg">
 
-8. Look who is laughing now.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241061.jpg">
+8. “I have a birthmark inside my eye.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299695.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241054.jpg">
+9. “I have a scar on my hand of the letter A.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299696.jpg">
 
-10. These are fire.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241062.jpg">
+10. “My son’s spotted hair”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299697.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241064.jpg">
+11. "Samantha Ramsdell got the Guinness World Record for having the largest female mouth at 2.56 inches (6.5 cm) wide."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299687.jpg">
 
-12. Before you know it, you're going to be pumpkin deep in seasonal beer and apple cider.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241067.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299698.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241069.jpg">
+13. “T-800 prosthetic — it glows in the dark too.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299699.jpg">
 
-14. After all these years, the criminal has been brought to justice. Thank you to out boys in blue.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241070.jpg">
+14. “Appreciation post while at work”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299700.jpg">
 
-15. Learn how to break Sheryl.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241071.jpg">
+15. “About a week old and I realized I’ve spawned an elf.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299701.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241077.jpg">
+16. “Having Raynaud’s syndrome is weird.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299702.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241073.jpg">
+17. “I was born with hyperextended elbows. I found this picture from years back.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299703.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241053.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241074.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241075.jpg">
-
-21. They are never going to know. How would they know?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241076.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241078.jpg">
+18. “My vitiligo changes my beard color.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87299704.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87241052/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87299686/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">This 90 Year Old Mural Appears To Show A Native American With A Smart Phone</a>
-1.  The painting is titled, 'Mr. Pynchon and the Settling of Springfield' and was painted in the 1930's by Italian artist, Umberto Romano. The painting depicts Mr. William Pynchon, a successful fur trader, and founder Springfield Massachusetts. Mr. Pynchon was born in 1590 and is seen above, surrounded by Native Americans. Only there is one man in the image who appears to be holding something a little out of the ordinary for the time this piece is set in. It appears to be a Native holding, yes, a cell phone.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85447372.jpg">
+## <a href="#link7" id="link6">People Post Before And After Pics Of A Night Out On The Town</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329096.jpg">
 
-2. A zoomed look shows that whatever this native is holding, does strongly resembled an iPhone, though the iPhone wasn't invented until hundreds of years later. SO what could it have been? Because it sure isn't . . . .
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85447371.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329097.jpg">
 
-3. One of these! Silly kids, time travel is for science fiction.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85447370.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329098.jpg">
+
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329099.jpg">
+
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329100.jpg">
+
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329101.jpg">
+
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329102.jpg">
+
+8. Before
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329103.jpg">
+
+9. After
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329104.jpg">
+
+10. The Scrubs having fun...
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329105.jpg">
+
+11. ...now they need a doctor.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329106.jpg">
+
+12. And the classic...
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329107.jpg">
+
+13. ...this will never get old. Remember party hard, but don't lose your head cause things on the web stay forever.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85329108.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85447369/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85329095/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">20 Pics That Know What It's like to Have Siblings</a>
-1. “Girls, where’s your sister?”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618792.jpg">
+## <a href="#link8" id="link7">27 Hilarious Reactions To Trump's Presidential Victory</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187260.jpg">
 
-2. “About to volunteer my sister for the ice bucket challenge.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618804.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187261.jpg">
 
-3. “SELFIE! While my sister is about to push a baby out!”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618793.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187262.jpg">
 
-4. “Me at 4 years old, finding out my brother was in fact, not a sister.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618794.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187263.gif">
 
-5. " I told my sister that she was holding Big Ben."
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618795.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187265.jpg">
 
-6. “How a big brother views his little sister getting married”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618796.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187266.jpg">
 
-7. “My sister’s troll birthday gift”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618797.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187267.jpg">
 
-8. “Finished wrapping my sister’s present. It’s a necklace.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618798.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187268.jpg">
 
-9. So my brother did this... we don’t have a key.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618799.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187269.jpg">
 
-10. “Look at that sibling love.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618800.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187264.jpg">
 
-11. “My brother decided to wake me up like this.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618801.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187270.jpg">
 
-12. “$100 in singles individually wrapped for my brother.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618802.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187271.jpg">
 
-13. “My sister thought my leg could use more holiday spirit.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618803.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187272.jpg">
 
-14. “Let your sister drive they said. It’ll be fun they said.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618805.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187273.gif">
 
-15. “My brother is so immature.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618806.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187274.jpg">
 
-16. “When my sister realized I was non-returnable”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618807.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187275.jpg">
 
-17. “I changed my sister’s bathroom art while dog sitting. She still doesn’t realize that it doesn’t say ’HOPE’ ”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618808.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187276.jpg">
 
-18. “Every time I draw something on the mirror so it reappears when my brother showers. I went for something a little creepier than normal...”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618809.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187277.jpg">
 
-19. “Just found this cute picture of me and my cousin, and my brother in the background.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618810.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187278.jpg">
 
-20. “My sister likes to take selfies. So do I.”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86618811.png">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187279.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187280.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187281.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187282.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187283.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187284.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187285.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85187286.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/86618791/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85187259/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">15 Women Admit The Weird Things They Do When Their Partners Aren't Around</a>
+## <a href="#link9" id="link8">29 Reflections That Will Mess With Your Brain</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262438.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224848.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262439.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224849.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262440.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224850.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262446.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224851.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262447.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224852.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262444.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224853.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262445.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224854.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262443.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224855.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262450.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224856.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262448.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224857.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262449.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224858.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262442.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224859.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262441.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224860.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262451.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224861.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85262452.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224862.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224863.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224864.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224865.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224866.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224867.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224868.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224869.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224870.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224871.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224872.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224873.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224874.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224875.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85224876.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85262437/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85224847/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">15 Hilarious Fake Book Covers From Paperback Paradise</a>
+## <a href="#link10" id="link9">26 WTF Pics To Make You Laugh</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219589.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337990.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219588.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337991.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219590.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337992.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219591.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337993.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219592.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337994.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219587.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337995.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219593.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337996.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219594.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337997.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219595.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337998.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219596.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85337999.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219597.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338000.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219598.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338001.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219599.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338002.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219600.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338003.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85219601.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338004.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338005.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338006.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338007.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338008.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338009.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338010.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338011.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338012.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338013.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338014.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2369109/85338015.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85219586/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85337989/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">15 People Admit The Dumbest Reasons Someone Got Mad At Them</a>
+## <a href="#link11" id="link10">18 Naughty People Share The Kinkiest Things They Have Ever Done</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394575.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295718.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394576.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295735.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394577.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295719.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394578.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295733.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394579.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295720.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394574.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295721.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394583.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295724.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394580.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295725.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394581.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295726.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394582.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295728.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394584.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295729.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394585.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295730.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394586.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295723.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394587.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295731.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85394588.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295727.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295732.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295734.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87295722.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85394573/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87295717/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
