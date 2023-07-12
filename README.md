@@ -1,954 +1,896 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 07.12.2023-10:45:18<br>All credits to ebaumsworld.com
+Last Updated 07.12.2023-13:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">Guy Shares A Story Of The Most F**ked Up Thing That Ever Happened To Him</a>
+## <a href="#link1" id="link0">Employee Sabotages Incompetent Boss By Working Scheduled Hours</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477036.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/06/27/125331/87201195/cheezburger1.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477037.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/06/27/125343/87201196/cheezburger2.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477038.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/06/27/125355/87201197/cheezburger3.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477039.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/06/27/125406/87201198/cheezburger4.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477040.jpg">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85477041.jpg">
+<img src="https://cdn.ebaumsworld.com/2022/06/27/125417/87201199/cheezburger5.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85477035/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87201190/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">30 Worn Down Items That Show the Power of Time</a>
-1. “Knife At My Work That Is Halfway Gone From Sharpening”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229871.jpg">
+## <a href="#link2" id="link1">30 Funny Memes to Activate Your Laughter Functions </a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305723.jpg">
 
-2. “Just Found An Old Roll Of Biodegradable Poop Bags, They Really Do Disintegrate Like Advertised”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229872.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305724.jpg">
 
-3. “Old Gold/Copper Crayola Crayons That Turned Green From Oxidation”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229873.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305725.jpg">
 
-4. “30 Years Ago, My Grandfather Encased This Meatball In Epoxy”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229874.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305726.jpg">
 
-5. .
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229875.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305727.jpg">
 
-6. “My Parents Got This Spray Bottle Of Windex In 1979 And Have Been Reusing It Ever Since”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229876.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305728.jpg">
 
-7. “I Found This Leaf With Only It’s ‘Veins’ Remaining”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229877.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305729.jpg">
 
-8. “You Can Tell Where People Tend To Line Up At This Brooklyn Hardware Store By Where The Linoleum Tile Has Been Worn Away To Reveal The Original Ceramic”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229878.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305730.jpg">
 
-9. “I Went Into The Office For The First Time Since March 2020 And Found The Kiwi I Left In My Desk”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229879.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305731.png">
 
-10. “This Tree Eating A Postbox”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229880.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305732.jpg">
 
-11. “This Brick Wall Got Smoothed Into A Rock”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229881.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305733.jpg">
 
-12. “I Accidentally Left My Iron Man Canvas Out In The Rain And Inadvertently Improved The Original Design”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229882.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305734.jpg">
 
-13. “A Seesaw (Teeter-Totter) In My Local Playground Where Thousands Of Little Feet Have Worn Through The Asphalt”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229883.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305735.jpg">
 
-14. “Bathrooms At My Engineering University”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229884.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305736.jpg">
 
-15. “The One And Only Basketball That Lives At The Local Park And Somehow Still Bounces”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229885.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305737.jpg">
 
-16. “About Time I Bought Some New Work Boots”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229886.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305738.png">
 
-17. “This Jack O Lantern With Mold Growing From Inside”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229887.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305739.jpg">
 
-18. “Nature Swallows A Car In Hawaii”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229888.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305740.jpg">
 
-19. “My Nana Has Been Using The Same Deck Of Cards For 10 Years And They’ve All Grooved To Her Hand Placement During Shuffling”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229889.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305741.jpg">
 
-20. “The Knife At The Left Was Used By A Butcher For 5 Years Straight. The One At The Right Is The Exact Same Knife, But Brand New”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229890.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305742.jpg">
 
-21. “Found Some Change That Had Been In The Brushes In The Clothes Dryer”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229891.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305743.jpg">
 
-22. “1,800-Year-Old Roman Leather Sandals On Display At Vindolanda Fort In Northumberland, England”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229892.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305744.png">
 
-23. “This Sun-Worn Sign Outside My Office That Looks Like It Belongs In A Horror Film”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229893.jpg">
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305745.png">
 
-24. “The Wear And Scuff-Marks On This Boat Look Like An Island In The Sea”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229894.jpg">
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305746.jpg">
 
-25. “60-Year-Old Unopened Pepsi Bottle”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229895.jpg">
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305747.jpg">
 
-26. “Faded Sign From The ‘War On Drugs’ Era”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229896.jpg">
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305748.jpg">
 
-27. “Exact Center Seat, 3rd Row From The Back Of The Theater Gets A Lot Of Use”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229897.jpg">
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305749.png">
 
-28. “Years Of A Lock Grinding On A Brick”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229898.jpg">
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305722.jpg">
 
-29. “This Whiteboard Eraser Has Definitely Seen More Than Its Fair Share Of Use”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229899.jpg">
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305750.jpg">
 
-30. “This Is The Same Doll, One After 32 Years Of Love, The Other Still Pristine”
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87229900.jpg">
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2502212/86305751.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87229870/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/86305721/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">A Nonchalant Compilation of 36 Remarkable Pics</a>
+## <a href="#link3" id="link2">31 Funny Memes That Will Crack You Up</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365420.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283919.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365413.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/03/04/023419/85284296/BHDMF4n.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365432.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283941.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365415.png">
+<img src="https://cdn.ebaumsworld.com/2017/03/04/023406/85284295/9XXxTSJg.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365417.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/03/04/023431/85284297/huoxD1Xg.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365419.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283936.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365421.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283921.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365418.png">
+<img src="https://cdn.ebaumsworld.com/2017/03/04/023508/85284300/u5ARFnX.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365414.png">
+<img src="https://cdn.ebaumsworld.com/2017/03/04/023443/85284298/mU3oNkz.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365422.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283943.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365423.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/03/04/023520/85284301/vbEW8yJg.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365425.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/03/04/023532/85284302/zmEOg4Z.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365416.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/03/04/023354/85284294/5bomcKh.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365426.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283920.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365427.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283922.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365428.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283924.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365424.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283925.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365429.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283926.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365430.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283927.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365431.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283929.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365433.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283930.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365412.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283932.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365434.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283934.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365435.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283937.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365436.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283938.jpg">
 
 26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365437.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283939.jpg">
 
 27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365438.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283940.jpg">
 
 28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365439.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283944.jpg">
 
 29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365440.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283945.jpg">
 
 30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365441.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283949.jpg">
 
 31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365442.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365443.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365444.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365445.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85365447.gif">
-
-36.
-<img src="https://cdn.ebaumsworld.com/2017/05/26/104239/85365730/FunnyWOMAN.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/883100/85283948.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85365411/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85283917/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">25 Strangest Things about Gandhi</a>
-1. In 1948, Gandhi's killer was immediately apprehended by an American diplomat, Herbert Reiner Jr. The diplomat had hoped to meet Gandhi for the first time when the murder occurred.
-
--u/Gonetilnovemberish
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222667.jpg">
+## <a href="#link4" id="link3">20 Things Everyone Does But No One Wants To Admit</a>
+1. Coming up with the perfect comeback in your head long after the other person left.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320914.jpg">
 
-2. Mahatma Gandhi wrote two letters to Hitler, in which he asked him to stop the war cause it would have caused many victims. Neither of the letters he wrote was allowed to be sent by the colonial government.
-
--u/tiba_004
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222665.png">
+2. Making up fake scenarios in our head.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320916.jpg">
 
-3. In 2003, MTV aired an adult cartoon called Clone High which features clones of historical figures in high school. It was canceled after one season because it caused mass protest in India and even hunger strikes over its portrayal of Gandhi as a party animal.
-
--u/nickburrows8398
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222666.png">
+3. Have a full conversation with your pet. I can't be the only one.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320917.jpg">
 
-4. Sid Meier's Civilization had an underflow glitch caused Gandhi to become a nuclear-obsessed warlord.
-
--u/doitpow
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222668.jpg">
+4. Intrusive thoughts that make us question whether we're secretly psychopaths.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320918.jpg">
 
-5. Gandhi slept naked along with his great-niece and several other young women to test his ability to abstain from sexual relations as part of a spiritual chastity experiment.
-
--deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222669.jpg">
+5. Reading messages from the notification bar and then pretending you didn't see the message only much later.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320919.jpg">
 
-6. Gandhi formed an organization called the Indian Ambulance Corps, who acted as stretcher bearers during the Second Boer War in South Africa.
-
--u/DylanVincent
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222670.jpg">
+6. Winning fake arguments in your head.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320920.jpg">
 
-7. Gandhi, Winston Churchill, and future South African President Louis Botha were all present at the battle of Spionkop during the 2nd Anglo-Boer war.
-
--deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222671.jpg">
+7. Talking to ourselves.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320922.jpg">
 
-8. Gandhi never said "Be the change you wish to see" what he said was much more eloquent:
-
-“If we could change ourselves, the tendencies in the world would also change. As a man changes his own nature, so does the attitude of the world change towards him. ... We need not wait to see what others do.”
-
--u/KnightSaber24
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222672.jpeg">
+8. Reading comments/texts multiple times after sending/posting them. Just to let the fact that you’re a modern day Shakespeare settle in.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320923.jpg">
 
-9. Mahatama Gandhi modeled his Dandi march on the Boston Tea Party. He always quoted about the American struggle for independence in his speeches. He even flavored his tea with salt, while signing Gandhi Irwin Pact to commemorate the influence of Boston Tea Party in his satyagraha.
-
--u/shivamohanmi
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222673.png">
+9. Panic clean before guests come over to then apologize for the mess.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320915.jpg">
 
-10. Gandhi was married at age 13.
-
--u/fur_pirate
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222674.jpg">
+10. Procrastination!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320924.jpg">
 
-11. In India, you are systematically labeled by your caste class whatever you are, whatever you do. Mahatma Gandhi was struggling to abolish this caste system but it still exists today.
-
--u/Big_Brain
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222675.jpg">
+11. Making up conversations in my head before something important. I will say something and then the response from other person. Sometimes it can go for 10-15 min before I snap back to reality.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320925.jpg">
 
-12. Gandhi's Assassin was executed despite Gandhi's strict opposition to the death penalty.
-
--u/DozTacosPorFavor
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222678.jpg">
+12. Get enraged at the things a bully did 40 years ago.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320926.jpg">
 
-13. A variant of the following quote is commonly misattributed to Gandhi. "First they ignore you. Then they ridicule you. And then they attack you and want to burn you. And then they build monuments to you." -Nicholas Klein
-
--u/TurtleFood
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222676.jpg">
+13. “It is not the picking of the nose that separates us, but what comes after.”
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320921.jpg">
 
-14. General who ordered the massacre of over 1000 peaceful men, women, and children as depicted in the movie Gandhi became a "celebrated hero" when he returned to Britain.
-
--u/goodnewscrew
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222677.jpg">
+14. Fantasize about doing something/someone you shouldn't.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320927.jpg">
 
-15. Nathuram Godse, who assassinated Mahatma Gandhi, tried 3 times to kill him before succeeding.
-
--u/Horehey34
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222679.jpg">
+15. Look up words that people use because we don't know the meaning, even though we pretend to when they are talking.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320928.jpg">
 
-16. The Gandhi that we all know about, who employed nonviolent civil disobedience, was once a lawyer.
-
--u/bluestreakxp
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222680.jpg">
+16. Kids hide their profanity from adults, and adults hide their profanity from kids. Both sides must maintain the illusion that the other side doesn't know that they know profanity.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320929.jpg">
 
-17. Gandhi's non-violent resistance may have been inspired by a Maori Chief two generations earlier.
-
--deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222681.jpg">
+17. Tell small lies. Particularly to make us and others feel better.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320930.jpg">
 
-18. Gandhi was born Mohandas Karamchand Gandhi, and "Mahatma" is an honorific meaning "high souled."
-
--u/Ricashea3
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222682.jpg">
+18. Convincing yourself in your head that everyone around you is doing things perfectly and at full efficiency and expect the same of the people around them.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320931.jpg">
 
-19. The seven sins according to Gandhi: "Wealth without work. Pleasure without conscience. Knowledge without character. Commerce without morality. Science without humanity. Religion without sacrifice. Politics without principle."
-
--u/allocater
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222683.jpg">
+19. Judge other people.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320932.jpg">
 
-20. The Nobel Committee declined to award the Nobel Peace Prize in 1948 because "there was no suitable living candidate." This was meant as a tribute to Mahatma Gandhi, who was assassinated earlier that year without receiving the Prize.
-
--deleted user
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222684.png">
-
-21. Both Martin Luther King Jr. and Mohandas Gandhi tried to kill themselves during adolescence, and both suffered severe bouts of depression later in life.
-
--u/l_hazlewoods
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222685.jpg">
-
-22. Winston Churchill despised Gandhi and when he tried to hunger strike Churchill was in favor of letting him die.
-
--u/soalone34
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222686.jpg">
-
-23. Gandhi was met with incredulity when he chose a tax on salt as a focus in a campaign for India's independence, but his "Great Salt March" helped change world opinion. As the march ended, he raised a lump of salty mud and declared, "With this, I am shaking the foundations of the British Empire."
-
--u/design-responsibly
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222687.jpg">
-
-24. Gandhi was obsessed with poop and enemas. He addressed his live-in maids every day with the sentence “Have you had a good bowel movement this morning, sisters?”
-
--u/__Jay
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222688.jpg">
-
-25. Gandhi had an arranged marriage when he was still prepubescent, at age 13. His wife was 14. “We didn’t know much about marriage,” he said later. “For is it meant only wearing new clothes and eating sweets.” He had his first son at 16.
-
--u/NordyNed
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87222689.jpg">
+20. Assume you are of "above average" intelligence.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87320933.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87222664/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87320913/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">22 Times Perfect Photos Changed Due To Unforseen Circumstances</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482840.jpg">
+## <a href="#link5" id="link4">50 Mistakes Found In Movies And TV Shows</a>
+1. I'm Watching Doctor Strange And I Caught A Crew Member Literally In Plain Sight
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259157.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482841.jpg">
+2. In The Movie "Leap" (2017), Taking Place In 19th Century France, You Catch Views Of The Statue Of Liberty Being Built. The Film Depicts The Color Being What You'd See Today But The Original Color Was In Fact Bronze
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259158.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482844.jpg">
+3. In Teenage Mutant Ninja Turtles (1990), There Is A Shot Where You Can See The Actor's Mouth Inside Of The Suit
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259159.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482845.jpg">
+4. Live Action 101 Dalmatians, Pongo Who Is About To Father 15 Puppies Is Played By A Neutered Dog
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259160.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482847.jpg">
+5. Ad Astra (2019) Brad Pitt Is Speaking To His Father In Zero Gravity, And A Tear Rolls Down His Cheek As If He Was In A Gravity Environment
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259161.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482849.jpg">
+6. In The Lion King (2019), Baby Pumbaa Looks Nothing Like A Warthog Piglet
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259162.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482852.jpg">
+7. Show (9-1-1 S3-Ep3) This Guy Got His Arm Amputated But They Forgot To Edit It Out Of This Shot
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259163.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482853.jpg">
+8. Lady Bird, Set In 2002 But On The Wall You Can See Flags Of Serbia, And Montenegro ( In 2002, Serbia And Montenegro Were One Country, Federal Republic Of Yugoslavia Until 2003). Also You Can See Flag Of South Sudan( Declared Independence In 2011) Fun Fact: I Am From Serbia
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259165.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482855.jpg">
+9. About 50 Minutes In To Hereditary, All I Could See Was Toni Collette’s Wig’s Lace
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259166.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482857.jpg">
+10. I Can't Believe I Never Noticed This, But In "Independence Day" (1996) When David Has A Drunken Fit About Using Nukes, He Turns Over A Garbage Can Belonging To The Art Department
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259167.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482858.jpg">
+11. In Forest Gump (1994) Forest Says That Jenny Died On A Saturday Morning But Her Tombstone Says She Died On March 22, 1982 Which Was A Monday
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259168.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482859.jpg">
+12. Rewatching Stargate. Noticed An Entire Crew And An 8x Silk In Kurt Russell's Glasses
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259164.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482860.jpg">
+13. Fake Bookshelf In The Last Crusade
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259169.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482861.jpg">
+14. In S4 E17 Of The TV Show Criminal Minds, Agent Prentis Drives Up Next To A Bar And The Reflection “Bar” Is Shown When It Should Be Written Inverted Due To Being A Reflection. Unless, Of Course, The Name Of The Bar Is Яaᙠ Which I Don’t Believe Is Feasible
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259170.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482866.jpg">
+15. In The Last Of The Mohicans (1992) You Can See The Crew's Baseball Caps And Megaphone
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259171.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482867.jpg">
+16. In The Movie The Wizard Of Oz (1939) In One Shot You Can See That Dorthey Isn't Wearing Her Ruby Red Slippers When She And The Scarecrow Are Trying To Get Apples
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259172.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482870.jpg">
+17. In Pulp Fiction You Can See The Bullet Holes On The Wall Even Before The Guy Comes Out From The Bathroom,shooting!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259173.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482871.jpg">
+18. Helicopter Shadow Visible In The Opening Aerial Shot Of The Shining
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259174.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482872.jpg">
+19. In "The Last Of The Mohicans" When General Monro Surrenders Fort William Henry To The French, Buses Are Visible Parked In The Background
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259175.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482873.jpg">
+20. In The Final Scene Of The Movie Pirates Of The Caribbean: The Curse Of The Black Pearl (2003) A Crew Member With A Cowboy Hat Can Be Seen On The Ship
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259176.jpg">
 
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/85482875.gif">
+21. Never Been Kissed- The Math Group Has The Wrong Number For Pi (Pi Is 3.14159265...)
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259177.jpg">
 
-22.
-<img src="https://cdn.ebaumsworld.com/2017/10/05/023145/85483595/35.jpg">
+22. Curb Your Enthusiasm S10 E02: An Extra Looks At The Camera, Then A Voice Off-Screen Is Heard Saying "That Lady Just Looked At The Camera."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259178.jpg">
+
+23. In Passenger 57 (1992), The FBI Agent In The Back Already Has Makeup For The Gunshot Before Being Shot
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259179.jpg">
+
+24. Superman Has Fillings. In The 1978 Superman Movie In The Scene Where Superman Finds Lois Lane Dead From The Earthquake, Superman Screams And You Can See He Has Fillings. He's Apparently Not Impervious To Plaque
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259180.jpg">
+
+25. Jurassic Park, When John Hammond Is Cleaning A Glass Before Pouring Champagne, The Towel He Is Using To Dry The Glass Magically Switches From White To Pink In The Next Shot
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259181.jpg">
+
+26. Hunger Games, More Like Mistake Games
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259182.jpg">
+
+27. Modern Family S6 E13. Haley’a Phone Is Upside Down
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259183.jpg">
+
+28. A Massive Mistake Can Be Seen Throughout ‘The Titanic’. In The Movie The Ships 4 Tunnels Emit Steam From Its Engines. In Reality The Fourth Funnel Was Mainly For Show To Improve Its Look And Make It Look Bigger
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259184.jpg">
+
+29. Live Streaming Video In Oceans 8 Has Jpeg As Extension
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259185.jpg">
+
+30. School Of Rock (2003) In The Beginning Of The Movie, During The Performance Of Deweys Band We See One Of The Audience Members Text Their Friends Saying The Band Sucks. However We Can Clearly See That The Audience Member Is Actually Texting No One And Is Just Typing Into A Text Document
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259186.jpg">
+
+31. Cameraman Caught On Harry Potter
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259187.jpg">
+
+32. Season 3 Of Stranger Things When Billy Knocks Out Mike You Can See His Stunt Doubles Hairy Legs
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259188.jpg">
+
+33. In Fast And Furious 6(2013) Dwayne Johnson’s Goatee Appears, Disappears, Then Reappears
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259189.jpg">
+
+34. In Barry (2016), A Netflix Movie About A Young Barack Obama's Life At Columbia University In 1981, When Obama Went Into A Harlem Projects The Newspaper On The Window Says In Chinese, "Trump Wins Big In New York Primary"
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259190.jpg">
+
+35. [forrest Gump] Forrest Nets A Can Of Mello Yello, A Drink That Wouldn't Exist Until 1979, With A Can Design That Didn't Exist Until 1988
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259191.jpg">
+
+36. In Captain America: The Winter Soldier, Bucky’s Biography States He Was Born In 1916, But The Bottom Of His Bio Says He Was Born In 1917
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259192.jpg">
+
+37. In Spiderman Homecoming (2017), The Staten Island Ferry Is Shown With Cars And Motorcycles On It's Bottom Deck. However, Vehicles Have Not Been Allowed On The Ferry Since September 11th, 2001 Out Of Fear Of Terrorism And Have Not Been Allowed Since Due To The Cost Of Security That Would Be Required
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259193.jpg">
+
+38. In The Film "The Road To El Dorado", The Spanish Galleons Have On Their Sails The Order Of Christ Cross, A Portuguese Symbol Not Spanish
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259194.jpg">
+
+39. Back To The Future II (1989), You Can See Delorean Flying Car Rolling On Small Wheels
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259195.jpg">
+
+40. In The Pilot Episode Of Breaking Bad You Can See What I Think Is Bryan Cranston’s Mic Pack On His Back When He Bends Over To Vomit. 54:27
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259196.jpg">
+
+41. In I.t Chapter 2(2019) Richie's Car Is A 2019 Model Mustang, Which Is Odd As The Movie Is Based In 2016, Dunno If This Was Posted Yet Or Not
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259197.jpg">
+
+42. With How Many Changes That Have Been Made To Remastered Versions Of The Original Star Wars Trilogy I’m Surprised They’ve Never Fixed The Star Field Not Being Out Of Focus With The Rest Of The Background In Return Of The Jedi
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259198.jpg">
+
+43. In ‘A Christmas Story’ When Mrs. Shields Opens Her Drawer There Is A Pair Of Chattering Teeth. The Movie Is Set In 1939, And Chattering Teeth Were Invented In 1949
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259199.jpg">
+
+44. In Dallas Buyers Club(2013), There's A Poster Of Lamborghini Aventador In Ron Woodroof's Office. Ron Died In 1992, The Aventador Was Launched In 2011
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259200.jpg">
+
+45. John Wick: Chapter 3 – Parabellum (2019) – Operator Typing On Commodore Vic-20 (Or 64) That Is Missing Power Cable, Also LED Power Indicator Is Off. At Least, Power Button Is On
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259201.jpg">
+
+46. This One Is Especially Bad Seeing As It's In The Middle Of A Trailer For The Summer's Most Anticipated Film... (Once Upon A Time In Hollywood - Set In 1969)
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259202.jpg">
+
+47. In Rick And Morty S04e06: When Rick Closes The Door On Goomby, The Hinges Stay On The Outside Of The Door
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259203.jpg">
+
+48. If You Watch Fight Club With Brad Pitt And Ed Norton Giving Commentary They Laugh At Meat Loafs Wardrobe Malfunction. His Trousers Fall Down In The Background Of This Scene
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259204.jpg">
+
+49. They Weigh In A 200lbs A Container. Yet Jesse Effortlessly Lifts And Stacks Them Alone As If They Were 10lbs
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259205.jpg">
+
+50. In The Last Airbender, The Movie Starts
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87259206.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85482839/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87259156/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">40 Awesome Pics That Will Distract You From Your Worries</a>
-1.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094527/85215422/85215076.jpg">
+## <a href="#link6" id="link5">20 Savage Tweets to Print and Hang On Your Fridge</a>
+1. This is a top tier life hack. Love to see it.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081503/87283279/IMG_6260.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214863.jpg">
+2. LMAO. Someone go check on the Washington State Department of Natural Resources.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081504/87283280/IMG_6255.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094336/85215362/85214209.jpg">
+3. Yikes. What on earth is going on here?
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081506/87283281/IMG_6261.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214855.jpg">
+4. How dare they make me do my own job!
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081510/87283282/IMG_6262.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094409/85215365/85214229.jpg">
+5. Page 67 is absolutely lit. The best page in the book.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081511/87283283/IMG_6259.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094538/85215423/85215078.jpg">
+6. This is the only toy I want under the tree on Christmas morning.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081516/87283284/IMG_6263.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094505/85215420/85215073.jpg">
+7. Be safe out there. Check your kids' candy!
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081520/87283285/IMG_6264.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094442/85215368/85215052.jpg">
+8. Great. That's just what we need right now is for someone to put this thing on.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081529/87283287/IMG_6265.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/101637/85215452/nFqUstv.png">
+9. I hate it here. I truly do.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081530/87283288/IMG_6267.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094516/85215421/85215074.jpg">
+10. He doesn't like it when you speak Italian!
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081534/87283289/IMG_6268.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094453/85215369/85215070.jpg">
+11. I've always wondered. Now it all makes sense.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081524/87283286/IMG_6266.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094420/85215366/85214230.jpg">
+12. Is this a trick? This feels like a trick.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081539/87283290/IMG_6269.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094431/85215367/85214235.jpg">
+13. The anal bead cheating scandal is honestly peak 2022.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081541/87283291/IMG_6271.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094347/85215363/85214211.jpg">
+14. Anything less than a 30% tip for this dude is hogwash.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081543/87283292/IMG_6270.jpg">
 
-15.
-<img src="https://cdn.ebaumsworld.com/2016/12/13/094550/85215424/85215094.jpg">
+15. Never forget to lock the nun's stall.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081544/87283293/IMG_6272.jpg">
 
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214867.jpg">
+16. Dang. It just might work too.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081548/87283294/IMG_6274.jpg">
 
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214846.jpg">
+17. The world is upside down! Who knows what they'll do next.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081552/87283295/IMG_6273.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214841.jpg">
+18. Can someone help me find the lower beaver?
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081554/87283296/IMG_6276.jpg">
 
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214842.jpg">
+19. Delicious. Just really spectacular.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081555/87283297/IMG_6277.jpg">
 
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214843.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214844.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214845.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214847.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214848.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214850.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214852.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214856.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214858.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214859.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214860.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214861.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214862.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214864.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214866.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214868.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214869.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214870.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214871.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214872.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85214851.gif">
+20. Burger, fries, and coke please.
+<img src="https://cdn.ebaumsworld.com/2022/10/06/081559/87283298/IMG_6275.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85214837/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87283278/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">19 Cool Graphs and Charts to Take In</a>
+## <a href="#link7" id="link6">20 Offensive Advertisements That Got Someone Fired</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243491.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372052.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243492.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372051.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243493.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372064.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243494.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372053.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243495.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372062.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243496.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372054.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243497.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372055.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243498.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372050.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243499.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372057.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243500.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372058.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243501.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372059.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243502.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372061.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243503.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372068.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243504.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372060.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243505.jpeg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372069.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243506.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372063.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243507.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372065.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243509.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372066.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87243510.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372067.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85372056.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87243490/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85372049/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">Kids Who Get Stuck In Everything</a>
-1. Toilets seem to pose quite a problem for children
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044241.jpg">
+## <a href="#link8" id="link7">20 People Admit the Dumbest Things They've Ever Done While High</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359331.jpg">
 
-2. Who does this?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044245.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359332.jpg">
 
-3. I hate it when the locker just grabs you and holds you hostage
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044240.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359333.jpg">
 
-4. Here's to that moment when you fall between the seats and your parents keeping driving, take pics, and laugh as you see your life flash before your eyes
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044242.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359334.jpg">
 
-5. And that was the day little Tommy learned not to stick his fingers in the drain holes
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044243.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359335.jpg">
 
-6. The rest of the kids love this kid because they got to go out for extra recess
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044244.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359336.jpg">
 
-7. Another toilet kid
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044246.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359337.jpg">
 
-8. How can you get it in but you can't get it out?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044247.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359338.jpg">
 
-9. These potty seats really pose a problem.... I can't say I ever saw mine as a hat or necklace
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044248.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359339.jpg">
 
-10. Maybe when they get older they'll form a club.... or a class action lawsuit
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044249.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359340.jpg">
 
-11. SOrry maam. Can't get her out, you'll have to come visit during normal business hours
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044250.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359341.jpg">
 
-12. He's just hanging around
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044251.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359342.jpg">
 
-13. These pose a big problem too
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044252.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359343.jpg">
 
-14. The fence kids are trying to catch up to the toilet kids
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044253.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359344.jpg">
 
-15. This is easy to fix... you're in the privacy of your own home so you can point and laugh for many hours (as long as you bring him food).
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044254.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359345.jpg">
 
-16. Potty kid
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044255.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359346.jpg">
 
-17. Now this child was at least creative. She'll go far in life
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044256.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359347.jpg">
 
-18. When superman needs rescuing. Next time sit with your butt, not your head.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044257.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359348.jpg">
 
-19. I don't even want to know but I suspect someone did this to her. I hope she remembers to repay them when she develops fine motor skills
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044258.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359349.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044259.jpg">
-
-21. Well, it looked comfortable
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/85044260.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85359350.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85044239/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85359330/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">23 Castles and Structures Forgotten By Time</a>
-1. Palmenti Of Pietragalla, Small Caves In Italy Which Were Used For Processing And Fermentation Of Grapes
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241519.jpg">
+## <a href="#link9" id="link8">22 Funny Moments From Tumblr And The Internet   </a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247538.png">
 
-2. An Abandoned House In Chicago Was Built In 1888
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241513.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247539.png">
 
-3. The Bridge To Roslin Castle. Midlothian, Scotland
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241520.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247540.png">
 
-4. Castle Sinclair Girnigoe Located On The East Coast Of Caithness, Scotland
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241522.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247541.png">
 
-5. Polar Bears At An Abandoned Soviet Weather Station On Kolyuchin Island, Dmitry Kokh
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241510.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247542.png">
 
-6. Marton Mogyorosy Lake Iseo, Italy!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241512.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247543.png">
 
-7. Found In India, 5000 Years Old, Made From A Single Rock
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241514.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247544.png">
 
-8. The Entrance Gate To An Abandoned Mansion In Poland
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241518.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247545.png">
 
-9. Stairway To Heaven, The Ancient Inca Trail That Leads To Machu Picchu In Peru
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241511.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247546.png">
 
-10. The Most Isolated Lighthouse In The World, Þrídrangaviti Lighthouse, Perched Atop A Rock Pillar In The Westman Islands, Off The Coast Of Iceland
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241530.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247547.png">
 
-11. The Real Dracula's Castle Abandoned, Romania Photo Taken In 1920s
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241526.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247548.png">
 
-12. Monastery Sumela, Turkey
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241536.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247549.png">
 
-13. Castello Di Sammezzano, Italy
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241521.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247550.png">
 
-14. Abandoned Through The Years
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241523.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247551.png">
 
-15. Framed With Trees, The Door Of This Medieval Sanctuary Looks Like A Portal To A Mythical Realm. St Edward's Church, Stow-On-The-Wold (England)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241524.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247552.png">
 
-16. The Incline, Manitou Springs, Colorado!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241527.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247553.png">
 
-17. A 14th Century Abandoned Castle In Scotland
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241517.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247554.png">
 
-18. The Beautiful Tree Transforming This Abandoned Place Into A Secret Garden, Ireland
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241508.jpg">
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247555.png">
 
-19. Drain Pipe In The Castle Of Pierrefonds In France
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241531.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247556.png">
 
-20. Wreck Of The Ten Sails. Shipwreck Event Occurred Off The East End Of Grand Cayman On 8 February 1794
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241509.jpg">
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247557.png">
 
-21. Carleton Island Villa Is An Abandoned Mansion Located On Carleton Island, In Upstate New York
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241535.jpg">
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247558.png">
 
-22. Abandoned Dunalastair Castle, Scotland
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241516.jpg">
-
-23. Abandoned Hashima Island, Japan
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87241538.jpg">
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85247559.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87241507/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85247537/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">20 Things That Truly Infuriated People</a>
-1. Okay What??!!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288470.jpg">
+## <a href="#link10" id="link9">31 Stupid Life Hacks That Are Freaking Hilarious</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149634.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288459.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149657.jpg">
 
-3. Passengers From A France - Dominican Republic Flight
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288474.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149636.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288480.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149651.jpg">
 
-5. Stray Bullet Cracked My Solar Panel
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288465.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149637.jpg">
 
-6. Why Can't Hollywood Get It Through Their Skulls That The Military Doesn't Wear Hats Indoors?!?!?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288464.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149638.jpg">
 
-7. I Ordered A Caesar Salad And This Is What I Got
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288475.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149639.jpg">
 
-8. The First Time I Actually Need The SD Port Someone Does This
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288462.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149640.jpg">
 
-9. An Entire Gallon Of Glossy Black Garage Floor Paint. There Goes My Day
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288463.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149641.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288484.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149642.jpg">
 
-11. OMG Everyday
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288467.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149643.jpg">
 
-12. I Woke Up To This, Great
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288468.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149644.jpg">
 
-13. No, Just No
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288469.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149645.jpg">
 
-14. America: Abortion Banned And Baby Formula In Locked Steel Cages
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288471.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149646.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288486.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149635.jpg">
 
-16. This Would Have Taken 2 Minutes To Drop At My Door. Instead I Have To Work For 15 Minutes To Get It Out. Thanks, Canada Post
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288472.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149648.jpg">
 
-17. Guy Mowing The Lawn Shot A Rock Through My Window
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288473.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149655.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288477.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149649.jpg">
 
-19. 48 Minute Youtube Ad
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288485.jpg">
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149650.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87288487.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149652.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149653.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149654.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149656.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149658.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149659.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149660.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149661.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149662.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149663.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149664.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85149665.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87288458/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85149633/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">29 Times Designers Should Have Got a Second Opinion </a>
-1. Ho Ho Ho!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256331.jpg">
+## <a href="#link11" id="link10">20 Crazy and Captivating Photos That Caught Our Eye</a>
+1. Indo Persian Islamic Empire Dynasty "bear paw" armor.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025554/87312584/armor.jpg">
 
-2. This Deeply Satisfied My Inner 13-Year-Old Not Gonna Lie
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256332.jpg">
+2. Chinese feet-binding. The practice was finally banned in the 20th century.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025556/87312585/binding.jpg">
 
-3. Ordered This Badge For My Girlfriend, Which Was Made From My Proposal Photo To Her. Didn't Quite Go As Expected...
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256333.jpg">
+3. In the '70s you could literally buy brains in St. Louis.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025603/87312586/brains.jpg">
 
-4. Nightmare Fuel
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256334.jpg">
+4. This is a mid-1600s hand brand that was used on felons in England.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025604/87312587/brand.jpg">
 
-5. The Holes Inside My Chili Flake Pot Are Not Big Enough For Any Of The Pieces To Fit Through
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256335.jpg">
+5. 1886, Ella Harper also known as the Camel Girl.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025607/87312588/camelgirl.jpg">
 
-6. Save Money Using The Same Guy
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256336.jpg">
+6. Nothing to see here, just a mother centipede protecting her babies.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025608/87312589/centimom.jpg">
 
-7. Made In China
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256337.jpg">
+7. 1937 was a wild time.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025629/87312594/grasshopper.jpg">
 
-8. "Hello, Police? I'd Like To Report Indecent Exposure!"
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256338.jpg">
+8. Just your everyday 28ft. anaconda skeleton. NBD.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025617/87312590/anaconda.jpg">
 
-9. Realistic Human Head Motorcycle Helmet
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256339.jpg">
+9. After the Battle at Waterloo, thousands of teeth were taken from dead soldiers to make dentures.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025618/87312591/dentures.jpg">
 
-10. Virgin Mary
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256330.jpg">
+10. This giant rock along the Niagara Gorge Railroad, Niagara Falls.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025621/87312592/giantrock.jpg">
 
-11. You Liar
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256340.jpg">
+11. In the early 20th century, you could literally get a cast made of your deceased loved ones. AKA death masks.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025627/87312593/deathmask.jpg">
 
-12. Our Values
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256341.jpg">
+12. Pasqual Pinon was known for the growth on his head. No he didn't have a conjoined head. It's literally a growth he covered with a mask.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025630/87312596/mask.jpg">
 
-13. Eat Kids
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256342.jpg">
+13. 'The Reflecting Pool.' This photo is said to be untampered with, and totally legit.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025631/87312597/reflecting.jpg">
 
-14. Oh No
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256343.jpg">
+14. Unique bacteria living on either side of the Great Salt Lake creates these wild colors.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025635/87312598/greatsalt.jpg">
 
-15. The Clock At My Work. Not How Roman Numerals Work
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256344.jpg">
+15. 1999, this insane stage was built for the Bregenz performing arts festival in Austria.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025635/87312599/stage.jpg">
 
-16. Oh Shoot!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256345.jpg">
+16. For those with greedy hands, the Catholic Church used to use this hand-crushing machine as punishment.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025629/87312595/greedyhands.jpg">
 
-17. Someone Please Explain The Purpose Of The Wiper?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256346.jpg">
+17. In the middle ages, women were not supposed to talk too frequently. Their husband's would use this torture device as punishment.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025640/87312600/torture.jpg">
 
-18. Misleading Paperclip
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256347.jpg">
+18. A massive watersprout from back in 2013 heading straight for Tampa.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025644/87312601/watersprout.jpg">
 
-19. Perfect Smile
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256348.jpg">
+19. This snake pulling a kangaroo out of the water proves Australia needs to be set on fire.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025648/87312602/snake.jpg">
 
-20. Let's Play Hangman
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256349.jpg">
-
-21. If Only There Was A Cheaper, Aesthetically Pleasing, More Natural Way To Get Shade
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256350.jpg">
-
-22. Giving "Heat Stroke" A New Meaning
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256351.jpg">
-
-23. Happy Independence Day America!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256352.jpg">
-
-24. Getting Two For The Price Of One
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256353.jpg">
-
-25. Two Sinks, One Throne
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256354.jpg">
-
-26. Who Wants An Ice Cream ?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256355.jpg">
-
-27. I Present My Apartments 1/3 Outlet
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256356.jpg">
-
-28. I Don't Think This Is The Best Place For A Basket
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256357.jpg">
-
-29. Cr**per Sofa
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87256358.jpg">
+20. U.S. solider's body armor during WWI.
+<img src="https://cdn.ebaumsworld.com/2022/11/29/025653/87312603/ww1soldier.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87256329/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87312583/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
