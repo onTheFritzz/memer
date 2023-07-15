@@ -1,645 +1,995 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 07.15.2023-01:45:17<br>All credits to ebaumsworld.com
+Last Updated 07.15.2023-04:45:17<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">20 "What Is The Most NSFW Thing You've Seen At A Party" Stories</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471352.png">
+## <a href="#link1" id="link0">5 of The Most Hated People On The Internet</a>
+1. Anita Sarkeesian hosts a channel called "Feminist Frequency". The problem people have with her is her vids contain gross misinformation. The biggest being her post on video games, where she includes a section on "Hitman: Absolution". She argues that games like Hitman cater to sexless nerds by allowing them to beat and murder prostitutes and gain points for hiding or disposing of their bodies. Except Hitman's system deducts points for your killing of innocent people. Sarkeesian also shuts off the comment and rating system for her uploads and began a kickstarter campaign in which she raked in over $160,000 with no word on why she wanted the money or what she plans to do with it.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329812.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471353.png">
+2. LionMaker is the name of a user specializing in Minecraft vids and other content for children. He has amassed millions of viewers and followers of his content - until the mother of one young Minecraft player reported that LionMaker requested nude photos from her child. LionMaker immediately responded his "account/computer was hacked". The mother did not believe him, seeing as how his Twitter account also included shady messages bragging about sex with a 15-year-old. Then, another 15-year-old boy reported that LionMaker offered him $500 for nude photos. LionMaker now disables all comments and ratings while continuing to post.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329815.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471354.png">
+3. These two assholes created a channel involving reaction videos, such as "Kids React", "Teens React", "Old People React", etc. It went all fine until they decided to actually copyright those terms, their format, and even the word "React". This would bar anyone from using those titles or descriptions on their own uploaded videos unless they either paid the Fine brothers 50% for every use or 60% of any ad revenue they earned from their videos. Youtube and Reddit didn't like the idea of two guys attempting to lay claim to words or formats that were around long before their channel existed, so the Fine brothers lost over half of their subscribers and had to issue an apology.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329814.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471355.png">
+4. Roosh V and his group promote "neo-masculinity", with his videos espousing hateful views on women, including the idea rape should be legal and female worth should solely be based on fertility or attraction. For a self-proclaimed model of male virtue, he sure is a pussy. All his attempts at meet-ups are quickly canceled, since he and his subscribers become fearful of retaliation and refuse to gather in public.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329813.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471356.png">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471357.png">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471358.png">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471359.png">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471361.png">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471360.png">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471362.png">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471363.png">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471364.png">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471365.png">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471366.png">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471367.png">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471368.png">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471369.png">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471370.png">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/705380/85471371.png">
+5. Martin Shkreli is the king of assholes. He purchased the rights to a drug called Daraprim, used in the treatment of both adult HIV patients and infants. Daraprim was originally $13.50 a script. Thanks to Shkreli, the cost is now $750 a pill. He was arrested on securities fraud, but easily made bail. Then he purchased the rights to Wu Tang Clan's "Once Upon a Time in Shaolin", which pissed off GhostFace Killa. But neither Killa, nor the FDA with Daraprim, can do shit about it. Being called "The Most Hated Man in America" means nothing to Shkreli, as America's deregulation acts protect him. This is what results when you make it legal for rich and greedy individuals to buy literally anything, from others' intellectual content to life-saving medicines and treatments. Shkreli now has a yt channel he uploads to nearly every day to brag about his wealth.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/77662/85329811.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85471351/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85329810/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">21 Bits Of Dark Humor For The Existentialist In You</a>
+## <a href="#link2" id="link1">36 Choice Late Night Pics To Keep You Up</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436892.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061530.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436893.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061531.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436894.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061532.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436895.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061533.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436896.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061534.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436897.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061535.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436898.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061536.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436899.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061537.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436902.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061538.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436900.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061539.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436901.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061540.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436903.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061541.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436904.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061542.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436905.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061543.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436906.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061544.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436907.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061545.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436908.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061546.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436909.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061547.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436910.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061548.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436911.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061549.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85436912.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061550.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061551.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061552.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061553.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061554.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061555.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061556.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061557.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061558.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061559.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061560.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061561.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061562.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061563.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061564.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/85061565.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85436891/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85061529/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">25 Douchebags With Photoshop Girlfriends</a>
+## <a href="#link3" id="link2">28 Fresh Memes To Kick Start Your Day</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586329.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404015.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586330.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404016.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586331.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404017.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586332.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404018.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586333.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404019.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586334.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404020.png">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586335.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404021.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586336.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404025.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586337.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404022.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586338.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404024.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586339.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404026.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586340.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404023.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586341.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404027.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586342.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404028.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586343.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404029.png">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586344.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404030.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586345.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404031.png">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586346.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404033.png">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586347.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404032.png">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586348.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404034.png">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586349.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404035.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586350.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404036.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586351.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404037.jpg">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586352.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404038.png">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/84586353.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404039.png">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404040.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404041.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/85404042.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/84586328/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85404014/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">Wendy's Is Roasting People On Twitter And It's Savage</a>
-1. The encounter which started it all. Poor guy deleted is account because he couldn't handle the beef.
-<img src="https://cdn.ebaumsworld.com/2017/01/04/032346/85232320/wendy1.jpg">
+## <a href="#link4" id="link3">Girl's Amazing Weight Loss Metamorphosis Will Inspire You</a>
+1. A photo from 2010.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85192015.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232247.jpg">
+2. In 2010   she weighed roughly 95 kg (209 lb). The second pic was from a few weeks ago and it's around 72 kg (158 lbs).
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85192013.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232245.jpg">
+3. Her main reason for the weight loss was  "I have never, ever felt confident in a pair of shorts let alone a bikini", so after years of feeling uncomfortable she committed herself to a diet in 2010.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85192014.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232244.jpg">
+4. The pic on the left is her after five years of dieting (2015). . The right pic is her a year later after working out all year.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85192016.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232243.jpg">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232242.jpg">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232241.jpg">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232240.jpg">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232239.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232238.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85232237.jpg">
+5. This is another photo of 2015 vs 2016 and she had this to say: "I've been very large for a very long time - never dreamed I could wear anything like this! So I bought this bikini a couple of weeks ago to tan in for summer. Today my butt is one of my best features... it's probably prettier than my face haha; and I've done a lot of hard work and thousands of squats to get it this way so let's show that baby off! "
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85192017.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85232236/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85192012/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">17 Famous Ghosts Pictures That Can't Be Explained</a>
-1. Child at the Railroad Crossing. Several children were killed at a railroad crossing located in San Antonia, Texas. Locals will tell you that their ghosts still linger at the spot, and will push idle cars across the track – even though the path is uphill.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787043.jpg">
+## <a href="#link5" id="link4">29 People Who Got Brutalized in the Comments </a>
+1. He's the fourth musketeer. Do you see what I did there?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228384.jpg">
 
-2. Freddy Jackson. A squadron of the Royal Air Force assembled to take a mundane photograph, but after the picture was developed the squad quickly realized that this was no ordinary picture. Standing behind one of his mates was the two days deceased Freddy Jackson. He had been working when he was killed in a freak-accident by an air plane propeller. Several of the other men in the photo confirmed that it was in fact Jackson’s face in the background of the picture.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787044.jpg">
+2. what is wrong with this guy's fingers?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228381.jpg">
 
-3. The Madonna of Bachelor’s Grove. Bachelor’s Grove Cemetery, located in Illinois, is considered to be one of the most haunted places in the world. This picture depicts a lady resting on a bench, but there wasn’t anyone else in the cemetery at the time.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787045.jpg">
+3. Who the hell is this kid?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228375.jpg">
 
-4. Back Seat Driver. This famous ghost photograph was taken in 1959 by Mable Chinnery. After visiting the grave of her mother, Mable turned and took a picture of her husband, who was waiting for her in the car.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787046.jpg">
+4. This is what happens to a potato when you forget about it in the cupboard for months.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228376.jpg">
 
-5. The Bell Witch. Back in the 1800’s, a Tennessee farmer was reported to be at the mercy of an executed witch. John Bell documented all sorts of harassment, which included noises in the walls, being pinched, slapped, having objects thrown at him and animals being spooked with no visible cause.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787047.jpg">
+5. There is no coming back from this.  She is done for.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228378.jpg">
 
-6. Lord of the Chair. Lord Combermere was killed by a horse drawn carriage back in 1891. While waiting for the family to return from the funeral, the photographer snapped this photo of Combermere’s favorite chair.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787048.jpg">
+6. Jokes on him?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228379.jpg">
 
-7. The Ghost of Boothill Graveyard. Terry Clanton snapped a photo of his friend dressed as a cowboy in a famous Arizona graveyard. When he had the photos developed, he was shocked to see a man dressed as a cowboy in the background. “I know there was no other person in this photograph when I shot it,” Clanton insists.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787049.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228380.jpg">
 
-8. The Brown Lady of Raynham Court. In the 18th century, Lady Dorothy Townshend was locked away when her husband found out she was having an affair. She died under mysterious circumstances in 1726 and sightings of a female figure on the stairs began shortly after.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787050.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228373.jpg">
 
-9. Corroboree Rock Spirit. Taken by Reverend R.S. Blance at Corroboree Rock, Northern Territory, Australia in 1959, this famous photograph appears to show a woman holding her hands toward her face peering out into the distance.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787051.jpg">
+9. Damn, this one must have cut deep.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228377.jpg">
 
-10. The Farm Ghost. Neil Sandbach was out taking a few scenic shots of a farm in Hertfordshire, England. Sandbach was astonished whenever he had the film developed, and noticed a little boy. When he asked the locals about it, several admitted to seeing a young boy in white night clothes.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787052.jpg">
+10. Why does this make so much sense?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228382.jpg">
 
-11. The Ghost of Grandpas Past. Denise Russell snapped a photo of her grandmother and claims she inadvertently captured her deceased grandfather in the background.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787053.jpg">
+11. Not the time bro, not the time.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228383.jpg">
 
-12. Amityville Horror Ghost. Not everyone realizes that the movie was inspired by real events that happened to a family on Long Island. This picture was discovered among evidence taken by actual demonologists who investigated the house in 1976. No children were present in the house at the time.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787054.jpg">
+12. Your move Bud Light.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228374.jpg">
 
-13. The Tulip Staircase Ghost. A photo taken by Reverend Ralph Hardy of ‘The Tulip Staircase’ at the National Maritime Museum in England depicts an eerie figure. Experts who have studied the original negative have universally concluded that the film had not been tampered with.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787055.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228385.jpg">
 
-14. The Fire Girl. In 1995, Wem Town Hall in England caught fire. No one was inside, but snapshots revealed the image of a young girl believed to be Jane Churm who, in 1677, accidentally started a fire that destroyed many homes in the town.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787056.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228386.jpg">
 
-15. The Stanley Hotel’s Haunted Piano. Guests have said Flora, an artist who died in this Colorado hotel long ago, returns to play the piano every now and then, and she’s just one of many spotted there. No wonder it inspired Stephen King to write ‘The Shining.’
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787057.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228387.jpg">
 
-16. The Grey Lady of Hampton Court. A ghostly figure was caught on surveillance slamming doors near one of King Henry the VIII’s favorite spots. Some say it’s Henry’s 5th wife, Catherine Howard, who was dragged out screaming after being accused of adultery.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787058.gif">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228388.jpg">
 
-17. Disney’s Haunted Mansion Ghost. A 2009 YouTube video — presumably of Disneyland surveillance footage — shows a grim grinning ghost cruising around Diseyland’s Haunted Mansion and Rivers of America areas after hours. The Park was totally empty, giving him plenty of space to roam around the sidewalks and grass. He even walks on water near the end of the tape.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/936748/84787059.gif">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228389.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228390.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228391.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228392.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228393.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228394.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228395.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228396.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228397.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228398.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228399.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228400.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87228401.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/84787042/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87228372/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">This Australian Police Department's Twitter Page Is Hilarious</a>
+## <a href="#link6" id="link5">43 Nearly NSFW Photos For Those With A Dirty Mind</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363867.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437066.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363860.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437067.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363855.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437068.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363856.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055730/85439296/85439089.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363857.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437071.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363858.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437074.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363859.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437075.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363861.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437077.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363862.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437079.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363863.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437081.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363864.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437083.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363865.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437084.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363866.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437086.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363868.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437087.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363869.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437088.png">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363854.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437089.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363870.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/08/16/062033/85439298/85438824.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363871.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437091.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363872.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437095.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85363873.jpg">
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055636/85439292/85439045.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437097.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055507/85439284/85438545.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437098.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437100.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437072.png">
+
+26.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055355/85439278/85438396.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055406/85439279/85438438.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055418/85439280/85438460.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055431/85439281/85438519.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055443/85439282/85438525.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055455/85439283/85438542.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055343/85439277/85438386.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437090.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055519/85439285/85438546.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055532/85439286/85438765.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055544/85439287/85438766.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055600/85439288/85438775.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055612/85439289/85438777.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055624/85439290/85439041.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055650/85439293/85439046.png">
+
+41.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055705/85439294/85439063.png">
+
+42.
+<img src="https://cdn.ebaumsworld.com/2017/08/16/055718/85439295/85439069.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85437092.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85363853/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85437065/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">Karen Pushes Pregnant Woman Over Guacamole Dispute, Promptly Gets Arrested</a>
-1. Terrified of what's to come.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2523484/86314124.jpg">
+## <a href="#link7" id="link6">Monday Morning Randomness User Edition #25</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355846.jpg">
 
-2. Karen messes with pregnant woman. Karen suffers the consequences.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2523484/86314125.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355839.jpg">
 
-3. Let the consequences begin :)
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2523484/86314126.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355845.jpg">
 
-4. Hoping that this Karen is behind bars forever.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2523484/86314127.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355840.jpg">
 
-5. One horrible human destroying things for everyone.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2523484/86314128.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355841.jpg">
 
-6. And gets what she had coming all along!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2523484/86314129.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355842.jpg">
+
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355843.jpg">
+
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355844.jpg">
+
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355847.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355848.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355849.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355850.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355851.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355865.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355852.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355853.jpg">
+
+17. With her, of course!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355856.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355857.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355859.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355861.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355862.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084643/85356218/8oA0m5g.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355866.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355867.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355868.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355869.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/85355870.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084631/85356217/2YaBqVM.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084655/85356220/bvVBvPw.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084708/85356221/g565eca.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084721/85356222/jEudGaZ.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084733/85356223/rJxVODx.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084745/85356224/S6V0zc3.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084758/85356225/x2ZkDs1.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084812/85356226/x9WQ7Ly.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084826/85356227/XNe9adl.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/2017/05/15/084838/85356228/XsalV1P.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/86314123/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85355838/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">Man Pays $3,000 DMV Tax Bill With 300,000 Pennies!</a>
-1. After months of frustration with the DMV, Nick Stafford had finally had enough and chose a weighty way to express himself: thousands and thousands of pennies.
-He delivered the $2,987.14 he owed in taxes in five wheelbarrows weighing a combined 1,548 pounds. It took employees more than 12 hours to count them by hand after the DMV's coin counting machines broke.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85240811.jpg">
+## <a href="#link8" id="link7">60 Funny Memes and Random Pics for Your Daily Dose</a>
+1.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102502/87278128/87091179.jpg">
 
-2. These pennies were not from heaven as much as from Nick's petty, spiteful soul. His frustration started when he tried to find out where to register a new car. He has four houses across two counties, so he needed to contact someone to get a straight answer, which took a lot of work.
-After his call was routed to a call center, where he spent an hour on hold before giving up, he filed a Freedom of Information Act request for a direct line. Even then he had to call repeatedly to get his question answered.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85240812.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102506/87278130/87091184.gif">
 
-3. After that, he was incensed – and motivated. “If they were going to inconvenience me then I was going to inconvenience them,” he said. So Nick filed three lawsuits, one of which requested direct phone numbers to nine other local DMVs that his local DMV employees refused to provide.
-His lawsuits were dismissed when the state handed over a list of the phone numbers in court
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85240813.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277284.jpg">
 
-4. Of course, he wasn't quite done proving his point. There was still the matter of almost $3,000 in taxes on his cars. Nick's act of defiance didn't come cheap. He had to hire 11 people to break open rolls of pennies with a hammer, paying them $10 an hour.
-Between that, $400 in wheelbarrows, and $165 to file the lawsuits, he spent $1005 on his stunt.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85240814.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102504/87278129/87091177.jpg">
+
+5.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102657/87278159/87277882.jpg">
+
+6.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102510/87278131/87091192.jpg">
+
+7.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102520/87278132/87091190.png">
+
+8.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102522/87278133/87091193.png">
+
+9.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102640/87278155/87277867.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102524/87278134/87091196.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102534/87278135/87091198.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102535/87278136/87091199.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102624/87278150/87277843.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102545/87278138/87091200.png">
+
+15.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102636/87278154/87277861.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102547/87278139/87092086.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102548/87278140/87092082.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102549/87278141/87092095.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102550/87278142/87092105.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102555/87278143/87276694.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102557/87278144/87092101.png">
+
+22.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102603/87278145/87276692.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102608/87278146/87276696.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102609/87278147/87277839.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102615/87278148/87277842.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102623/87278149/87277846.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102625/87278151/87277850.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102537/87278137/87092078.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102629/87278152/87276697.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102633/87278153/87277860.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102644/87278156/87277875.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102648/87278157/87277874.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102653/87278158/87277879.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102659/87278160/87277883.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102700/87278161/87277886.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102701/87278162/87277881.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102702/87278163/87277903.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102707/87278164/87277905.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102709/87278165/87277906.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102713/87278166/87277904.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102717/87278167/87277910.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102727/87278168/87277911.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102728/87278169/87277907.png">
+
+44.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102730/87278170/87277915.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102731/87278171/87277914.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102735/87278172/87277917.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102737/87278173/87277918.png">
+
+48.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102738/87278174/87277919.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102742/87278175/87277920.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102744/87278176/87277921.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/2022/09/28/102751/87278177/87277923.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277268.png">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277269.png">
+
+54.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277276.png">
+
+55.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277278.jpg">
+
+56.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277279.jpg">
+
+57.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277281.jpg">
+
+58.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277286.jpg">
+
+59.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277287.jpg">
+
+60.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87277288.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85240809/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87277267/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">17 Movie Mishaps Spotted By Eagle-eyed Viewers </a>
-1. In the movie The Lost City, Sandra Bullock’s character wears a very tight jumpsuit that has no pockets. So, where did she keep her phone?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236303.jpg">
+## <a href="#link9" id="link8">29 People Who Tried and Failed</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281156.jpg">
 
-2. In the same movie, Daniel Radcliffe’s character travels by car. But a few moments earlier, you can see that there is no one on the passenger’s seat.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236304.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281158.jpg">
 
-3. It’s not quite clear how Wonder Woman manages to carry a huge sword behind her back.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236319.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281162.jpg">
 
-4. In Fantastic Beasts: The Secrets of Dumbledore, people in the street disappear and reappear during the meeting of Dumbledore and Credence. And the passengers of the tram where the wizards have teleported behave like nothing strange or dangerous is happening.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236305.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281157.jpg">
 
-5. In the movie Don’t Look Up, the gloves on the main heroine’s hands appear and disappear during the discovery scene.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236306.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281159.jpg">
 
-6. In the same movie, Leonardo DiCaprio’s character leaves his phone in the car phone mount. But as soon as he steps out of his car, his phone is already in his pocket.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236307.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281160.jpg">
 
-7. During the closing credits of the movie Don’t Look Up, the bag of Jonah Hill’s character is floating around in space. But in the next scene, you can see it on the character’s hand.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236308.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281166.jpg">
 
-8. In the movie Casino Royale, the armrest under the character’s right arm changes its position constantly.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236309.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281161.jpg">
 
-9. In the comedy Marry Me, the call on Jennifer Lopez’s phone screen is still active, even though she’s already finished it, according to the story.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236310.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281163.jpg">
 
-10. In the action movie Red Notice, Dwayne Johnson’s character hands a glass of water to Ryan Reynolds. But in the next shot, Dwayne is holding the glass again.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236311.jpg">
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281164.jpg">
 
-11. The old car found in the same movie would have never started because the battery would’ve been flat after 90 years of storage.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236312.jpg">
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281154.jpg">
 
-12. A banana slice that stuck to the main character’s cheek in the movie Cruella becomes bigger in a matter of seconds.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236313.jpg">
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281155.jpg">
 
-13. Pieces of confetti on the main characters’ heads in the movie Death on the Nile change their position as the camera angle changes.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236314.jpg">
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281165.jpg">
 
-14. Robert De Niro’s character in the movie The War with Grandpa grabs his right knee after falling. But his left knee is bandaged afterward.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236315.jpg">
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281167.jpg">
 
-15. In the movie House of Gucci, Lady Gaga’s character is listening to music on her portable cassette player. But these players weren’t introduced until a year after the events shown in the movie.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236316.jpg">
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281168.jpg">
 
-16. In the musical West Side Story, one of the mirrors is opaque for some reason. This was probably done to avoid showing reflections of the filming crew.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236317.jpg">
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281169.jpg">
 
-17. In the movie The Witches, the grandmother opens the curtains to show the room to the boy. But when the camera angle changes, the curtain on the right looks different.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87236318.jpg">
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281170.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281172.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281174.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281175.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281178.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281183.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281184.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281186.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281187.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281188.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281189.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281190.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87281191.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87236302/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87281153/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">24 Rabbitholes You Can Get Lost In Online</a>
-1. Sleep paralysis audio / visual hallucinations across cultures throughout history. It’s disturbing. -u/Trek1973
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275676.jpg">
+## <a href="#link10" id="link9">Gulf War Facts That Should Have Been Kept Secret</a>
+1. During the Persian Gulf War, Topps made a trading card set depicting people and equipment on both sides of the conflict.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227840.jpg">
 
-2. Cryptozoology. Its interesting to say the least but there are so many things that make you question what is out there in the world that we haven’t discovered yet. When I first got into it I thought cryptids were more like Bigfoot and the Loch Ness monster but there are hundreds or even thousands of other weird and unusual sightings of creatures many haven’t even heard of. -u/odagled86
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275677.jpg">
+2. Disney's Aladdin was originally supposed to be set in Baghdad, but John Musker and Ron Clements were forced to change it due to the outbreak of the Gulf War. So, they took letters and did a jumbled anagram and came up with Agrabah.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227841.png">
 
-3. Caving and Cave Diving accidents. Accidentally watched one in YouTube, then went down the rabbit hole. This led to some more parallel topics of horrible fates, bad deaths etc. After few days, started getting disturbed sleep as this became my routine of watching before the sleep time. With self restraint, finally I got out of it. -u/insomniac_observer
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275678.jpg">
+3. During the Gulf War, the U.S. dropped a 6,800 kg BLU-82 bomb to conduct psychological warfare against Iraqi troops. A British SAS unit that witnessed the explosion assumed the U.S. had used a nuclear weapon and radioed back to their headquarters, "Sir, the blokes have just nuked Kuwait!"
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227842.png">
 
-4. This should give you an hour or two. List of unusual deaths.https://en.wikipedia.org/wiki/List_of_unusual_deaths -u/Krabbi
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275679.jpg">
+4. The first human surrender to a robot occurred in the 1991 Gulf War. The US used UAVs (drone robots) to find artillery targets. Iraqi soldiers realized that the UAVs often preceded an attack strike. A Pioneer RQ-2A UAV flew over some soldiers who then raised white flags to surrender to the robot.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227843.jpg">
 
-5. When I worked at a call Centre we often had quiet times and the internet blocked most things unusual wiki articles kept me entertained for quite some time though, it’s full of random strange things. -u/slimjoel14
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275680.jpg">
+5. In the first Gulf War a B-52 bomber mistakenly targeted a fighter with its tail gun radar. The fighter shot back with a HARM missile, causing damage, but no fatalities. Afterward, the bomber was renamed "In HARM's Way."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227844.jpg">
 
-6. Fire disasters. And then never feel safe in an indoor crowded space ever again.There's actually video on YouTube of the Great White disaster and it's utterly horrifying how incredibly quickly it happens and seeing the people literally stuck in the doorway unable to get out as they burn to death. As someone who still goes to a lot of shows at small packed music venues exactly like that one (and other totally packed bars and clubs), I'm always constantly looking for exits to find the nearest escape path and it always freaks me out anytime there's any fire in any indoor space (candles/sparklers/pyrotechnics/etc). -u/SquareVehicle
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275681.jpg">
+6. Grammy-winning reggae artist Shaggy served in the United States Marine Corps from 1988-1991 and was deployed to Saudi Arabia during the Gulf War. He reached the rank of Lance Corporal but was later demoted for returning to base late from a weekend trip to his music studio.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227845.jpg">
 
-7. Feral children.-u/PreviousTea9210
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275682.jpg">
+7. Since the Gulf War in 1991, when Israel was attacked by Iraqi Scud missiles, all homes in Israel are required to have a reinforced security room, Merkhav Mugan, impermeable to chemical and biological substances.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227846.jpg">
 
-8. Mass hysteria. There are different kinds that have affected different cultures in different ways. Multiple times throughout history, groups of people have uncontrollably danced themselves to deaths. In other parts of the world, men can become stricken with the belief that their penis is receding into their bodies; it was often believed the only way to prevent this from happening overnight was for family members to hold their members, etc. -u/tullyinturtleterror
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275684.jpg">
+8. During the run-up to the Gulf War, Muhammad Ali traveled to Iraq and personally secured the release of 15 American hostages being detained by Saddam Hussein, despite the US Government and press condemning the mission and Ali as 'another egomaniacal celebrity out of his depth'.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227847.png">
 
-9. Money laundering and how laundered money flows around the world. Most info is public from gov agencies like the CIA and State Department. -u/TyHuffman
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275685.jpg">
+9. In 2017, a company restoring a captured Iraqi tank from the Gulf War, discovered five gold bars hidden in the fuel tank when they found they couldn't lift it even though it was empty of fuel.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227848.png">
 
-10. The times where we have gotten close to extinction. There was a false report from a Russian radar thingy and they thought that nukes were coming to them from America, if it wasn’t for one person Nuclear Armageddon would’ve happened because of a software glitch (Another good one is how some horrible stuff like cannibalism is legal in certain scenarios). -u/Bagel_RR
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275686.jpg">
+10. During the First Gulf War, the US lost 20 Bradley vehicles. Only 3 of those were destroyed by the enemy, the rest were the result of friendly fire accidents.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227849.jpg">
 
-11. Mt. Everest is a pretty f*cked up subject. -u/purplepuddlenut
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275687.jpg">
+11. In the opening minutes of the Gulf War, a completely unarmed US electronic attack plane managed to defeat the latest generation (retired in 2014) French-built Iraqi Fighter Plane by maneuvering close to the ground leading to the Iraqi plane impacting the ground trying to pursue.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227850.jpg">
 
-12. Post-WWII industries. Take fertilizer, lawn care, and home gardening for example.A very specific push to get chemical fertilizers in every home, monoculture lawns that require a lot more input, and a “clean” lawn that has left us where we are now.Very silly that we strayed away from what we had previously… -u/CheeseChickenTable
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275688.jpg">
+12. During the Gulf War when American forces were faced with extensive trenches of Iraqi soldiers they, "opted to use anti-mine plows mounted on tanks and combat earthmovers to simply plow over and bury alive the defending Iraqi soldiers."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227851.jpg">
 
-13. Prion diseases. Every single one is weird and dark. It includes cannibalism and family curses. And deers walking on two legs. And industrial farming + forced cow cannibalism. -u/gnostic-sicko
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275689.jpg">
+13. In 1990, Nayirah al-Ṣabaḥ, daughter of the Kuwaiti ambassador to the US, gave a false testimony which galvanized support for the first Persian Gulf War.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227852.jpg">
 
-14. The wiki for the timeline for far future events. If you want to feel insignificant and learn some sh*t, check this out.https://en.wikipedia.org/wiki/Timeline_of_the_far_future -u/Sylvair
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275690.jpg">
+14. The USS Missouri, the battleship on which the Japanese Surrendered in 1945 fired tomahawks cruise missiles in the 1991 Gulf War.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227853.jpg">
 
-15. The town of Skidmore, Missouri in the US.It's sort of a small topic, but it leads in so many different directions. It's most famous for the murder of the town bully (that's a mild name for him; he was horrible) in the middle of the day, on the main street, with a bunch of witnesses, but no one has ever been arrested. But there's also the later case of a woman who was murdered and her unborn baby stolen and even later a teenager (who was related to the murdered woman) just disappeared and is thought to have been taken by a serial killer.All this in a town of fewer than 200 people. I'm not superstitious, but I also wouldn't move there.There is a documentary on Sundance about the bully, but the best introduction is a book called In Broad Daylight. From there, you just get farther and farther down tangential paths, trying to figure out wtf happened. Less info on the two later cases, but still an internet black hole you can fall into for days. -u/secondhandbanshee
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275691.jpeg">
+15. In the Gulf War (1991), new pregnancies among US military personnel outnumbered US combat deaths by 8 to 1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227854.jpg">
 
-16. The history of lobotomies and cannibalism. I have spent more time researching these topics than the time taken to write a 90-page essay. Super fascinating if you don't get grossed out. -u/Sure_Pangolin_9421
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275692.jpg">
+16. Today I learned about the use of fire trenches by Iraqi forces as they retreated from Kuwait during the Persian Gulf War. As part of their scorched earth policy, they filled trenches in the desert with oil and set them on fire to slow the advance of coalition tanks and other heavy weaponry.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227855.jpg">
 
-17. The domino effect that led up to World War One and then later World War Two. It’s interesting to learn about but it’s just a clusterf*ck of easily preventable situations. -u/Jazzlike-Dog-2999
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275693.jpg">
+17. The First Gulf War (in 1991) technically never ended — there was just a cease-fire. The UK used this legal loophole to justify entering the Second Gulf War (in 2003).
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227856.jpg">
 
-18. Shipwrecks. Been absolutely obsessed with them the past few days, there’s so much to discover and learn about and so much corruption as well as just interesting circumstances that these huge machines go down in.And adding to that, technical diving accidents. Especially in shipwrecks. You can dive down to the sunken Andrea Doria (that wrecked because another enormous ship collided sideways into it!) ship and collect first-class dinnerware as plunder, but people have died, seemingly becoming lost in the complete darkness of the halls inside, or user error in ANY capacity, such as not having the correct oxygen tank levels leading to hallucinations and false confidence that makes you drown. -u/uglysquire
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275694.jpg">
+18. The 1980s pop song 'Everybody Wants to Rule the World' was banned from being broadcast on the BBC between 1990 and 1991 because it was feared to have anti-Gulf War themes.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227857.png">
 
-19. Rabies. You don't quite realize how horrifying it is. -u/Arthillidan
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275695.jpg">
+19. In the Gulf War, 9 M1 Abrams Tanks destroyed 28 T-Series Iraqi Tanks, 16 Iraqi personal carriers and 39 Iraqi trucks in under 23 minutes.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227858.jpg">
 
-20. Binge-watching "Mayday" (the series about plane crashes) and looking up each incident on Google/Wiki afterward. -u/buckyhermit
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275696.jpg">
+20. Saddam Hussein's regime genocided an entire race of 500,000 people known as the "Marsh Arabs" after the Persian Gulf War by literally destroying the environment that their entire civilization was built upon, building 32 dams to turn their homes and farms into deserts.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227859.jpg">
 
-21. Macy’s Thanksgiving Parade balloon accidents. -u/ashrainbowdash
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275697.jpg">
+21. In Kuwait, falling bullets from celebratory gunfire after the end of the Gulf War killed at least 20 people.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227860.jpg">
 
-22. People who go missing. This one I'm particularly fascinated with for some reason. Maybe it's because I like this YouTuber and how he formats his videos, but I've watched this video about a missing Canadian girl three times:https://youtu.be/AzLqFYyY0bMPersonally, I think she was groomed by a dude she met online and that guy kidnapped her and is holding her captive, like the Josef guy from Austria years back. -u/Karnezar
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275698.jpg">
+22. 250,000 of the 697,000 U.S. veterans who served in the 1991 Gulf War are afflicted with a chronic unknown illness causing fatigue, muscle pain, cognitive problems, rashes, and diarrhea.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227861.png">
 
-23. Art forgery and fakes. I’ve been watching a BBC series called Fake or Fortune where people try to get their art validated as being by an old master (They’ve had Renoir, Monet, etc). The program goes into how both modern-day and historic forgers use techniques to make a picture or sculpture look original.It sometimes also shows how corrupt the art validation world can be, with one episode showing overwhelming evidence that a picture was genuine, but the organization responsible for cataloging the original works of the artist refuses to acknowledge it.Interestingly the head of that institute is now under investigation in France for hoarding €1bn worth of “missing” artworks. -u/mbfos
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275699.jpg">
+23. During the first Gulf War, the Iraqi military would dispense propaganda pamphlets and radio spots aimed at US soldiers that said that while they were in Iraq fighting, "their wives were in bed with Tom Cruise, Bruce Willis, and Bart Simpson," back at home.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227862.png">
 
-24. Ask A Mortician on Youtube.https://www.youtube.com/channel/UCi5iiEyLwSLvlqnMi02u5gQCaitlin Doughty tells fascinating stories of unusual deaths, cannibalism, historic shipwrecks/accidents, botched cremations, etc. She also has three books out on death questions and the funeral business that I've read more than once.-u/WitchInYourGarden
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87275700.jpg">
+24. A Game Boy survived the fire caused by bombing in the Gulf War.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227863.png">
+
+25. During the Gulf War, more Israeli citizens were suffocated or frightened to death, due to gas masks and the fear of chemical SCUD attacks, than died from actual SCUD missile attacks.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87227864.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87275675/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87227839/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">Great Advice From Our Wise Elders</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036588.jpg">
+## <a href="#link11" id="link10">Mia Khalifa Punched A Fan In The Face For Taking A Selfie</a>
+1. Homeboy saw Mia Khalifa and wanted to get a pick to show his buddies.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85393476.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036589.jpg">
+2. And he soon found out what kind of right hook she was packing.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85393475.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036590.jpg">
+3. A few people chimed in with their experience getting photos with the star.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85393473.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036591.jpg">
+4. Can't relate.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85393472.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036592.jpg">
-
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036593.jpg">
-
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036594.jpg">
-
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036595.jpg">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036596.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036597.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036598.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036599.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036600.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036601.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036602.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036603.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036604.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036605.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85036606.jpg">
+5. Next time you want a photo with a porn star ask for their permission first before taking a selfie, beacuse the outcome might not be what you expected, unless your into that kind of thing.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85393474.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85036587/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85393470/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
