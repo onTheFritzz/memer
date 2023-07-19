@@ -1,882 +1,815 @@
 # All Ur Meemz R Belog to Uz
-Last Updated 07.18.2023-16:45:18<br>All credits to ebaumsworld.com
+Last Updated 07.18.2023-19:45:18<br>All credits to ebaumsworld.com
 
-## <a href="#link1" id="link0">30 People Who Got Brutalized in the Comments</a>
+## <a href="#link1" id="link0">Trashy Moms And The Cringey Things They Post To Facebook</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293236.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85420132.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293222.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85420133.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293223.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85420134.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293224.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85420135.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293225.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85420136.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293226.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85420137.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293227.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85420138.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293228.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85420139.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293229.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293230.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293231.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293232.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293233.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293234.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293235.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293237.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293221.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293238.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293239.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293240.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293241.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293242.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293243.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293244.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293245.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293246.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293247.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293248.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293249.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87293250.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/85420140.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87293220/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85420131/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link0">GO TO PREVIOUS</a>
 
-## <a href="#link2" id="link1">32 Pics That Are The Epitome Of WTF</a>
+## <a href="#link2" id="link1">19 Awesome Parents Who Will NOT Raise Lazy, Selfish Children</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301218.png">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195179.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020338/85301715/85171910.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195180.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301219.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195181.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301220.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195184.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301221.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195185.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301224.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195186.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020429/85301719/wtf-14.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195182.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301225.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195183.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020325/85301714/85171908.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195187.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301226.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195193.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020405/85301717/85171921.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195188.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301227.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195189.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020234/85301710/85107970.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195190.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301230.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195191.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301231.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195192.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301233.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195194.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301229.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195195.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301237.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195196.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301238.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301240.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020246/85301711/85107973.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301228.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301241.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85301236.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020143/85301706/85107958.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020156/85301707/85107962.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020208/85301708/85107963.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020221/85301709/85107964.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020300/85301712/85107975.png">
-
-30.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020312/85301713/85171896.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020352/85301716/85171915.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/2017/03/21/020417/85301718/85171923.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2415134/85195197.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85301217/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85195178/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link1">GO TO PREVIOUS</a>
 
-## <a href="#link3" id="link2">21 Things You Just Can’t Argue With</a>
+## <a href="#link3" id="link2">18 People Share The Biggest Auto-Correct Fails</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453724.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211340.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453733.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211341.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453726.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211342.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453727.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211343.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453735.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211344.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453728.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211345.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453737.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211346.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453729.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211347.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453730.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211348.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453732.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211349.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453725.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211350.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453734.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211351.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453736.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211352.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453738.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211353.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453740.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211354.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453741.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211355.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453742.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211356.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453743.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453744.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453745.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85453746.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85211357.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85453723/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85211339/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link2">GO TO PREVIOUS</a>
 
-## <a href="#link4" id="link3">29 Funny Depressing Memes We Can All Relate To</a>
-1. Let's be honest, Meta isn't solving anything.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284172.jpg">
+## <a href="#link4" id="link3">11 Inventions & Businesses That Proved Haters Wrong</a>
+1. Televisions: The long-distance transmission of a moving image was invented in the early 20th century, but television appeared only a few decades later. Why? Because no investors believed in the commercial success of “boxes with live pictures.“ In 1926, inventor Lee de Forest wrote: ”While theoretically and technically television may be feasible, commercially and financially it is an impossibility."
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425923.jpg">
 
-2. Makes you question your life choices.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284188.jpg">
+2. Cell phones: The cell phone, based on the idea of honeycombs, was invented by Martin Cooper. People told him that the game wasn’t worth the risk. However, they lined up at the stores on the very first day of sales! This device had a memory of 30 numbers, could work for an hour, and required a 10-hour charge.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425924.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284195.jpg">
+3. Emojis: Emojis were created in 1963 by American artist Harvey Ball. He received only $45 for his invention. A few years later, businessmen Bernard and Murray Spain started selling and licensing the yellow "smiles," which brought them more than $50 million.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425925.jpg">
 
-4. So who's fault is it that I'm here?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284163.jpg">
+4. Broken Hearts Bar: Businessmen from the Chinese Nanjiang County created a bar where people going through a breakup could cry without feeling ashamed. When discussing this concept, people said no one needed such a bar. But the "Broken Hearts Bar" quickly became the most popular institution in the city, and its analogs can be found in every country.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425928.jpg">
 
-5. There is no sound more demoralizing.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284175.jpg">
+5. Supercomputers: When Gaurav Khanna was studying black holes, his laboratory needed an expensive supercomputer. Gaurav had another idea: he bought 412 pretty cheap PlayStation 3 consoles and installed another operating system on them. It turned out to be much more powerful and efficient than its expensive fellow.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425926.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284165.jpg">
+6. The Million Dollar Homepage: In 2005, an English student named Alex Tew decided to earn money for his education. He launched a website, each pixel of which cost $1. Anyone could buy a section of the site and post a link to their Web page. In less than 6 months Alex earned more than $1 million.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425927.jpg">
 
-7. The bigger the scoop, the richer the goop!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284185.jpg">
+7. Crazy straws: According to the legend, the creators just wanted to make a child choose the latter between soda and milk. Straws of the most insane shapes and sizes appeared, and they still have immense success among children and adults alike.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425929.jpg">
 
-8. Is there anything more embarrassing?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284166.jpg">
+8. Hula-Hoop: You can earn a lot by reinventing the wheel. Richard Knerr, inventor of a gymnastics hoop, proved it. Though no one believed in its commercial success, a month after the experiments ended, people lined up to get this round piece of plastic.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425930.jpg">
 
-9. The world is so f***d up.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284167.jpg">
+9. Surgeon ants: Our ancestors came up with this idea in the first millennium BC. At that time, there were no instruments to sew up wounds, so people used ants, which fastened the edges of wounds with their powerful jaws. Surprisingly, this strange technique was popular until the 7th century.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425931.jpg">
 
-10. Talk about the butterfly effect.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284169.jpg">
+10. Balls against pollution: The Los Angeles reservoir was at risk of becoming seriously polluted: sunlight in combination with chlorine and bromine could make the water carcinogenic. An unusual decision was made to fill almost the whole reservoir with floating plastic balls. The balls prevented the appearance of algae and the heating of water, which very soon became clean again.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425932.jpg">
 
-11. Glorious sleep is just so wonderful.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284170.jpg">
-
-12. I'd rather live anywhere but Ohio.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284171.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284173.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284174.jpg">
-
-15. I'm 40. I've had sex. What I haven't had is a day without back pain!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284177.jpg">
-
-16. Just give me a beer to relieve the pain!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284178.jpg">
-
-17. I'm weird as heck! Why would I want that?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284179.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284164.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284180.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284181.jpg">
-
-21. They have to keep them realistic after all.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284187.jpg">
-
-22. But it felt SO GOOD at the time.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284162.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284190.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284191.jpg">
-
-25. It really is a whole war between me and my back.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284183.jpg">
-
-26. Well that's exactly what you don't want to see before a test.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284192.jpg">
-
-27. It's like three full thumb flicks!
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284193.jpg">
-
-28. Nobody wants that.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284194.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87284196.jpg">
+11. Fidget spinners: The most trendy toy of 2017 is, in fact, just an upgraded version of the paper pinwheel. We now have a toy that drives half of humanity crazy. In just a week, a video app dedicated to fidget spinners gathered 7 million subscribers, and the business brings in billions of dollars.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1044414/85425933.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87284161/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85425922/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link3">GO TO PREVIOUS</a>
 
-## <a href="#link5" id="link4">25 Designs That Had Good Intentions But Failed Miserably</a>
+## <a href="#link5" id="link4">32 Images Oozing With Unbearable Cringe</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461822.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481553.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461823.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481555.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461824.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481558.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461825.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481551.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461826.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481550.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461827.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481560.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461828.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481552.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461829.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481562.jpg">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461830.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481554.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461831.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481556.jpg">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461832.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481566.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461833.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481557.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461834.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481564.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461835.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481559.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461836.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481567.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461837.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481561.jpg">
 
 17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461838.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481563.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461839.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481565.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461840.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481568.jpg">
 
 20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461841.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481569.jpg">
 
 21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461842.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481570.jpg">
 
 22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461843.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481571.jpg">
 
 23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461844.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481572.png">
 
 24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461845.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481573.jpg">
 
 25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85461846.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481574.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481575.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481576.png">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481579.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481581.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481580.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481582.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/85481583.png">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85461821/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85481549/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link4">GO TO PREVIOUS</a>
 
-## <a href="#link6" id="link5">40 Funny Ass Pics To Cap Off Your Weekend</a>
+## <a href="#link6" id="link5">Dave Chappelle's Hilarious Take on Forest Gump</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166341.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85180468.jpg">
 
 2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166342.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85180469.jpg">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166343.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85180470.jpg">
 
 4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166344.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85180471.jpg">
 
 5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166345.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85180472.jpg">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166346.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85180473.jpg">
 
 7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166347.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85180474.jpg">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166348.jpg">
-
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166349.jpg">
-
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166350.jpg">
-
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166351.jpg">
-
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166352.jpg">
-
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166353.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166354.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166355.jpg">
-
-16.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166356.jpg">
-
-17.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166357.jpg">
-
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166358.jpg">
-
-19.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166359.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166360.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166361.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166362.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166363.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166364.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166365.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166366.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166367.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166368.jpg">
-
-29.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166369.jpg">
-
-30.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166370.jpg">
-
-31.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166371.jpg">
-
-32.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166372.jpg">
-
-33.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166373.jpg">
-
-34.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166374.jpg">
-
-35.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166375.jpg">
-
-36.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166376.jpg">
-
-37.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166377.jpg">
-
-38.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166378.jpg">
-
-39.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166379.jpg">
-
-40.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85166380.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1906476/85180475.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85166340/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85180467/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link5">GO TO PREVIOUS</a>
 
-## <a href="#link7" id="link6">28 Of Life's Oh Sh*t Moments Captured On Film</a>
+## <a href="#link7" id="link6">Reddit 'Roast Me' Pics That Are Both Cruel and Hilarious</a>
 1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484806.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168070.png">
 
 2.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042737/85485406/84927473.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168071.png">
 
 3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484807.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168072.png">
 
 4.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042117/85485397/84729350.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168073.png">
 
 5.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/053219/85485432/o8OIFh92xh.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168074.png">
 
 6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484811.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168075.png">
 
 7.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042048/85485356/82438240.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168076.png">
 
 8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484813.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168077.png">
 
 9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484816.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168078.png">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484819.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85168080.png">
 
 11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484821.jpg">
+<img src="https://cdn.ebaumsworld.com/2016/10/18/070905/85168605/9.jpg">
 
 12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484823.jpg">
+<img src="https://cdn.ebaumsworld.com/2016/10/18/070918/85168606/8.png">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484825.jpg">
+<img src="https://cdn.ebaumsworld.com/2016/10/18/070929/85168607/7.jpg">
 
 14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484832.jpg">
+<img src="https://cdn.ebaumsworld.com/2016/10/18/070940/85168608/6.jpg">
 
 15.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/041955/85485352/81448854.jpg">
+<img src="https://cdn.ebaumsworld.com/2016/10/18/070952/85168609/5.jpg">
 
 16.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042008/85485353/81448855.jpg">
+<img src="https://cdn.ebaumsworld.com/2016/10/18/071004/85168610/4.png">
 
 17.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042101/85485357/82438245.jpg">
+<img src="https://cdn.ebaumsworld.com/2016/10/18/071016/85168611/3.jpg">
 
 18.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042022/85485354/81448860.jpg">
+<img src="https://cdn.ebaumsworld.com/2016/10/18/071042/85168613/1.jpg">
 
 19.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042036/85485355/82438227.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042129/85485400/85420487.jpg">
-
-21.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042143/85485401/85443827.jpg">
-
-22.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042156/85485402/85443847.jpg">
-
-23.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484809.jpg">
-
-24.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042711/85485404/84665397.jpg">
-
-25.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042724/85485405/84665402.jpg">
-
-26.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85484808.jpg">
-
-27.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042749/85485407/84927480.jpg">
-
-28.
-<img src="https://cdn.ebaumsworld.com/2017/10/07/042800/85485408/84927482.jpg">
+<img src="https://cdn.ebaumsworld.com/2016/10/18/071029/85168612/2.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85484805/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85168069/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link6">GO TO PREVIOUS</a>
 
-## <a href="#link8" id="link7">15 Of The Toughest 'Would You Rather' Questions Ever</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350267.jpg">
+## <a href="#link8" id="link7">13 Horrible Ways To Die In the Middle Ages</a>
+1. The rack was used not as an execution method, but as a torture device. It was a favorite of sadists. Being stretched out doesn't sound so bad, but when you pull on the body enough, a lot of stuff can break; and the rack was a favorite of sadistic bastards for much of the middle ages. In England, it was actually imported fairly late to the kingdom by the notoriously sadistic Duke of Exeter. It got the nickname of "The Duke of Exeter's daughter".
+
+The rack was meant to torture, not kill, but excessive use of the device could tear ligaments, wreck cartilage and break bones, and more than few people died as a result of injuries on the device.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148817.jpg">
 
-2.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350268.jpg">
+2. The "Breaking Wheel" was a brutal execution device, though a slightly weird one. The victim was stretched over a wheel, and as the wheel rotated he'd be struck with blunt instruments. The blows would be painful if they hit in areas where the victim's body was placed against the wood of the wheel's frame, but even more damaging if it was in a part of the body that was unsupported.
+
+Meant to cause a very agonizing death, the executioner was meant to first strike the victim in areas that would be nonlethal, breaking arms and legs, and causing terrible pain.  This made execution-by-wheel a kind of game and an entertainment for the morbid crowds that watched.
+
+In some cases, the executioner would be ordered to be "merciful" and put the victim to death more quickly by striking him hard in some area of the chest.  In France, the term "coup de grace" was derived from this kind of mercy-killing; "coup de grace" meaning "mercy blow".
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148818.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350269.jpg">
+3. Being drawn and quartered, or more accurately "hung, drawn and quartered", was a particular method of execution in Medieval England that was reserved for those guilty of 'high treason' (of plotting against the King). It was meant to be as long, drawn-out, and painful a method of death as possible.
+
+Victims were first driven to the place of execution, tied to a piece of wood and dragged by a horse. They would then be hung by the neck until they were nearly dead by suffocation, only to be saved at the last moment. They would then often be castrated, though not in all cases. After that, their stomach would be cut open so the bowels were visible, but again without killing the victim. If the king felt particularly merciful, they would then be beheaded; but if not, they'd have their bodies cut or torn into four parts. The different parts of their bodies would often be sent to different areas of the kingdom, to show the people what fate befalls traitors.
+
+The first case of this full punishment was done by King Edward Longshanks (you may remember him as the bad-ass old English king from "Braveheart"). He was not a man to be trifled with, so the Welsh Prince Dafydd ap Gruffydd made a big mistake by trying to raise up a rebellion against the crown. Longshanks brutally crushed his rebellion, and made him suffer being hung, drawn and quartered. His intestines were burned up (keep in mind that such desecration of the body was particularly grievous in the medieval Christian world), his body parts sent to the four corners of the kingdom, and his head put on a pike at the Tower of London.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148819.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350270.jpg">
+4. One famous case of hideous medieval death was suffered by Edward Longshanks' son and heir, Edward II.  You might remember him from Braveheart too, he was the wimpy and inept king that wasn't anything like his kick-ass dad.  What's more, there's considerable evidence that he preferred the romantic company of men, and in particular his favored courtier Piers Gaveston, whom he favored so greatly that it humiliated Edward's wife and pissed off his nobles.  They'd probably have forgiven it if he had been a great monarch like his dad, but he proved to be pretty inept, losing all the gains his father had made in the conquest of Scotland. Gaveston didn't help things by acting very rudely over the nobles, who were supposedly his superiors.
+
+In the end, the Queen (Isabella) and her lover Roger Mortimer teamed up with the disgruntled noblemen, and after defeating Edward's forces they took him prisoner.  They forced him to abdicate in favor of his 14 year old son (with Isabella and Mortimer running the country) and Edward II was to be kept prisoner in a castle. 
+
+Not long after, he died, and we're pretty sure he was murdered. We can't say it isn't just a legend, but the story of how he was murdered is that he was held down and had a red hot poker shoved up his ass. If so, if he was lucky, he may have died quickly from the shock. If he was unlucky, it would have been a hideous and agonizing death.
+
+In the end, his son Edward III got revenge. Just before his 18th birthday, him and a group of his teenage buddies staged a coup, capturing Roger Mortimer by surprise and executing him, and imprisoning Queen Isabella. Edward III did show mercy to Mortimer, he had him hung like a commoner but didn't have him drawn & quartered like grandpa Longshanks surely would have done.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148820.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350271.jpg">
+5. The medieval Englishmen sure were fans of ironic deaths when they murdered members of the royal family.  Edward II, said to have a gay lover, was murdered by being sodomized with a hot poker. Another ironic murder was done to Prince George, Duke of Clarence, during the War of the Roses. You know, the period that inspired "Game of Thrones"?
+
+Clarence was sort of the Renly Baratheon of the royal house of York. He was a younger brother to King Edward IV of York, who was definitely the real-world Robert Baratheon. Clarence was a constantly frustrated younger brother, angered at his increasing irrelevance after his brother had come to the throne. He actually betrayed Edward, siding with their enemies in the War of the Roses (the house of Lancaster), but then he changed his mind, and betrayed the Lancasters to come back to his brother's side. He might have expected to be better rewarded for not being a traitor anymore, but (obviously) he was never really trusted again, and had less influence than ever. He came to be known as a raging alcoholic (his older brother was one too, but that was OK since he was the king), and a paranoid that suspected Edward's wife was plotting against him.  When Clarence's wife died, he became convinced that the Queen had poisoned her. He started plans to raise up another rebellion against the King, but he was found out and arrested.
+
+This time the King would not pardon his brother. He was sentenced to death (legend has it that he may have changed his mind at the last minute, but their other brother Richard - the future Richard III- made sure Clarence was dead before the pardon could reach him). And while it's not proven, the story goes that the famously alcoholic Clarence was executed not by beheading, but by being drowned in a large vat of wine.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148822.jpg">
 
-6.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350272.jpg">
+6. Here's one that you probably know about: being burnt at the stake was a favorite method of execution in the middle ages. You likely know that in the late middle ages there was a fanatical persecution of witch-burning; there are some pretty exaggerated numbers out there of how many were killed, but even conservative estimates suggest that the number of people burned as witches was in the six figures.  But an even more common criminal executed by burning was the 'heretic'.  By 'heretic' read anyone who disagreed in some way with the local religious authorities. In Catholic countries, that was mostly Protestants; in Protestant countries, that was mostly Catholics. But in both, it was also weirdo mystics and free-thinkers too.
+
+Obviously, being burned at the stake was an awful and agonizing method of death. But in some occasions it did lead to some memorable last words; especially if the guy being burned at the stake was a Protestant. The early reformer Jan Hus (in what is today the Czech Republic) was burned at the stake for opposing Catholic corruption; "Hus" is Czech for "goose", and the legend holds that when he was at the stake he said "today, this goose is cooked, but one day there will be a swan you will not be able to cook". Protestants came to believe that his last words were a prophetic prediction of how, 100 years later, Martin Luther would bring about the Protestant reformation.
+
+Later on, in England, the Catholic Queen "bloody" Mary burned two Protestant leaders at the stake, Hugh Latimer and Nicholas Ridley.  According to legend, Ridley was (understandably) shaking with fear, but Latimer called out to him "Play the man, Ridley! Today we shall light such a candle that by God's grace will never be put out in England"!  And a few years later, Bloody Mary was dead, and Protestantism restored to England for good.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148824.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350273.jpg">
+7. As if what we've covered so far wasn't awful enough, another truly gruesome way to die in the middle ages was by being flayed alive. That's where a highly-trained expert cuts open your skin and slowly cuts it off your body, trying to keep it all in one piece (at least, if he's a true artist; if not you might just end up having your skin cut off in strips). Death by flaying is absolutely excruciating, and if it is done "properly" a victim might take days to die. Days and days of unspeakable agony.
+
+In some parts of medieval Europe, it was used as a punishment for treason. In England it was particularly a punishment for those who robbed from or desecrated a church (which was still a type of treason, since churches were under the King's protection).
+
+The most famous case in England of flaying alive was done during the reign of -you guessed it- Edward Longshanks. Seriously, why did anyone dare to mess with this guy?? In this case, the perpetrators were three monks who got it into their heads to mug the treasurer of Westminster Abbey. Since they thus stole from both the Crown and the Church, Longshanks ordered that they be flayed alive, and their stripped skins were nailed to the abbey doors as a warning to any other monks who might get any clever ideas.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148821.jpg">
 
-8.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350274.jpg">
+8. Impaling was pretty much what it sounds like: having a huge spike run through your body when you're still alive.  It's a terribly painful way to die, but you usually don't last very long when it happens, unless it's done very intentionally and skillfully to keep you alive for longer. In medieval Germany this was used as a punishment for women who murdered their children; while rapists of virgins or children would be impaled and buried alive. In Hungary and Eastern Europe impalement was used as a punishment against military deserters or those who were convicted of defecting to the enemy.
+
+Of course, the most famous impaler of all time was Vlad the Impaler, also known as Prince Vlad Tepes, also known as Dracula. He used impaling as a punishment against nobles in his kingdom who defied his authority, and then against the Turkish invaders that he despised. In one famous case, Vlad scored a major victory against a much larger Turkish army by attacking them in the night, and after his victory, he left a 'forest' of 20000 impaled bodies at the battle-site.  The Turkish relief forces that encountered them were so terrified that they turned right around and fled.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148823.jpg">
 
-9.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350275.jpg">
+9. Gyorgy Dozsa was an important and capable knight in the kingdom of Hungary, who raised up an army of 40000 men to fight against the invading Turks. But when the local nobility did not support them in their efforts, Dozsa and his army rose up against their own lords.  He quickly became a major problem for the government, capturing cities and engaging in tough reprisals against his enemies. When a local Bishop spoke out against him, he had the Bishop impaled. He later captured and killed the Lord Treasurer. His army got within 25 miles of the capital. 
+
+But then his largely amateur army was broken by the better trained, better equipped Hungarian forces, and especially decimated by his opponent's heavy cavalry.  Dozsa was captured, and in punishment for his attempt to take the crown and the throne, he was executed by being seated on a red-hot metal throne and having a red-hot metal crown placed on his head as a mock 'coronation'.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148825.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350276.jpg">
+10. Being boiled alive in a large cauldron of water or oil was another hideous medieval method of execution.  It was usually done by throwing a person into a pot of already-boiling oil or water, but sometimes was done by putting a person into a cauldron of cold water or oil, trapping them in with a lid, and boiling it slowly with them inside. Either way, it was a horrible way to go.
+
+In Europe it was especially used as a punishment for poisoners, and sometimes for witches or sorcerers.  There's a particular supernatural story about this in Scotland, starring William de Soules, an English/Scottish lord at the time that Edward Longshanks was conquering huge areas of Scotland. Soules was originally on the English side, but after the English were forced back he switched his allegiance over to the Scottish crown. He ruled a territory in the border region from Hermitage Castle, a weird square sinister-looking structure. Soules was rumored to engage in sorcery and summon spirits from his castle, and the local peasants were terrified of him. It was rumored he was plotting against the Scottish crown. Finally, the peasants had enough; they tricked Lord Soules into being captured, but found that because of his sorcery no sword could cut him, nor would ropes bind him. So they wrapped him in a sheet of led, dragged him to a circle of magic stones called Ninestane Rig, and boiled him alive in a large cauldron.
+
+That may not quite have been the end of Lord Soules; it's said his ghost haunts Hermitage Castle and the surrounding area to this day.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148826.jpg">
 
-11.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350277.jpg">
+11. Long before magic shows were doing it for fun, medieval executioners were sawing people in half for real. Only not the direction you'd think. They didn't saw you in half the short way, across the middle; they'd saw you from bottom to head. Often while hanging you upside down.
+
+To be fair, this was a punishment that may have very rarely happened in real life. But it's pretty likely it DID happen at least a few times.   It was particularly favored by the Ottoman Turks, the mighty Muslim empire that spent much of the Middle-Ages invading Europe over and over again.
+
+In one famous case, there was a Hungarian General named Michael Szilagyi. He was a powerful and well-connected guy; the great military commander-in-chief John Hunyadi was married to Szilagyi's sister.  And his niece was married to Dracula (seriously)! He worked/fought his way into the Hungarian nobility; and then his nephew, Hunyadi's son Matthias Corvinus ("the crow") became King of Hungary, and because Matthias was underage, Szilagyi was made Regent. He was basically running the whole country.
+So how did a guy with everything going for him end up being sawn in half?  Well, Corvinus turned out to be a political badass who wasn't very interested in being a puppet for his uncle and the other barons of Hungary. Instead, he took power directly, fired his uncle, and sent him off to fight the Ottoman Turks.  Szilagyi was sent with an army way too small to stop the massive Turk forces, and he ended up being defeated and captured. The Turks shamefully treated him as a spy rather than a captured enemy general (maybe because they realized that King Matthias wasn't going to pay any rescue for an uncle he didn't even like) and so they executed him by sawing him in half.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148827.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350278.jpg">
+12. Sigurd Eysteinsson, known as Sigurd the Mighty, was one of history's kick-ass viking heroes. You know, the type of guys they could make a TV show out of; only his death was so lame that he ended up getting passed over for Ragnar Lodbrok instead.
+
+Sigurd was the son of the Viking chief who had conquered the Orkney Islands, off the coast of Scotland. He decided to expand his father's kingdom to mainland Scotland, and according to the Norse sagas pretty much kicked ass everywhere he went. No one could stand against him.
+
+But Sigurd the Mighty met his end when he faced off against a chief called Mael Brigte, also known as Mael the Bucktoothed. They had a dispute with each other, and agreed to settle it in the reasonable viking manner: each would bring 40 of their buddies and slaughter each other in a field until only one chief was left alive.  But Sigurd decided to cheat: he brought 80 of his men instead, and his side managed to totally massacre Bucktooth Mael and his men. Yes, Sigurd won. He decapitated Mael, and brought his head along with him to show it off to any who would dare to disagree with him in the future. Only as he was riding back on his horse, his leg got a nasty scratch from one of Mael's buck-teeth. Less than a week later, Sigurd the Mighty was dead from a nasty infection.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148828.jpg">
 
-13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350279.jpg">
-
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350280.jpg">
-
-15.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85350281.jpg">
+13. In this article we've covered all kinds of weird and gruesome ways people were (mostly) intentionally killed in the Middle Ages. But really, the most lethal thing about medieval life was medieval life itself. You didn't need to get sawn in half or boiled alive or impaled to die; if you were born in the Middle-Ages, there was a 10% chance you'd die before you turned 1. There was a 30% chance you'd be dead before your tenth birthday. A total lack of sanitation or understanding of disease meant plague was endemic, the lack of modern medicine meant that a bad cold or a tiny scratch (possibly from a tooth) could kill you, to say nothing of dying in childbirth if you were a woman. A lack of modern agricultural technology meant that every few years if the weather was bad, a bunch of your friends would starve to death. We worry about crime rates today, but violent death was way more common back then.  And if you were lucky enough to survive all the things that could kill you as a kid, there was a 90+% chance that you were doomed to a life of drudgery as a dirt-poor peasant, with all the fun of getting to look forward to one-third of your kids dying in infancy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/85148829.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85350266/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85148816/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link7">GO TO PREVIOUS</a>
 
-## <a href="#link9" id="link8">Detachable Jeans Prove The Fashion Industry Is Just Ridiculous</a>
-1. It would appear that 2017 will be the year that fashion declared a war on jeans. After the ridiculous clear plastic jeans debacle, and then the jeans with a zipper on the butt, it seems like people just can't leave the poor denim alone.
-
-Oh, but they're not done.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359312.jpg">
+## <a href="#link9" id="link8">22 Pics Of Christmas Cringe and Family Fails</a>
+1. Wife wanted to get down our Christmas tree from the attic. I told her not to step on the drywall… She later admitted that she didn’t know what drywall was.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063185.jpg">
 
-2. Now Opening Ceremony is trying to make “detachable cut-out front jeans” happen, and it’s up to us to stop it.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359313.jpg">
+2. Spent 30$ on matching christmas PJs and this is what I got…
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063175.jpg">
 
-3. Designed by Y/Project, they can be worn as full-length trousers, with your under-butt and groin exposed.
-
-“These 2-in-1 Y/Project trousers come in a straight-leg silhouette with slim-fitting, detachable shorts that feature high-rise cutouts along the front,” reads Opening Ceremony’s product description.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359314.jpg">
+3. My mom bought me this Christmas sweater thinking it was unisex. Narrator: It wasn’t
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063179.png">
 
-4. One word: CLASSY.
-
-But if you’re feeling extra bold, you can detach the legs of the jeans and wear them as denim shorts. Don’t forget the heels, apparently.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359315.png">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063172.jpeg">
 
-5. The kicker?
-
-These bad boys will set you back a whopping $425.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359316.png">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063174.jpeg">
 
-6. But for the low price of $424.99, I will personally cut the ass out of your jeans for you.
-
-What a steal.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359317.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063178.jpg">
 
-7. Behold a pair of jeans that unzip down your butt crack.As part of its partnership with Levis, Vetements has come out with its new pair of “high-rise distressed” jeans. Nothing in that title alludes to the zipper down your butt crack, but there it is.
-
-You can’t really miss it.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359318.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063173.jpg">
 
-8. Just in case you were wondering, the jeans also have zippers going down the back of the leg as well.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359320.jpg">
+8. My sweet innocent mother got my sister a thermos with her initials monogrammed on it for Christmas.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063176.jpg">
 
-9. Vetements is one of the major “tastemakers” in fashion, which is why it’ll get away with selling these new zipper-heavy jeans for $1,870.This look doesn’t come cheap.
-If the jeans appear too constricting despite the air for your derriere, there is also a shorts version.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359319.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063177.jpg">
 
 10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/85359321.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063170.jpeg">
+
+11. When your parents wrap your presents last minute
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063168.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063169.jpeg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063180.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063181.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063171.jpeg">
+
+16. My aunt forgot I existed (yet remembered my BIL who has only been in the family for a year), so I had to add my own name to the Christmas card.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063182.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063183.jpg">
+
+18. This wristband I got at my work Christmas party.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063184.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063186.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063187.jpg">
+
+21. Stole one of these candies from my kid’s Christmas stash, learned the hard way they’re actually individually wrapped soaps
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063188.jpg">
+
+22. My boy Thor passed on Christmas day. My girl has been struggling to cope since. She loves stuffed animals so for this Christmas I ordered her a Cuddle Clone. I paid $300 for this.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87063189.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85359311/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87063167/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link8">GO TO PREVIOUS</a>
 
-## <a href="#link10" id="link9">Chinese Flight Attendant Training Is Not For The Weak</a>
-1. First they train posture and to  keep on smiling.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85239598.jpg">
+## <a href="#link10" id="link9">Start Your Morning With A Big Ass Pic Dump!</a>
+1.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207042.jpg">
 
-2. Next they walk for three minutes... with a bottle on their heads.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85239599.jpg">
+2.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207053.jpg">
 
-3. They have to prevent the paper from falling on the floor.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85239600.jpg">
+3.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207043.jpg">
 
-4. Next they train this pose... for hours.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85239601.jpg">
+4.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207044.jpg">
 
-5. And when they're finished they learn self-defense.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85239602.jpg">
+5.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207095.jpg">
 
-6. It looks more like a boot camp.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85239603.jpg">
+6.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207045.jpg">
 
-7. They learn taekwondo and kung-fu.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85239604.jpg">
+7.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207046.jpg">
 
-8. But remember that they learn to take care of rowdy passengers.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85239605.jpg">
+8.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207047.jpg">
 
-9. So they can smile for hours but kick your ass in seconds. Will you dare to travel with them?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/85239606.jpg">
+9.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207048.jpg">
+
+10.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207049.jpg">
+
+11.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207050.jpg">
+
+12.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207051.jpg">
+
+13.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207058.jpg">
+
+14.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207052.jpg">
+
+15.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207054.jpg">
+
+16.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207055.jpg">
+
+17.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207056.jpg">
+
+18.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207057.jpg">
+
+19.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207059.jpg">
+
+20.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207041.jpg">
+
+21.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207060.jpg">
+
+22.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207061.jpg">
+
+23.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207062.jpg">
+
+24.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207063.jpg">
+
+25.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207064.jpg">
+
+26.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207065.jpg">
+
+27.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207092.jpg">
+
+28.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207066.jpg">
+
+29.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207067.jpg">
+
+30.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207068.jpg">
+
+31.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207069.jpg">
+
+32.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207070.jpg">
+
+33.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207071.jpg">
+
+34.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207072.jpg">
+
+35.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207073.jpg">
+
+36.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207074.jpg">
+
+37.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207075.jpg">
+
+38.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207076.jpg">
+
+39.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207077.jpg">
+
+40.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207079.jpg">
+
+41.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207080.jpg">
+
+42.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207081.jpg">
+
+43.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207082.jpg">
+
+44.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207083.jpg">
+
+45.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207084.jpg">
+
+46.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207085.jpg">
+
+47.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207086.jpg">
+
+48.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207087.jpg">
+
+49.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207088.jpg">
+
+50.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207089.jpg">
+
+51.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207090.jpg">
+
+52.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207091.jpg">
+
+53.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207093.jpg">
+
+54.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207094.jpg">
+
+55.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207096.jpg">
+
+56.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207097.jpg">
+
+57.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/566750/85207098.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/85239597/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/85207040/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
 <a href="#link9">GO TO PREVIOUS</a>
 
-## <a href="#link11" id="link10">21 People Who Got Even in the Best Ways</a>
-1.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287653.jpg">
+## <a href="#link11" id="link10">19 Pics Filled to the Brim With Stupidity</a>
+1. Did they realize the terrain wasn't repeating itself?
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283499.jpg">
 
-2. A Day's Worth Of Dirty Diapers For Whoever Keeps Stealing Packages Off Our Porch.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287670.jpg">
+2. Surprise! It's still 2 pounds!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283492.jpg">
 
-3.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287668.jpg">
+3. Great financial advice for the youth!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283512.jpg">
 
-4.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287667.jpg">
+4. Be careful of the inverted gravity crosswalk.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283493.jpg">
 
-5.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287660.jpg">
+5. Lorem Ipsum.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283491.jpg">
 
-6. My Friend's Girlfriend Moved Out And Took Everything, Including The Drawer Handles.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287658.jpg">
+6. Well, many people from Texas do feel this way.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283496.jpg">
 
-7.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287661.jpg">
+7. Buy or don't buy... it's the same!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283497.jpg">
 
-8. To Everyone At Work That Has Been Eating My Jellybeans, Now The Fun Begins.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287650.jpg">
+8. Of course it must be every single college level student that got it wrong!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283502.jpg">
 
-9. Thwaites Brewery In England Told Workers It Was Cutting 60 Staff. My Dad's Mates Worked As Electricians There And Shorted The Lights In Retaliation.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287664.jpg">
+9. No drinking at the drinking fountain either!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283503.jpg">
 
-10.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287649.jpg">
+10. Now if only I can get it out of this packaging, I'll save so much time!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283514.jpg">
 
-11. After Years Of This Guy Using My Email As A Spam Account, I Got My Revenge. He Signed My Email Up For SiriusXM, Which Also Gives Me The Ability To Beep His Horn.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287647.jpg">
+11. Well that really narrows down the search!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283504.jpg">
 
-12.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287662.jpg">
+12. Special deal! It's exactly the same as before!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283501.jpg">
 
 13.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287665.jpg">
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283506.jpg">
 
-14.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287666.jpg">
+14. That is actually a big part of being unhealthy.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283495.jpg">
 
-15. Employees In A Supermarket React To A Customer That Left Their Car In The Middle Of The Parking Lot.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287648.jpg">
+15. What an astute prediction from this guy!
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283507.jpg">
 
-16. Someone At Work Kept Stealing My Sister's Cherry Cokes Out Of The Fridge. So She Rubbed The Top Of The Can With A Habanero Pepper. Hope This Will Prevent Them From Stealing.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287672.jpg">
+16. Those poles might not stay up for much longer.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283509.jpg">
 
-17. A Japanese Woman Discovered Her Boyfriend Was Cheating, So She Gathered All His Apple Devices And Dumped Them Into A Tub Full Of Water.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287671.jpg">
+17. It's ok, they won't remember being offended.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283508.jpg">
 
-18.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287651.jpg">
+18. Just your average Alabama picture frame.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283510.jpg">
 
-19. My Mate Told The Driver Of The Black Corsa Not To Park In The Company's Parking Space. He Gave My Mate Attitude, So He Put Scaffold Up Around His Car.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287663.jpg">
-
-20.
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287669.jpg">
-
-21. What Could Go Wrong Blocking A Farmer's Gate To Save A Parking Fee?
-<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87287656.jpg">
+19. Well hopefully he can still make a nice dinner for the family.
+<img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87283513.jpg">
 
 
-<a href="https://www.ebaumsworld.com/pictures/-/87287645/">Original Article <b>with</b> Ads</a>
+<a href="https://www.ebaumsworld.com/pictures/-/87283490/">Original Article <b>with</b> Ads</a>
 
 <a href="#link0">GO TO TOP</a>
 
